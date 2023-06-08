@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-09 | [カッパドキア, トルコ (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_JA-JP9770662368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-08 | [青い海で泳ぐザトウクジラ (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_JA-JP9516024121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-07 | [チャコ文化国立歴史公園, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_JA-JP9246689243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
