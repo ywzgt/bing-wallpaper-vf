@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-09 | [Alfombras de Serrín de Elche de la Sierra, Albacete, España (© Pablo Blazquez Dominguez/Getty Images)](https://www.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-08 | [Ballena jorobada (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-07 | [Pueblo Bonito, Parque Histórico Nacional de la Cultura Chaco, Nuevo México, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

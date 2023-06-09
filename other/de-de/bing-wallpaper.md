@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-09 | [Kappadokien, Türkei (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-08 | [Buckelwal (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-07 | [Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
