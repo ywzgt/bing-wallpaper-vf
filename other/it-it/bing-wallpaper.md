@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-10 | [La Cattedrale di Porto, Portogallo (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-09 | [Mongolfiere in Cappadocia, Turchia  (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-08 | [La megattera (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

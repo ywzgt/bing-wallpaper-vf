@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-10 | [Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-09 | [Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-08 | [Baleine à bosse (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
