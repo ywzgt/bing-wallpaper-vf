@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-11 | [Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_EN-GB9486984477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-10 | [Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_EN-GB0196698327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-09 | [Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_EN-GB0119846047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

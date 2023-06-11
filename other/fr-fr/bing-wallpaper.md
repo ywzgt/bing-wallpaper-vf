@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-11 | [Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-10 | [Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-09 | [Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
