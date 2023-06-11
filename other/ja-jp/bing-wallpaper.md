@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-12 | [ビッグ・ベンド国立公園のサボテン, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-11 | [美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Ajisai2023_JA-JP0262225341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-10 | [ポルト大聖堂, ポルトガル (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_JA-JP0015831815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
