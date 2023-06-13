@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [クルーガー国立公園のオニアオサギ, 南アフリカ共和国 (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_JA-JP7916095808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-13 | [オケフェノキー湿原の遊歩道, 米国 ジョージア州 (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_JA-JP0829275517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-12 | [ビッグ・ベンド国立公園のサボテン, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_JA-JP0554152393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
