@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [Árvores de musgo espanhol sobre um calçadão no pântano Okefenokee, Folkston, Geórgia (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_PT-BR9993214300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-13 | [Planta de pera espinhosa, Big Bend National Park, Texas, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_PT-BR9746173577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-12 | [Garça Goliath no Parque Nacional Kruger, África do Sul (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_PT-BR9417001385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
