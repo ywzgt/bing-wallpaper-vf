@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [Parque Nacional de Tablas de Daimiel, Castilla-La Mancha, España (© Franz Aberham/Getty Images)](https://www.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-13 | [Árboles con musgo español sobre el paseo marítimo en el Pantano de Okefenokee, Georgia, EE.UU.  (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-12 | [Planta de higo chumbo, Parque Nacional de Big Bend, Texas, EE.UU. (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-14 | [La città di Passavia riflessa nel Danubio, Baviera, Germania (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-13 | [Castelluccio, Parco nazionale dei Monti Sibillini, Italia (© Stefano Termanini/Getty Images)](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-12 | [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
