@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [阿嘉島のウミガメ, 沖縄県 (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_JA-JP0788184313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-15 | [グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_JA-JP1430941774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-14 | [クルーガー国立公園のオニアオサギ, 南アフリカ共和国 (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_JA-JP7916095808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
