@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-15 | [Synchrone Leuchtkäfer, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-14 | [Die Stadt Passau, die sich in der Donau spiegelt (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-13 | [Bäume mit Spanischem Moos über der Uferpromenade im Okefenokee-Sumpf, Georgia, USA  (© Emmer Photo/Alamy)](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_DE-DE7186749747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
