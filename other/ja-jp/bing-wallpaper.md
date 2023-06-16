@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-17 | [サンディエゴで行われたパドルアウト, 米国 カリフォルニア州 (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_JA-JP5997733489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-16 | [阿嘉島のウミガメ, 沖縄県 (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_JA-JP0788184313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-15 | [グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_JA-JP1430941774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
