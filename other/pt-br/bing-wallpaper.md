@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-17 | [Tartaruga-de-pente nada perto de Akajima, Okinawa, Japão (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_PT-BR9425456104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-16 | [Vagalumes síncronos, Parque Nacional Great Smoky Mountains, Tennessee, EUA (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_PT-BR0661449530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-15 | [A cidade de Passau refletindo no rio Danúbio, Baviera, Alemanha (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_PT-BR1202861779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
