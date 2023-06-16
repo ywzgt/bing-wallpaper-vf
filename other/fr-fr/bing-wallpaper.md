@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Tortue imbriquée près d'Akajima, Okinawa, Japon (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-15 | [Lucioles synchrones, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_FR-FR5098161118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-14 | [Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

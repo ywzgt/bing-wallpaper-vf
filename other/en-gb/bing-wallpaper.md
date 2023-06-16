@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-15 | [Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_EN-GB0756238387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-14 | [Brighton Pier at sunset, England, UK (© Peppy Graphics/Shutterstock)](https://www.bing.com/th?id=OHR.BrightonPalacePier_EN-GB0672120721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
