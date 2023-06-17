@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-17 | [San Diego, Kalifornien, USA (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-16 | [Echte Karettschildkröte schwimmt in der Nähe von Aka-jima, Okinawa, Japan (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-15 | [Synchrone Leuchtkäfer, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

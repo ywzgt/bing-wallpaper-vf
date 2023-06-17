@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-17 | [Il “Pagaiare per l'unità” di San Diego, California, USA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-16 | [Una tartaruga embricata che nuota vicino ad Akajima, Okinawa, Giappone (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-15 | [Lucciole sincrone, Parco Nazionale delle Great Smoky Mountains, Tennessee, Stati Uniti (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
