@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-18 | [Charrán común y su polluelo, parque estatal Nickerson, Long Island, Nueva York, EE.UU. (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_ES-ES7143404258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-17 | ['Paddle Out for Unity' en San Diego, California, EE.UU. (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_ES-ES6723429001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-16 | [Tortuga carey nadando cerca de la Isla de Aka, Okinawa, Japón (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

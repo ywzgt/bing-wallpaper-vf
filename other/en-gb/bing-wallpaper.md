@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-18 | [Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_EN-GB3286623964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-17 | [Red Arrows (© Wayland Standing/500px/Getty Images)](https://www.bing.com/th?id=OHR.TroopingtheColour_EN-GB3209704877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-16 | [Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
