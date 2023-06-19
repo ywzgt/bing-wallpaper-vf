@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-19 | [Piccolo di capriolo che corre sull'erba in Normandia, Francia (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-18 | [Vista di Roma da Castel Sant’Angelo, Roma, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-17 | [Il “Pagaiare per l'unità” di San Diego, California, USA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

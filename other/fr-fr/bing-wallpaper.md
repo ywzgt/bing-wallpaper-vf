@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-19 | [Faon dans une prairie de Normandie (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-18 | [Sterne pierregarin mâle et son oisillon, plage de Nickerson, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_FR-FR6242337501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-17 | [« Pagaie pour la solidarité » à San Diego, Californie, États-Unis (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
