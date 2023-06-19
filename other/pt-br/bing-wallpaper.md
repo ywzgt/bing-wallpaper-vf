@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-20 | [Corça correndo na grama na Normandia, França (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_PT-BR1155184891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-19 | [Pai de andorinha-do-mar comum com filhote, Nickerson Beach, Long Island, Nova York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_PT-BR0620586180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-18 | ['Reme pela unidade' em San Diego, Califórnia, EUA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_PT-BR0003573569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
