@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Águia careca, Floresta Nacional de Tongass, Alasca, EUA (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_PT-BR1918929782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-20 | [Corça correndo na grama na Normandia, França (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_PT-BR1155184891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-19 | [Pai de andorinha-do-mar comum com filhote, Nickerson Beach, Long Island, Nova York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_PT-BR0620586180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
