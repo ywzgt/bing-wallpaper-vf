@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-20 | [Weißkopfseeadler, Tongass National Forest, Alaska, USA (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-19 | [Rehkitz im Gras in der Normandie, Frankreich (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-18 | [Flussseeschwalbenvater mit Küken, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
