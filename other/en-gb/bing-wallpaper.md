@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_EN-GB4804495385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-20 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_EN-GB5214088719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-19 | [Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_EN-GB3370685571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

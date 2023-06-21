@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Stonehenge, Pianura di Salisbury, Wiltshire, Inghilterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-20 | [Aquila di mare testabianca, Foresta Nazionale di Tongass, Alaska (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-19 | [Piccolo di capriolo che corre sull'erba in Normandia, Francia (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
