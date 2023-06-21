@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [Stonehenge, Planície de Salisbury, Wiltshire, Inglaterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_PT-BR7064860081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-21 | [Águia careca, Floresta Nacional de Tongass, Alasca, EUA (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_PT-BR1918929782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-20 | [Corça correndo na grama na Normandia, França (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_PT-BR1155184891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
