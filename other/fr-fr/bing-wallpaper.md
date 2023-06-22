@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-21 | [Stonehenge, plateau de Salisbury, Wiltshire, Angleterre (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-20 | [Pygargue à tête blanche, forêt nationale de Tongass, Alaska, États-Unis (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

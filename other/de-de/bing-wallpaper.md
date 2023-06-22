@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [Amazonas-Regenwald, Peru (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_DE-DE2410533713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-21 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_DE-DE2075422299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-20 | [Weißkopfseeadler, Tongass National Forest, Alaska, USA (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

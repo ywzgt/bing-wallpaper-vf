@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-22 | [Selva Amazonia, Perú (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-21 | [Stonehenge, llanura de Salisbury, Wiltshire, Inglaterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-20 | [Águila americana, bosque nacional Tongass, Alaska, EE.UU. (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_ES-ES4749135117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
