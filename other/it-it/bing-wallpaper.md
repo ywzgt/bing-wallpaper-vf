@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-23 | [Le farfalle monarca si nutrono di fiori selvatici (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-22 | [L'Amazzonia peruviana, Perù (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-21 | [Stonehenge, Pianura di Salisbury, Wiltshire, Inghilterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
