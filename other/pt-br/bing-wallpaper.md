@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-24 | [Borboletas-monarca alimentando-se de flores silvestres estreladas (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_PT-BR7841420881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-23 | [Amazônia peruana, Peru (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_PT-BR7421781188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-22 | [Stonehenge, Planície de Salisbury, Wiltshire, Inglaterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_PT-BR7064860081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
