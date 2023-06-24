@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-24 | [Baia di Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-23 | [Le farfalle monarca si nutrono di fiori selvatici (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-22 | [L'Amazzonia peruviana, Perù (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-24 | [Personas bañándose en el mar Mediterráneo el día de San Juan, Málaga, Andalucía, España (© JOSE LUIS ROCA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-23 | [Mariposas monarca alimentándose de las flores silvestres de la estrella fugaz (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-22 | [Selva Amazonia, Perú (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

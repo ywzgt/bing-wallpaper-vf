@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-24 | [Baie de Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-23 | [Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-22 | [Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
