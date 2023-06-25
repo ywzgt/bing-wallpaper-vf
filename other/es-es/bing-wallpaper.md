@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-25 | [El Tesoro de Petra, Jordania (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-24 | [Personas bañándose en el mar Mediterráneo el día de San Juan, Málaga, Andalucía, España (© JOSE LUIS ROCA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-23 | [Mariposas monarca alimentándose de las flores silvestres de la estrella fugaz (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
