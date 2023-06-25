@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_PT-BR8415620611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-25 | [Baía de Nha Phu, Nha Trang, Vietnã (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_PT-BR8126662489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-24 | [Borboletas-monarca alimentando-se de flores silvestres estreladas (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_PT-BR7841420881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
