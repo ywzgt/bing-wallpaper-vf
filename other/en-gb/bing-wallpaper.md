@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-25 | [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_EN-GB6969772830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-24 | [Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_EN-GB0640695558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
