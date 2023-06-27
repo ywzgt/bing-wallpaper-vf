@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_JA-JP5294310322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-27 | [セドナ, 米国 アリゾナ州 (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_JA-JP5059075419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-26 | [ロワール渓谷内のヴィランドリー城, フランス ロワール県 (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_JA-JP4858825894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
