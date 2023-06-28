@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [Procida, Italy (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-GB9713968263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-27 | [Sedona, Arizona (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_EN-GB7297274691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-26 | [Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
