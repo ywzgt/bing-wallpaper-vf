@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [Día Internacional del Orgullo LGBT (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-28 | [Día Internacional del Orgullo LGBT (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-27 | [Sedona, Arizona, EE.UU. (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES3283114561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
