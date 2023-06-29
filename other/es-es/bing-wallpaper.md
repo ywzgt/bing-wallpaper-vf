@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Viñedo con el castillo de Davalillo de fondo al amanecer en San Asensio, La Rioja, España (© Alberto Loyo/Shutterstock)](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-29 | [Viñedo con el castillo de Davalillo de fondo al amanecer en San Asensio, La Rioja, España (© Alberto Loyo/Shutterstock)](https://www.bing.com/th?id=OHR.WineBattle_ES-ES1646117928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-28 | [Día Internacional del Orgullo LGBT (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
