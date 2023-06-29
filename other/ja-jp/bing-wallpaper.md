@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-30 | [レイク・クラーク国立公園, 米国 アラスカ州 (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_JA-JP8912125986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-29 | [バニャック諸島, インドネシア (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_JA-JP5494773758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-28 | [レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_JA-JP5294310322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
