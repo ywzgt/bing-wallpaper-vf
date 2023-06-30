@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-30 | [Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-29 | [Banyak-Inseln, Sumatra, Indonesien (© fbxx/Getty Imagesz)](https://www.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-28 | [Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

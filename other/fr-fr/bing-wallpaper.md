@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-30 | [Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-29 | [Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-28 | [Juin, mois des fiertés (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
