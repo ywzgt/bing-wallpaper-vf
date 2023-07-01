@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-01 | [London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-30 | [Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-29 | [Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_EN-GB9801951786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

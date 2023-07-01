@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-01 | [Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-30 | [Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-29 | [Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

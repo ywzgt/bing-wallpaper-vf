@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-01 | [Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-06-30 | [Madre y osezno de oso pardo, Parque Nacional y Reserva del Lago Clark, Alaska, EE.UU. (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-06-29 | [Viñedo con el castillo de Davalillo de fondo al amanecer en San Asensio, La Rioja, España (© Alberto Loyo/Shutterstock)](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
