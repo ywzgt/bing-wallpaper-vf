@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-03 | [Aqueduto de Veluwemeer, na Holanda (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_PT-BR6600769834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-02 | [Ciclistas do Tour de France atravessando a Pont du Gard, na França (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_PT-BR5941556795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-01 | [Mãe e filhote de urso pardo, Lake Clark National Park and Preserve, Alasca (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_PT-BR5661111850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
