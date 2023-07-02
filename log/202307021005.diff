@@ -1,0 +1,645 @@
+diff --git a/other/de-de/README.md b/other/de-de/README.md
+index aafc286..4217aaf 100644
+--- a/other/de-de/README.md
++++ b/other/de-de/README.md
+@@ -1,17 +1,17 @@
+ ## Bing Wallpaper
+-![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&w=1000)Today: [Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&w=1000)Today: [Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_DE-DE6870001404_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_DE-DE6870001404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.VillandryGarden_DE-DE6626045641_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_DE-DE6626045641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PetraTreasury_DE-DE6339957030_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_DE-DE6339957030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SonyCenterDome_DE-DE4567605388_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.SonyCenterDome_DE-DE4567605388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_DE-DE3624840755_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_DE-DE3624840755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PeruAmazon_DE-DE2410533713_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_DE-DE2410533713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_DE-DE2075422299_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_DE-DE2075422299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_DE-DE7186749747_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_DE-DE7186749747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_DE-DE6792664857_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_DE-DE6792664857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GartenTagTulpen_DE-DE7717762871_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GartenTagTulpen_DE-DE7717762871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PortugalDay_DE-DE4854836897_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_DE-DE4854836897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_DE-DE8092248382_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_DE-DE8092248382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_DE-DE7832208174_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_DE-DE7832208174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.MauiBeach_DE-DE6881454131_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_DE-DE6881454131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-02 [download 4k](https://www.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_DE-DE6241631222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideMunich_DE-DE6752546135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_DE-DE6870001404_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_DE-DE6870001404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.VillandryGarden_DE-DE6626045641_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_DE-DE6626045641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PetraTreasury_DE-DE6339957030_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_DE-DE6339957030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SonyCenterDome_DE-DE4567605388_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.SonyCenterDome_DE-DE4567605388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_DE-DE3624840755_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_DE-DE3624840755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PeruAmazon_DE-DE2410533713_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_DE-DE2410533713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_DE-DE2075422299_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_DE-DE2075422299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_DE-DE3991605617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_DE-DE1059166078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_DE-DE0753405275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_DE-DE0345949347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_DE-DE9802126687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_DE-DE9996840868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PassauSunsetJune_DE-DE9305502094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_DE-DE7186749747_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_DE-DE7186749747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_DE-DE6792664857_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_DE-DE6792664857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.GartenTagTulpen_DE-DE7717762871_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GartenTagTulpen_DE-DE7717762871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_DE-DE4854836897_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_DE-DE4854836897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_DE-DE4432664066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_DE-DE4104793691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_DE-DE3796177727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_DE-DE8092248382_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_DE-DE8092248382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_DE-DE7832208174_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_DE-DE7832208174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.MauiBeach_DE-DE6881454131_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_DE-DE6881454131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+ 
+ ### 历史归档：
+ [2023-07](/other/de-de/picture/2023-07/) | [2023-06](/other/de-de/picture/2023-06/) | [2023-05](/other/de-de/picture/2023-05/) | [2023-04](/other/de-de/picture/2023-04/) | 
+\ No newline at end of file
+diff --git a/other/de-de/bing-wallpaper.md b/other/de-de/bing-wallpaper.md
+index 9476ec7..46b5ba7 100644
+--- a/other/de-de/bing-wallpaper.md
++++ b/other/de-de/bing-wallpaper.md
+@@ -1,4 +1,6 @@
+ ## Bing Wallpaper
++2023-07-02 | [Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
++
+ 2023-07-01 | [Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+ 
+ 2023-06-30 | [Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.Footbridge_DE-DE3295548042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+diff --git a/other/de-de/picture/2023-07/README.md b/other/de-de/picture/2023-07/README.md
+index fac6763..5551e50 100644
+--- a/other/de-de/picture/2023-07/README.md
++++ b/other/de-de/picture/2023-07/README.md
+@@ -1,5 +1,5 @@
+ ## Bing Wallpaper (2023-07)
+-![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&w=1000)Today: [Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&w=1000)Today: [Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
+diff --git a/other/en-gb/README.md b/other/en-gb/README.md
+index 9a80ede..dbdee65 100644
+--- a/other/en-gb/README.md
++++ b/other/en-gb/README.md
+@@ -1,17 +1,17 @@
+ ## Bing Wallpaper
+-![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&w=1000)Today: [London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&w=1000)Today: [Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BanyakIslands_EN-GB9801951786_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_EN-GB9801951786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-GB9713968263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-GB9713968263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_EN-GB7297274691_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_EN-GB7297274691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PetraTreasury_EN-GB6969772830_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_EN-GB6969772830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_EN-GB0640695558_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_EN-GB0640695558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_EN-GB6254720731_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_EN-GB6254720731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PeruAmazon_EN-GB5292051746_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_EN-GB5292051746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_EN-GB4804495385_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_EN-GB4804495385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_EN-GB5214088719_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_EN-GB5214088719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.Fawn_EN-GB3370685571_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_EN-GB3370685571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_EN-GB3286623964_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_EN-GB3286623964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TroopingtheColour_EN-GB3209704877_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.TroopingtheColour_EN-GB3209704877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_EN-GB0756238387_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_EN-GB0756238387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BrightonPalacePier_EN-GB0672120721_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.BrightonPalacePier_EN-GB0672120721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-GB0533204328_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-GB0533204328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-GB0399818877_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-GB0399818877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GoliathHeron_EN-GB9486984477_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_EN-GB9486984477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PortugalDay_EN-GB0196698327_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_EN-GB0196698327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_EN-GB0119846047_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_EN-GB0119846047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_EN-GB9991991463_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_EN-GB9991991463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.ChacoCulture_EN-GB9900323304_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_EN-GB9900323304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_EN-GB9799848049_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_EN-GB9799848049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_EN-GB9687576751_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_EN-GB9687576751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.MauiBeach_EN-GB9406184102_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_EN-GB9406184102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GemsbokNamibia_EN-GB7458259084_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-02 [download 4k](https://www.bing.com/th?id=OHR.GemsbokNamibia_EN-GB7458259084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.BanyakIslands_EN-GB9801951786_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_EN-GB9801951786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-GB9713968263_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.ProcidaItaly_EN-GB9713968263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_EN-GB7297274691_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_EN-GB7297274691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_EN-GB7083830994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PetraTreasury_EN-GB6969772830_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_EN-GB6969772830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_EN-GB0640695558_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_EN-GB0640695558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_EN-GB6254720731_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_EN-GB6254720731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PeruAmazon_EN-GB5292051746_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_EN-GB5292051746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_EN-GB4804495385_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_EN-GB4804495385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.EagleTree_EN-GB5214088719_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_EN-GB5214088719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_EN-GB3370685571_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_EN-GB3370685571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_EN-GB3286623964_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_EN-GB3286623964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.TroopingtheColour_EN-GB3209704877_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.TroopingtheColour_EN-GB3209704877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_EN-GB1789155726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_EN-GB0756238387_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_EN-GB0756238387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.BrightonPalacePier_EN-GB0672120721_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.BrightonPalacePier_EN-GB0672120721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-GB0533204328_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_EN-GB0533204328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-GB0399818877_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_EN-GB0399818877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.GoliathHeron_EN-GB9486984477_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_EN-GB9486984477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_EN-GB0196698327_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_EN-GB0196698327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_EN-GB0119846047_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_EN-GB0119846047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_EN-GB9991991463_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_EN-GB9991991463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_EN-GB9900323304_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_EN-GB9900323304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_EN-GB9799848049_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_EN-GB9799848049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_EN-GB9687576751_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_EN-GB9687576751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.MauiBeach_EN-GB9406184102_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_EN-GB9406184102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+ 
+ ### 历史归档：
+ [2023-07](/other/en-gb/picture/2023-07/) | [2023-06](/other/en-gb/picture/2023-06/) | [2023-05](/other/en-gb/picture/2023-05/) | [2023-04](/other/en-gb/picture/2023-04/) | 
+\ No newline at end of file
+diff --git a/other/en-gb/bing-wallpaper.md b/other/en-gb/bing-wallpaper.md
+index 50d2942..28c9e2a 100644
+--- a/other/en-gb/bing-wallpaper.md
++++ b/other/en-gb/bing-wallpaper.md
+@@ -1,4 +1,6 @@
+ ## Bing Wallpaper
++2023-07-02 | [Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
++
+ 2023-07-01 | [London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+ 
+ 2023-06-30 | [Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_EN-GB2655650762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+diff --git a/other/en-gb/picture/2023-07/README.md b/other/en-gb/picture/2023-07/README.md
+index 24cf11a..cc0a434 100644
+--- a/other/en-gb/picture/2023-07/README.md
++++ b/other/en-gb/picture/2023-07/README.md
+@@ -1,5 +1,5 @@
+ ## Bing Wallpaper (2023-07)
+-![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&w=1000)Today: [London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&w=1000)Today: [Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
+diff --git a/other/es-es/README.md b/other/es-es/README.md
+index f567047..184b1f3 100644
+--- a/other/es-es/README.md
++++ b/other/es-es/README.md
+@@ -1,17 +1,17 @@
+ ## Bing Wallpaper
+-![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&w=1000)Today: [Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&w=1000)Today: [Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.WineBattle_ES-ES1646117928_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.WineBattle_ES-ES1646117928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES3283114561_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES3283114561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES0895046413_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES0895046413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_ES-ES4749135117_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_ES-ES4749135117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.EagleTree_ES-ES9147685139_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_ES-ES9147685139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_ES-ES8961427196_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_ES-ES8961427196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_ES-ES7143404258_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_ES-ES7143404258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.SurfSanDiego_ES-ES6723429001_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_ES-ES6723429001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.WineBattle_ES-ES2245527937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.WineBattle_ES-ES1646117928_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.WineBattle_ES-ES1646117928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES3682548218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES3283114561_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES3283114561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES0895046413_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_ES-ES0895046413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_ES-ES2233119306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_ES-ES0383063317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.EagleTree_ES-ES4749135117_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_ES-ES4749135117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_ES-ES9147685139_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_ES-ES9147685139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_ES-ES8961427196_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_ES-ES8961427196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.TernFather_ES-ES7143404258_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_ES-ES7143404258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SurfSanDiego_ES-ES6723429001_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_ES-ES6723429001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+ 
+ ### 历史归档：
+ [2023-07](/other/es-es/picture/2023-07/) | [2023-06](/other/es-es/picture/2023-06/) | [2023-05](/other/es-es/picture/2023-05/) | [2023-04](/other/es-es/picture/2023-04/) | 
+\ No newline at end of file
+diff --git a/other/es-es/bing-wallpaper.md b/other/es-es/bing-wallpaper.md
+index b15d9a6..a543803 100644
+--- a/other/es-es/bing-wallpaper.md
++++ b/other/es-es/bing-wallpaper.md
+@@ -1,4 +1,6 @@
+ ## Bing Wallpaper
++2023-07-02 | [Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
++
+ 2023-07-01 | [Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+ 
+ 2023-06-30 | [Madre y osezno de oso pardo, Parque Nacional y Reserva del Lago Clark, Alaska, EE.UU. (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+diff --git a/other/es-es/picture/2023-07/README.md b/other/es-es/picture/2023-07/README.md
+index 70bad86..04d922a 100644
+--- a/other/es-es/picture/2023-07/README.md
++++ b/other/es-es/picture/2023-07/README.md
+@@ -1,5 +1,5 @@
+ ## Bing Wallpaper (2023-07)
+-![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&w=1000)Today: [Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&w=1000)Today: [Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
+diff --git a/other/fr-fr/README.md b/other/fr-fr/README.md
+index 1983d43..15f513d 100644
+--- a/other/fr-fr/README.md
++++ b/other/fr-fr/README.md
+@@ -1,17 +1,17 @@
+ ## Bing Wallpaper
+-![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&w=1000)Today: [Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&w=1000)Today: [Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_FR-FR6242337501_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_FR-FR6242337501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_FR-FR5098161118_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_FR-FR5098161118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_FR-FR4899553604_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_FR-FR4899553604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-02 [download 4k](https://www.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.BanyakIslands_FR-FR0543870795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_FR-FR0295897543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_FR-FR0044087630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_FR-FR9767496581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_FR-FR9534450320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_FR-FR8046018187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.SaintMichel_FR-FR7818696393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_FR-FR7280583164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_FR-FR7107786254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_FR-FR7274315529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_FR-FR6540960324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TernFather_FR-FR6242337501_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.TernFather_FR-FR6242337501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_FR-FR5933823345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_FR-FR5646969618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_FR-FR5098161118_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_FR-FR5098161118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_FR-FR4102767310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_FR-FR4899553604_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.OkefenokeeSwamp_FR-FR4899553604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_FR-FR4667898386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_FR-FR2354863423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.LeMansCentenary_FR-FR2969423081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_FR-FR3103288889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_FR-FR3535501721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_FR-FR3333828021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_FR-FR3013201440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_FR-FR2781868476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_FR-FR2394755934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+ 
+ ### 历史归档：
+ [2023-07](/other/fr-fr/picture/2023-07/) | [2023-06](/other/fr-fr/picture/2023-06/) | [2023-05](/other/fr-fr/picture/2023-05/) | [2023-04](/other/fr-fr/picture/2023-04/) | 
+\ No newline at end of file
+diff --git a/other/fr-fr/bing-wallpaper.md b/other/fr-fr/bing-wallpaper.md
+index 5e35545..ebaf751 100644
+--- a/other/fr-fr/bing-wallpaper.md
++++ b/other/fr-fr/bing-wallpaper.md
+@@ -1,4 +1,6 @@
+ ## Bing Wallpaper
++2023-07-02 | [Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
++
+ 2023-07-01 | [Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+ 
+ 2023-06-30 | [Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)](https://www.bing.com/th?id=OHR.ClamBears_FR-FR8687588186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+diff --git a/other/fr-fr/picture/2023-07/README.md b/other/fr-fr/picture/2023-07/README.md
+index 7957bc7..4c80480 100644
+--- a/other/fr-fr/picture/2023-07/README.md
++++ b/other/fr-fr/picture/2023-07/README.md
+@@ -1,5 +1,5 @@
+ ## Bing Wallpaper (2023-07)
+-![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&w=1000)Today: [Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&w=1000)Today: [Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
+diff --git a/other/it-it/README.md b/other/it-it/README.md
+index b514401..fb9d107 100644
+--- a/other/it-it/README.md
++++ b/other/it-it/README.md
+@@ -1,17 +1,17 @@
+ ## Bing Wallpaper
+-![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&w=1000)Today: [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&w=1000)Today: [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+-|![](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-02 [download 4k](https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-30 [download 4k](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-29 [download 4k](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-28 [download 4k](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-27 [download 4k](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-26 [download 4k](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-25 [download 4k](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-24 [download 4k](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-23 [download 4k](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-22 [download 4k](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-21 [download 4k](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-20 [download 4k](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-19 [download 4k](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-18 [download 4k](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-17 [download 4k](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-16 [download 4k](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-15 [download 4k](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-14 [download 4k](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-13 [download 4k](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-12 [download 4k](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-11 [download 4k](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-10 [download 4k](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-09 [download 4k](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-08 [download 4k](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-07 [download 4k](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-06 [download 4k](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
++|![](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-05 [download 4k](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-04 [download 4k](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-06-03 [download 4k](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+ 
+ ### 历史归档：
+ [2023-07](/other/it-it/picture/2023-07/) | [2023-06](/other/it-it/picture/2023-06/) | [2023-05](/other/it-it/picture/2023-05/) | [2023-04](/other/it-it/picture/2023-04/) | 
+\ No newline at end of file
+diff --git a/other/it-it/bing-wallpaper.md b/other/it-it/bing-wallpaper.md
+index 5958a23..d3eef8b 100644
+--- a/other/it-it/bing-wallpaper.md
++++ b/other/it-it/bing-wallpaper.md
+@@ -1,4 +1,6 @@
+ ## Bing Wallpaper
++2023-07-02 | [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
++
+ 2023-07-01 | [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+ 
+ 2023-06-30 | [Lago di Braies, Bolzano (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+diff --git a/other/it-it/picture/2023-07/README.md b/other/it-it/picture/2023-07/README.md
+index 47042f0..cd08007 100644
+--- a/other/it-it/picture/2023-07/README.md
++++ b/other/it-it/picture/2023-07/README.md
+@@ -1,5 +1,5 @@
+ ## Bing Wallpaper (2023-07)
+-![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&w=1000)Today: [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
++![](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&w=1000)Today: [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+ |      |      |      |
+ | :----: | :----: | :----: |
+-|![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
++|![](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-02 [download 4k](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2023-07-01 [download 4k](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+\ No newline at end of file
+diff --git a/web/de-de/2023-07.html b/web/de-de/2023-07.html
+index 0a5c40b..9574ea4 100644
+--- a/web/de-de/2023-07.html
++++ b/web/de-de/2023-07.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper(2023-07)</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)</p>
++        <p>Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+diff --git a/web/de-de/index.html b/web/de-de/index.html
+index 3753653..d9712e6 100644
+--- a/web/de-de/index.html
++++ b/web/de-de/index.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)</p>
++        <p>Aquädukt Veluwemeer, Niederlande (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_DE-DE4239098314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_DE-DE1709743153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div><div class="w3-third " style="position: relative;height:249px">
+@@ -180,9 +183,6 @@
+ </div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-06-03 <a href="https://www.bing.com/th?id=OHR.SouthKaibabTrail_DE-DE3610470806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+-</div><div class="w3-third " style="position: relative;height:249px">
+-  <img class="smallImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+- <p>2023-06-02 <a href="https://www.bing.com/th?id=OHR.GemsbokNamibia_DE-DE3132541250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+     </div>
+     <div class=" w3-margin">
+diff --git a/web/en-gb/2023-07.html b/web/en-gb/2023-07.html
+index 73c919b..a03577a 100644
+--- a/web/en-gb/2023-07.html
++++ b/web/en-gb/2023-07.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper(2023-07)</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)</p>
++        <p>Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+diff --git a/web/en-gb/index.html b/web/en-gb/index.html
+index c6dffb7..106ebce 100644
+--- a/web/en-gb/index.html
++++ b/web/en-gb/index.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)</p>
++        <p>Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_EN-GB2866827460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.LondonPride_EN-GB2746181543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div><div class="w3-third " style="position: relative;height:249px">
+@@ -180,9 +183,6 @@
+ </div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-06-03 <a href="https://www.bing.com/th?id=OHR.SouthKaibabTrail_EN-GB9323657088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+-</div><div class="w3-third " style="position: relative;height:249px">
+-  <img class="smallImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_EN-GB7458259084_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_EN-GB7458259084_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+- <p>2023-06-02 <a href="https://www.bing.com/th?id=OHR.GemsbokNamibia_EN-GB7458259084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+     </div>
+     <div class=" w3-margin">
+diff --git a/web/es-es/2023-07.html b/web/es-es/2023-07.html
+index cf366c5..285ad69 100644
+--- a/web/es-es/2023-07.html
++++ b/web/es-es/2023-07.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper(2023-07)</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)</p>
++        <p>Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+diff --git a/web/es-es/index.html b/web/es-es/index.html
+index 6394d48..0b69a73 100644
+--- a/web/es-es/index.html
++++ b/web/es-es/index.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)</p>
++        <p>Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div><div class="w3-third " style="position: relative;height:249px">
+@@ -180,9 +183,6 @@
+ </div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-06-07 <a href="https://www.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+-</div><div class="w3-third " style="position: relative;height:249px">
+-  <img class="smallImg" src="https://www.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+- <p>2023-06-06 <a href="https://www.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+     </div>
+     <div class=" w3-margin">
+diff --git a/web/fr-fr/2023-07.html b/web/fr-fr/2023-07.html
+index 3744f6d..6d657cc 100644
+--- a/web/fr-fr/2023-07.html
++++ b/web/fr-fr/2023-07.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper(2023-07)</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)</p>
++        <p>Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+diff --git a/web/fr-fr/index.html b/web/fr-fr/index.html
+index b384612..bd86535 100644
+--- a/web/fr-fr/index.html
++++ b/web/fr-fr/index.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)</p>
++        <p>Aqueduc de Veluwemeer, Pays-Bas (© Frolova_Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_FR-FR9069255217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_FR-FR8876137653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div><div class="w3-third " style="position: relative;height:249px">
+@@ -180,9 +183,6 @@
+ </div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-06-03 <a href="https://www.bing.com/th?id=OHR.SouthKaibabTrail_FR-FR1870154872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+-</div><div class="w3-third " style="position: relative;height:249px">
+-  <img class="smallImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+- <p>2023-06-02 <a href="https://www.bing.com/th?id=OHR.GemsbokNamibia_FR-FR1640230400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+     </div>
+     <div class=" w3-margin">
+diff --git a/web/it-it/2023-07.html b/web/it-it/2023-07.html
+index 0a80029..705e595 100644
+--- a/web/it-it/2023-07.html
++++ b/web/it-it/2023-07.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper(2023-07)</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)</p>
++        <p>Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+diff --git a/web/it-it/index.html b/web/it-it/index.html
+index 72b6260..299438b 100644
+--- a/web/it-it/index.html
++++ b/web/it-it/index.html
+@@ -67,12 +67,12 @@
+ <!-- !PAGE CONTENT! -->
+ <!-- Header -->
+ <header class="w3-display-container w3-content w3-center" style="max-width:100%" height="600">
+-    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=100" width="100%" >
+-    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=1890" width="100%">
++    <img class="w3-image smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=100" width="100%" >
++    <img class="w3-image bigImg" onload="imgloading(this)" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=1890" width="100%">
+     <div class="w3-display-middle w3-padding-large w3-wide w3-text-light-grey w3-center">
+         <h1 class="w3-hide-medium w3-hide-small w3-xxxlarge">Bing Wallpaper</h1>
+         <div class=" w3-padding-large w3-text-light-grey" style="max-width: 800px">
+-        <p>Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)</p>
++        <p>Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)</p>
+         </div>
+         <h5 class="w3-hide-large" style="white-space:nowrap">Bing Wallpaper</h5>
+     </div>
+@@ -94,6 +94,9 @@
+     <!-- First Photo Grid-->
+     <div class="w3-row-padding w3-padding-16 w3-center">
+         <div class="w3-third " style="position: relative;height:249px">
++  <img class="smallImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
++ <p>2023-07-02 <a href="https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
++</div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-07-01 <a href="https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div><div class="w3-third " style="position: relative;height:249px">
+@@ -180,9 +183,6 @@
+ </div><div class="w3-third " style="position: relative;height:249px">
+   <img class="smallImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+  <p>2023-06-03 <a href="https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+-</div><div class="w3-third " style="position: relative;height:249px">
+-  <img class="smallImg" src="https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&pid=hp&w=50"  style="width:95%;" /> <img class="bigImg" src="https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4" style="width:95%" onload="imgloading(this)">
+- <p>2023-06-02 <a href="https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4" target="_blank">Download 4k</a> </p>
+ </div>
+     </div>
+     <div class=" w3-margin">
