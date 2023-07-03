@@ -1,3 +1,6 @@
+bing-wallpaper.md:
+2023-07-03
+
 other/es-es/bing-wallpaper.md:
 2023-06-20
 2023-06-27
