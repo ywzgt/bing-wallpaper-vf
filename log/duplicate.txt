@@ -7,3 +7,6 @@ other/es-es/bing-wallpaper.md:
 2023-06-28
 2023-06-29
 
+other/fr-fr/bing-wallpaper.md:
+2023-07-03
+
