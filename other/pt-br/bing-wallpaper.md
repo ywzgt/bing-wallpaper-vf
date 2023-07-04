@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-05 | [Grasslands National Park, Saskatchewan, Canadá (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_PT-BR8783608554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-04 | [Um coiote em Banff, no Canadá (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.CoyoteBanff_PT-BR7233283124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-03 | [Aqueduto de Veluwemeer, na Holanda (© Frolova_Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_PT-BR6600769834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
