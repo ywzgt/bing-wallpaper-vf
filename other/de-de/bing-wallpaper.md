@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-05 | [Strand von Porto Timoni, Korfu, Griechenland (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_DE-DE3578833784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-04 | [Grasslands-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-04 | [Grassland-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_DE-DE4287828345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

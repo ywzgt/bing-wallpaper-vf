@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-05 | [Plage de Porto Timoni, Corfou, Grèce (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_FR-FR0913715646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-04 | [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_FR-FR0470140705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-03 | [Coyote à Banff, Canada (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.CoyoteBanff_FR-FR4984806037_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
