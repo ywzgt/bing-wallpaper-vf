@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-06 | [Catedral de Santa María la Real, siglo XV, Pamplona, España (© SvetlanaSF/Shutterstock)](https://www.bing.com/th?id=OHR.ComparsaPamplona_ES-ES4789815957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-05 | [Playa de Porto Timoni, Corfú, Grecia (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_ES-ES8128022655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-04 | [Parque Nacional de Grasslands, Saskatchewan, Canadá (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_ES-ES7995297579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
