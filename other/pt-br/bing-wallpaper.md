@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-07 | [Pinguins Rockhopper do Sul, Ilhas Malvinas (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_PT-BR9632546224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-06 | [Praia de Porto Timoni, Corfu, Grécia (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_PT-BR9062903399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-05 | [Grasslands National Park, Saskatchewan, Canadá (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_PT-BR8783608554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
