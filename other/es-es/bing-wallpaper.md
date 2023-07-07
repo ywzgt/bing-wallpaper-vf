@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-07 | [Vainas de cacao de Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_ES-ES1587256646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-06 | [Catedral de Santa María la Real, siglo XV, Pamplona, España (© SvetlanaSF/Shutterstock)](https://www.bing.com/th?id=OHR.ComparsaPamplona_ES-ES4789815957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-05 | [Playa de Porto Timoni, Corfú, Grecia (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_ES-ES8128022655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
