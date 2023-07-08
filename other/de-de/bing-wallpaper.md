@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-08 | [Mildred B. Cooper Gedächtniskapelle, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_DE-DE3457658081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-07 | [Kakaobohnen aus Ambanja, Madagaskar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_DE-DE2913342823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-06 | [Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_DE-DE4462202063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
