@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-09 | [Moselmäander bei Kröv, Deutschland (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_DE-DE4111519220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-08 | [Mildred B. Cooper Gedächtniskapelle, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_DE-DE3457658081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-07 | [Kakaobohnen aus Ambanja, Madagaskar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_DE-DE2913342823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

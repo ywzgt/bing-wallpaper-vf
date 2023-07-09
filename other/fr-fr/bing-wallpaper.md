@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-09 | [Boucle de la Moselle près de Kröv, Allemagne (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_FR-FR3280555983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-08 | [Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)](https://www.bing.com/th?id=OHR.Holidays_FR-FR3009549793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-07 | [Fèves de cacao d'Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_FR-FR2382052379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

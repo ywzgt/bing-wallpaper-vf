@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-09 | [Río Mosela cerca de Kröv, Alemania (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_ES-ES1849044494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-08 | [Capilla conmemorativa Mildred B. Cooper, Bella Vista, Arkansas, EE.UU. (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_ES-ES1705661178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-07 | [Vainas de cacao de Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_ES-ES1587256646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

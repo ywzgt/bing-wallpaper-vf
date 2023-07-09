@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-09 | [Fiume Mosella, villaggio di Kröv, Germania (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_IT-IT6706244041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-08 | [Sirmione, Lago di Garda (© saiko3p/Getty Images)](https://www.bing.com/th?id=OHR.GardaLake_IT-IT6879693178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-07 | [Baccelli di cacao di Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_IT-IT5102977472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
