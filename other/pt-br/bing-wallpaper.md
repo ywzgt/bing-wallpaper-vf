@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-11 | [Campo de lavanda, Somerset, Inglaterra (© Doug Chinnery/Getty Images)](https://www.bing.com/th?id=OHR.SomersetLavender_PT-BR1413116604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-10 | [Circuito do rio Moselle perto de Kröv, Alemanha (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_PT-BR0973965999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-09 | [Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas, EUA (© Eddie Brady/Getty Images)](https://www.bing.com/th?id=OHR.CooperChapel_PT-BR0663109436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
