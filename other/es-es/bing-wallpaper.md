@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-12 | [Lagos de Covadonga, Asturias, España (© Alicia Garcia Benito/Shutterstock)](https://www.bing.com/th?id=OHR.AsturiasCovadonga_ES-ES5405317829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-11 | [Hong Kong RAE, China (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_ES-ES2607091741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-10 | [Campo de lavanda, Somerset, Inglaterra (© Doug Chinnery/Getty Images)](https://www.bing.com/th?id=OHR.SomersetLavender_ES-ES5303782391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
