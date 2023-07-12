@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-13 | [甘粛張掖国家地質公園, 中国 甘粛省 (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_JA-JP7668560160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-12 | [ナクペンダビーチ自然保護区, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_JA-JP7735681361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-11 | [香港特別行政区, 中国 (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_JA-JP7874033348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
