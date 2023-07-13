@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-13 | [Zhangye Danxia-National-Geopark, Gansu, China (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_DE-DE5899519482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-12 | [Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeBavaria_DE-DE6864169933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-11 | [Hongkong SAR (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_DE-DE5116367774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
