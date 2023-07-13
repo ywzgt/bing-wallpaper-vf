@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-14 | [魚群の中に乱舞しているツマグロ, モルディブ (© Filippo Bacci/Getty Images)](https://www.bing.com/th?id=OHR.BlacktipSharks_JA-JP6352446925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-07-13 | [甘粛張掖国家地質公園, 中国 甘粛省 (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_JA-JP7668560160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-07-12 | [ナクペンダビーチ自然保護区, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_JA-JP7735681361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
