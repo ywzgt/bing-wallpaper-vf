@@ -1,521 +1,521 @@
 ## Bing Wallpaper
-2023-12-28 | [Balena megattera, Baia di Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_IT-IT6047849263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-28 | [Balena megattera, Baia di Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_IT-IT6047849263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-27 | [Kirkjufell, penisola di Snæfellsnes, Islanda (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_IT-IT8493036808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-27 | [Kirkjufell, penisola di Snæfellsnes, Islanda (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_IT-IT8493036808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-26 | [Alba invernale a Dedham, Colchester, Inghilterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_IT-IT0476849181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-26 | [Alba invernale a Dedham, Colchester, Inghilterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.BoxingDaySunrise_IT-IT0476849181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-25 | [Caribou che corrono nella neve, Alaska, USA (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_IT-IT1422624453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-25 | [Caribou che corrono nella neve, Alaska, USA (© Michael Quinton/Minden Pictures)](https://www.bing.com/th?id=OHR.CaribouChristmas_IT-IT1422624453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-24 | [Albero di Natale in Piazza del Duomo, Milano (© Marco Bonfanti/Getty Images)](https://www.bing.com/th?id=OHR.MilanXmasTree_IT-IT2035512778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-24 | [Albero di Natale in Piazza del Duomo, Milano (© Marco Bonfanti/Getty Images)](https://www.bing.com/th?id=OHR.MilanXmasTree_IT-IT2035512778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-23 | [Pinguini con mascherina, Isole Sandwich del Sud, Oceano Atlantico Meridionale (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_IT-IT2939175390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-23 | [Pinguini con mascherina, Isole Sandwich del Sud, Oceano Atlantico Meridionale (© Jan Vermeer/Minden Pictures)](https://www.bing.com/th?id=OHR.FestivusPenguins_IT-IT2939175390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-22 | [Cerchio di pietre di Castlerigg, Parco nazionale del Lake District, Inghilterra (© John Finney Photography/Getty Images)](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_IT-IT3335792096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-22 | [Cerchio di pietre di Castlerigg, Parco nazionale del Lake District, Inghilterra (© John Finney Photography/Getty Images)](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_IT-IT3335792096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_IT-IT1809782695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://www.bing.com/th?id=OHR.LjubljanaLights_IT-IT1809782695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-20 | [Villaggio in Val Gardena durante il Natale, Dolomiti, Trentino-Alto Adige (© Ingus Kruklitis/Getty Images)](https://www.bing.com/th?id=OHR.ValGardenaItaly_IT-IT1495340445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-20 | [Villaggio in Val Gardena durante il Natale, Dolomiti, Trentino-Alto Adige (© Ingus Kruklitis/Getty Images)](https://www.bing.com/th?id=OHR.ValGardenaItaly_IT-IT1495340445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-19 | [Albero di Natale nella Piazza del Castello Reale, Varsavia, Polonia (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_IT-IT0745258849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-19 | [Albero di Natale nella Piazza del Castello Reale, Varsavia, Polonia (© Panther Media GmbH/Alamy)](https://www.bing.com/th?id=OHR.WarsawChristmas_IT-IT0745258849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-18 | [Stambecco sotto una forte nevicata, Alpi, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://www.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-18 | [Stambecco sotto una forte nevicata, Alpi, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://www.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-17 | [Due beccofrusoni su un ramo, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_IT-IT8371577177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-17 | [Due beccofrusoni su un ramo, Canada (© Jim Cumming/Shutterstock)](https://www.bing.com/th?id=OHR.WinterWaxwings_IT-IT8371577177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-16 | [Case della corporazione di Grand-Place, Bruxelles, Belgio (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_IT-IT8072178284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-16 | [Case della corporazione di Grand-Place, Bruxelles, Belgio (© Richard Taylor/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.GrandPlaceXmas_IT-IT8072178284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-15 | [SantaPark a Rovaniemi, Lapponia, Finlandia (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_IT-IT7841222687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-15 | [SantaPark a Rovaniemi, Lapponia, Finlandia (© lukutin77/Getty Images)](https://www.bing.com/th?id=OHR.SantaPark_IT-IT7841222687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-14 | [Gufo boreale, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_IT-IT7088650867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-14 | [Gufo boreale, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://www.bing.com/th?id=OHR.BorealOwl_IT-IT7088650867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-13 | [Cabine da pesca tradizionali, Svolvaer, Isole Lofoten, Norvegia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.LofotenRorbu_IT-IT7817886766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-13 | [Cabine da pesca tradizionali, Svolvaer, Isole Lofoten, Norvegia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.LofotenRorbu_IT-IT7817886766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-12 | [Stella rossa di Natale (© Yarygin/Getty Images)](https://www.bing.com/th?id=OHR.Poinsettia_IT-IT8682059998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-12 | [Stella rossa di Natale (© Yarygin/Getty Images)](https://www.bing.com/th?id=OHR.Poinsettia_IT-IT8682059998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-11 | [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-11 | [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://www.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-10 | [Ultimi raggi di sole su un gruppo di dune, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SaharaDunes_IT-IT4256845784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-10 | [Ultimi raggi di sole su un gruppo di dune, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.SaharaDunes_IT-IT4256845784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-09 | [Luci di Natale a Torbole, Trento (© Danny Iacob/Shutterstock)](https://www.bing.com/th?id=OHR.TorboleTrento_IT-IT9651438497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-09 | [Luci di Natale a Torbole, Trento (© Danny Iacob/Shutterstock)](https://www.bing.com/th?id=OHR.TorboleTrento_IT-IT9651438497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-08 | [Porto di La Rocque, St. Clement, Isola di Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.JerseyIsland_IT-IT8142541047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-08 | [Porto di La Rocque, St. Clement, Isola di Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.JerseyIsland_IT-IT8142541047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-07 | [La Gola di Verdon nelle Alpi dell'Alta Provenza, Francia (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_IT-IT8379623747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-07 | [La Gola di Verdon nelle Alpi dell'Alta Provenza, Francia (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_IT-IT8379623747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-06 | [Il Globo della Scienza e dell'Innovazione, Meyrin, Svizzera (© Deyan Baric/Alamy)](https://www.bing.com/th?id=OHR.CERNCenter_IT-IT7703237529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-06 | [Il Globo della Scienza e dell'Innovazione, Meyrin, Svizzera (© Deyan Baric/Alamy)](https://www.bing.com/th?id=OHR.CERNCenter_IT-IT7703237529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-05 | [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-05 | [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-04 | [Una madre ghepardo e i suoi cuccioli nella Riserva Nazionale Masai Mara, Kenya, Africa (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_IT-IT4081105352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-04 | [Una madre ghepardo e i suoi cuccioli nella Riserva Nazionale Masai Mara, Kenya, Africa (© Scott Davis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CheetahDay_IT-IT4081105352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-03 | [Formazioni rocciose di arenaria, Monumento naturale di Vermilion Cliffs, Arizona, Stati Uniti (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_IT-IT1624216981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-03 | [Formazioni rocciose di arenaria, Monumento naturale di Vermilion Cliffs, Arizona, Stati Uniti (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_IT-IT1624216981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-02 | [Porta nord di Angkor Thom, Sito archeologico di Angkor, Cambogia  (© Amazing Travel Lifestyle/Shutterstock)](https://www.bing.com/th?id=OHR.AngkorPark_IT-IT0676131866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-02 | [Porta nord di Angkor Thom, Sito archeologico di Angkor, Cambogia  (© Amazing Travel Lifestyle/Shutterstock)](https://www.bing.com/th?id=OHR.AngkorPark_IT-IT0676131866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-12-01 | [Iceberg, Mare di Ross, Antartide (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-12-01 | [Iceberg, Mare di Ross, Antartide (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-30 | [Lo Storr, un affioramento roccioso sull'Isola di Skye, Scozia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.TrotternishStorr_IT-IT5546138012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-30 | [Lo Storr, un affioramento roccioso sull'Isola di Skye, Scozia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.TrotternishStorr_IT-IT5546138012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-29 | [Albero di Natale del Rockefeller Center, New York, USA (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_IT-IT9195386541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-29 | [Albero di Natale del Rockefeller Center, New York, USA (© Jonathan Orenstein/Getty Images)](https://www.bing.com/th?id=OHR.TreeLighting_IT-IT9195386541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-28 | [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_IT-IT8962065761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-28 | [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://www.bing.com/th?id=OHR.HumanKindness_IT-IT8962065761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-27 | [Río Negro, Bacino amazzonico, Brasile (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_IT-IT8563541659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-27 | [Río Negro, Bacino amazzonico, Brasile (© Timothy Allen/Getty Images)](https://www.bing.com/th?id=OHR.RioNegro_IT-IT8563541659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-26 | [Daini nel Parco di Bradgate, Leicestershire, Inghilterra  (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_IT-IT7620518692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-26 | [Daini nel Parco di Bradgate, Leicestershire, Inghilterra  (© Chris Bainbridge/Alamy)](https://www.bing.com/th?id=OHR.BradgateFallow_IT-IT7620518692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-25 | [Città di Toledo, Spagna (© Carlos Fernandez/Getty Images)](https://www.bing.com/th?id=OHR.TajoRiver_IT-IT6335699453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-25 | [Città di Toledo, Spagna (© Carlos Fernandez/Getty Images)](https://www.bing.com/th?id=OHR.TajoRiver_IT-IT6335699453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-24 | [Sentiero Hall of Mosses nella foresta pluviale di Hoh, Parco Nazionale Olimpico, Washington (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-24 | [Sentiero Hall of Mosses nella foresta pluviale di Hoh, Parco Nazionale Olimpico, Washington (© James Randklev/Getty Images)](https://www.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-23 | [Tramonto al Parco Nazionale del Teide, Tenerife, Isole Canarie, Spagna (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_IT-IT6647681954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-23 | [Tramonto al Parco Nazionale del Teide, Tenerife, Isole Canarie, Spagna (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_IT-IT6647681954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-22 | [Val di Non, Trentino-Alto Adige (© Stefano Springhetti/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiNon_IT-IT6962165513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-22 | [Val di Non, Trentino-Alto Adige (© Stefano Springhetti/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ValdiNon_IT-IT6962165513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-21 | [Pino Loricato sul Monte Pollino, Potenza (© Renzi Tommaso/Getty Images)](https://www.bing.com/th?id=OHR.GiornataAlbero_IT-IT4061721168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-21 | [Pino Loricato sul Monte Pollino, Potenza (© Renzi Tommaso/Getty Images)](https://www.bing.com/th?id=OHR.GiornataAlbero_IT-IT4061721168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-20 | [Parco giochi Chapman Adventure nel Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)](https://www.bing.com/th?id=OHR.ChapmanAdventure_IT-IT1638129617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-20 | [Parco giochi Chapman Adventure nel Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)](https://www.bing.com/th?id=OHR.ChapmanAdventure_IT-IT1638129617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-19 | [Riserva naturale di Alam-Pedja, Estonia (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_IT-IT1429362673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-19 | [Riserva naturale di Alam-Pedja, Estonia (© Sven Zacek/Minden Pictures)](https://www.bing.com/th?id=OHR.FrozenBog_IT-IT1429362673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-18 | [Madre e cuccioli di orso polare, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_IT-IT6547276065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-18 | [Madre e cuccioli di orso polare, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://www.bing.com/th?id=OHR.MilsePolarBear_IT-IT6547276065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-17 | [Fiume Bad nel Parco statale di Copper Falls, Wisconsin, USA (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_IT-IT5930928466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-17 | [Fiume Bad nel Parco statale di Copper Falls, Wisconsin, USA (© Big Joe/Getty Images)](https://www.bing.com/th?id=OHR.BadRiver_IT-IT5930928466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-16 | [Vista sull'Acropoli ateniese, Grecia (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_IT-IT3514656411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-16 | [Vista sull'Acropoli ateniese, Grecia (© Mlenny/Getty Images)](https://www.bing.com/th?id=OHR.AthensAcropolis_IT-IT3514656411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-15 | [La Valle Rapa nel Parco Nazionale di Sarek, Svezia (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_IT-IT3039153178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-15 | [La Valle Rapa nel Parco Nazionale di Sarek, Svezia (© Hans Strand/Getty Images)](https://www.bing.com/th?id=OHR.SarekSweden_IT-IT3039153178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-14 | [Lupini Ibridi Russell lungo il lago Tekapo, Nuova Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_IT-IT2361733458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-14 | [Lupini Ibridi Russell lungo il lago Tekapo, Nuova Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RussellLupines_IT-IT2361733458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-13 | [Antico uliveto nella Serra Tramuntana, Maiorca, Spagna  (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_IT-IT1918983389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-13 | [Antico uliveto nella Serra Tramuntana, Maiorca, Spagna  (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveOrchard_IT-IT1918983389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-12 | [Lampade sulle rive del fiume Sarayu durante il Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliAyodhya_IT-IT1029399441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-12 | [Lampade sulle rive del fiume Sarayu durante il Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliAyodhya_IT-IT1029399441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-11 | [Estate di san Martino nella Val di Funes, Italia (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.ValDiFunes_IT-IT0203212451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-11 | [Estate di san Martino nella Val di Funes, Italia (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.ValDiFunes_IT-IT0203212451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-10 | [Parco nazionale delle Badlands, Sud Dakota, Stati Uniti (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BadlandsSunrise_IT-IT9035430276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-10 | [Parco nazionale delle Badlands, Sud Dakota, Stati Uniti (© Grant Ordelheide/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BadlandsSunrise_IT-IT9035430276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-09 | [Betulle in autunno, Drammen, Norvegia (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_IT-IT3144074333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-09 | [Betulle in autunno, Drammen, Norvegia (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBirch_IT-IT3144074333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-08 | [Madre e figlio di lamantino delle Indie Occidentali, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-08 | [Madre e figlio di lamantino delle Indie Occidentali, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ManateeMama_IT-IT1827292679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-07 | [Laghi di Kirkilai e torre panoramica, Parco Regionale di Biržai, Lituania (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_IT-IT0096866054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-07 | [Laghi di Kirkilai e torre panoramica, Parco Regionale di Biržai, Lituania (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.KirkilaiTower_IT-IT0096866054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-06 | [Lago Pehoé, Parco Nazionale Torres del Paine, Cile (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_IT-IT9495444218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-06 | [Lago Pehoé, Parco Nazionale Torres del Paine, Cile (© OST/Getty Images)](https://www.bing.com/th?id=OHR.LagoPehoe_IT-IT9495444218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-05 | [Formazione di quarzite, Playa del Silencio, Spagna (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_IT-IT5372993928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-05 | [Formazione di quarzite, Playa del Silencio, Spagna (© Jean-Philippe Delobelle/Minden Pictures)](https://www.bing.com/th?id=OHR.SilencioSpain_IT-IT5372993928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-04 | [Bisonte americano, Parco nazionale di Yellowstone, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_IT-IT6079794906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-04 | [Bisonte americano, Parco nazionale di Yellowstone, Wyoming (© Gary Gray/Getty Images)](https://www.bing.com/th?id=OHR.BisonSnow_IT-IT6079794906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-03 | [Foglie di vite nei vigneti del Chianti in Toscana (© Massimo Santi/Getty Images)](https://www.bing.com/th?id=OHR.ChiantiTuscany_IT-IT9257296555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-03 | [Foglie di vite nei vigneti del Chianti in Toscana (© Massimo Santi/Getty Images)](https://www.bing.com/th?id=OHR.ChiantiTuscany_IT-IT9257296555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-02 | [Saline nel bacino di Badwater, Parco Nazionale della Death Valley, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DeathValleySalt_IT-IT9897014974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-02 | [Saline nel bacino di Badwater, Parco Nazionale della Death Valley, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DeathValleySalt_IT-IT9897014974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-11-01 | [Castello di Haut-Barr, Alsazia, Francia (© Andrea Pistolesi/Getty Images)](https://www.bing.com/th?id=OHR.HautBarr_IT-IT9951330243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-11-01 | [Castello di Haut-Barr, Alsazia, Francia (© Andrea Pistolesi/Getty Images)](https://www.bing.com/th?id=OHR.HautBarr_IT-IT9951330243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-31 | [Le lanterne di Halloween in veranda (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenPorchAI_IT-IT0209206965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-31 | [Le lanterne di Halloween in veranda (© Bing Image Creator)](https://www.bing.com/th?id=OHR.HalloweenPorchAI_IT-IT0209206965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-30 | [Corvo comune di vedetta su un ramo (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.AutumnRaven_IT-IT0004951220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-30 | [Corvo comune di vedetta su un ramo (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.AutumnRaven_IT-IT0004951220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-29 | [Langhe, sito UNESCO in Piemonte (© Kelly van Dellen/Getty Images)](https://www.bing.com/th?id=OHR.LangheItaly_IT-IT0113842370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-29 | [Langhe, sito UNESCO in Piemonte (© Kelly van Dellen/Getty Images)](https://www.bing.com/th?id=OHR.LangheItaly_IT-IT0113842370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-28 | [Mulini a vento in Castilla-La Mancha, Spagna (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_IT-IT3588998900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-28 | [Mulini a vento in Castilla-La Mancha, Spagna (© Getty Images)](https://www.bing.com/th?id=OHR.FiveWinds_IT-IT3588998900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-27 | [Il vecchio ponte di Sligachan, Isola di Skye, Scozia (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_IT-IT3352647362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-27 | [Il vecchio ponte di Sligachan, Isola di Skye, Scozia (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OldBridgeSkye_IT-IT3352647362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-26 | [Fogliame autunnale nel parco del Castello di Schönbrunn (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-26 | [Fogliame autunnale nel parco del Castello di Schönbrunn (© rusm/Getty Images)](https://www.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-25 | [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-25 | [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-24 | [Il castello di Füzér nei monti Zemplén, Ungheria (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_IT-IT9605113103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-24 | [Il castello di Füzér nei monti Zemplén, Ungheria (© ZGPhotography/Alamy)](https://www.bing.com/th?id=OHR.FuzerCastle_IT-IT9605113103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-23 | [Isola di San Giorgio Maggiore,Venezia, Italia (© Cihan Bektas/AmazingA)](https://www.bing.com/th?id=OHR.SanGiorgioMaggiore_IT-IT9222946405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-23 | [Isola di San Giorgio Maggiore,Venezia, Italia (© Cihan Bektas/AmazingA)](https://www.bing.com/th?id=OHR.SanGiorgioMaggiore_IT-IT9222946405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-22 | [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-22 | [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://www.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-21 | [Bassorilievi dell'antica città persiana di Persepoli, Iran (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_IT-IT7224171772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-21 | [Bassorilievi dell'antica città persiana di Persepoli, Iran (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.PersepolisRelief_IT-IT7224171772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-20 | [Piccolo di bradipo pigmeo a tre dita, Isola Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.PygmySloth_IT-IT6815817585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-20 | [Piccolo di bradipo pigmeo a tre dita, Isola Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.PygmySloth_IT-IT6815817585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-19 | [Raccolta di ninfee, Delta del fiume Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-19 | [Raccolta di ninfee, Delta del fiume Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://www.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-18 | [Rifugio nazionale della fauna selvatica di Kodiak, Isola di Kodiak, Alaska (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-18 | [Rifugio nazionale della fauna selvatica di Kodiak, Isola di Kodiak, Alaska (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-17 | [Antichi testi scolpiti da Persepoli, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_IT-IT8741983462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-17 | [Antichi testi scolpiti da Persepoli, Iran (© George Hall/Alamy)](https://www.bing.com/th?id=OHR.SpreadsheetDay_IT-IT8741983462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-16 | [Larici dorati e Prusik Peak, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_IT-IT9162658563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-16 | [Larici dorati e Prusik Peak, Washington (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenEnchantments_IT-IT9162658563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-15 | [Riccio europeo che si ripara nella corteccia degli alberi, Sussex (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-15 | [Riccio europeo che si ripara nella corteccia degli alberi, Sussex (© Jules Cox/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-14 | [Eclissi solare anulare "Ring of Fire", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-14 | [Eclissi solare anulare "Ring of Fire", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://www.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-13 | [Perugia, Fontana Maggiore (© Buena Vista Images/Getty Images)](https://www.bing.com/th?id=OHR.PerugiaFountainEurochocolate_IT-IT7296572620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-13 | [Perugia, Fontana Maggiore (© Buena Vista Images/Getty Images)](https://www.bing.com/th?id=OHR.PerugiaFountainEurochocolate_IT-IT7296572620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-12 | [Vecchio fienile e campo di colza, regione di Palouse, Idaho, USA (© Terry Eggers/Getty Images)](https://www.bing.com/th?id=OHR.IdahoBarn_IT-IT0454477337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-12 | [Vecchio fienile e campo di colza, regione di Palouse, Idaho, USA (© Terry Eggers/Getty Images)](https://www.bing.com/th?id=OHR.IdahoBarn_IT-IT0454477337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-11 | [Colline Dipinte nel Monumento Nazionale John Day Fossil Beds, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JohnDayFossil_IT-IT9653915961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-11 | [Colline Dipinte nel Monumento Nazionale John Day Fossil Beds, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JohnDayFossil_IT-IT9653915961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-10 | [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-10 | [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-09 | [Petroglifi  indiani di Fremont, Jensen, Utah, Stati Uniti (© Dan Leeth/Alamy)](https://www.bing.com/th?id=OHR.FremontPetroglyph_IT-IT9013079131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-09 | [Petroglifi  indiani di Fremont, Jensen, Utah, Stati Uniti (© Dan Leeth/Alamy)](https://www.bing.com/th?id=OHR.FremontPetroglyph_IT-IT9013079131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-08 | [La Barcolana, Golfo di Trieste, Italia (© Zakaz86/Getty Images)](https://www.bing.com/th?id=OHR.ItalyTriesteBarcolana_IT-IT2686315925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-08 | [La Barcolana, Golfo di Trieste, Italia (© Zakaz86/Getty Images)](https://www.bing.com/th?id=OHR.ItalyTriesteBarcolana_IT-IT2686315925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-07 | [Orsi bruni che pescano salmoni alle cascate Brooks, Parco nazionale di Katmai, Alaska, Stati Uniti (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_IT-IT0353576964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-07 | [Orsi bruni che pescano salmoni alle cascate Brooks, Parco nazionale di Katmai, Alaska, Stati Uniti (© oksana.perkins/Shutterstock)](https://www.bing.com/th?id=OHR.GrizzlyFalls_IT-IT0353576964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-06 | [Le cascate di Taughannock, New York, Stati Uniti (© Paul Massie Photography/Getty Images)](https://www.bing.com/th?id=OHR.TaughannockFalls_IT-IT9282123928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-06 | [Le cascate di Taughannock, New York, Stati Uniti (© Paul Massie Photography/Getty Images)](https://www.bing.com/th?id=OHR.TaughannockFalls_IT-IT9282123928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-05 | [Pinguini Gentoo, Antartide (© Art Wolfe/Getty Images)](https://www.bing.com/th?id=OHR.GentooJump_IT-IT0819312209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-05 | [Pinguini Gentoo, Antartide (© Art Wolfe/Getty Images)](https://www.bing.com/th?id=OHR.GentooJump_IT-IT0819312209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-04 | [Giovani stelle in formazione nella Nebulosa Tarantola, Telescopio Spaziale James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://www.bing.com/th?id=OHR.TarantulaNebula_IT-IT1696643757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-04 | [Giovani stelle in formazione nella Nebulosa Tarantola, Telescopio Spaziale James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://www.bing.com/th?id=OHR.TarantulaNebula_IT-IT1696643757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-03 | [Spiaggia di Whitehaven, Isole Whitsunday, Queensland, Australia (© Coral Brunner/Shutterstock)](https://www.bing.com/th?id=OHR.WhitsundaySwirl_IT-IT2012760745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-03 | [Spiaggia di Whitehaven, Isole Whitsunday, Queensland, Australia (© Coral Brunner/Shutterstock)](https://www.bing.com/th?id=OHR.WhitsundaySwirl_IT-IT2012760745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-02 | [Fondazione Louis Vuitton al Bois de Boulogne, Parigi (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.VuittonFoundation_IT-IT8425877700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-02 | [Fondazione Louis Vuitton al Bois de Boulogne, Parigi (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.VuittonFoundation_IT-IT8425877700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-10-01 | [Il lago di Bled dal belvedere di Osojnica all'alba, Slovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_IT-IT9781591413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-10-01 | [Il lago di Bled dal belvedere di Osojnica all'alba, Slovenia (© Rasica/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSunrise_IT-IT9781591413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-30 | [Cascate del Dardagna in autunno, Bologna (© Alberto Ghizzi Panizza/Minden)](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_IT-IT7337701837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-30 | [Cascate del Dardagna in autunno, Bologna (© Alberto Ghizzi Panizza/Minden)](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_IT-IT7337701837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-29 | [Torre Jiaxiu sotto la luna piena, Guiyang, provincia di Guizhou, Cina (© Wang Yukun/Getty Images)](https://www.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-29 | [Torre Jiaxiu sotto la luna piena, Guiyang, provincia di Guizhou, Cina (© Wang Yukun/Getty Images)](https://www.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-28 | [Nave da carico presso un porto commerciale in Thailandia (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-28 | [Nave da carico presso un porto commerciale in Thailandia (© Suriyapong Thongsawang/Getty Images)](https://www.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-27 | [Colline del Prosecco di Conegliano e Valdobbiadene, Veneto, Italia (© Olimpio Fantuz/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-27 | [Colline del Prosecco di Conegliano e Valdobbiadene, Veneto, Italia (© Olimpio Fantuz/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-26 | [Parco da skate di Venice Beach, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_IT-IT4628971712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-26 | [Parco da skate di Venice Beach, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.VeniceSkatePark_IT-IT4628971712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-25 | [Lontra marina a Bartlett Cove, Parco Nazionale e riserva di Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GlacierBayOtter_IT-IT3988644980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-25 | [Lontra marina a Bartlett Cove, Parco Nazionale e riserva di Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GlacierBayOtter_IT-IT3988644980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-24 | [Fiume Fraser vicino al Monte Robson, Columbia Britannica, Canada (© phototropic/Getty Images)](https://www.bing.com/th?id=OHR.FraserRiverBC_IT-IT3080206802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-24 | [Fiume Fraser vicino al Monte Robson, Columbia Britannica, Canada (© phototropic/Getty Images)](https://www.bing.com/th?id=OHR.FraserRiverBC_IT-IT3080206802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-23 | [Pioppo e arenaria rossa nel Coyote Gulch, Glen Canyon National Recreation Area, Utah, Stati Uniti (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_IT-IT2280037969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-23 | [Pioppo e arenaria rossa nel Coyote Gulch, Glen Canyon National Recreation Area, Utah, Stati Uniti (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CottonwoodCanyon_IT-IT2280037969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-22 | [Maschi di rinoceronte bianco meridionale, Riserva privata di Shamwari, Sudafrica (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-22 | [Maschi di rinoceronte bianco meridionale, Riserva privata di Shamwari, Sudafrica (© David Silverman/Getty Images)](https://www.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-21 | [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-21 | [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://www.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-20 | [Acquedotto di ispirazione romana, Parco Arkadia, Polonia (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_IT-IT5050525140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-20 | [Acquedotto di ispirazione romana, Parco Arkadia, Polonia (© PATSTOCK/Getty Images)](https://www.bing.com/th?id=OHR.ArkadiaPark_IT-IT5050525140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-19 | [Festa di San Gennaro a Mulberry Street, Little Italy, New York (© Philip Scalia/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-19 | [Festa di San Gennaro a Mulberry Street, Little Italy, New York (© Philip Scalia/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-18 | [Vista della Via Lattea dal Parco Naturale dell'Alentejo, Portogallo (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-18 | [Vista della Via Lattea dal Parco Naturale dell'Alentejo, Portogallo (© Daniel Garrido/Getty Images)](https://www.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-17 | [Parapendio che sorvola le Dolomiti, visto dal Sass Pordoi (© Ilan Shacham/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesParaglider_IT-IT3096263531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-17 | [Parapendio che sorvola le Dolomiti, visto dal Sass Pordoi (© Ilan Shacham/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesParaglider_IT-IT3096263531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-16 | [Passo dello Spluga, Svizzera (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_IT-IT3581326681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-16 | [Passo dello Spluga, Svizzera (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.SplugenPass_IT-IT3581326681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-15 | [Tramonto nel parco forestale di Glenariff, contea di Antrim, Irlanda (© Peter Zelei/Getty Images)](https://www.bing.com/th?id=OHR.GlenariffForest_IT-IT2978733344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-15 | [Tramonto nel parco forestale di Glenariff, contea di Antrim, Irlanda (© Peter Zelei/Getty Images)](https://www.bing.com/th?id=OHR.GlenariffForest_IT-IT2978733344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-14 | [Cavalli di Przewalski, Parco nazionale di Hustai, Mongolia (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_IT-IT8693610029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-14 | [Cavalli di Przewalski, Parco nazionale di Hustai, Mongolia (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaHorses_IT-IT8693610029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-13 | [Templi sulla collina di Hemakuta, Hampi, Karnataka, India (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_IT-IT1160628582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-13 | [Templi sulla collina di Hemakuta, Hampi, Karnataka, India (© Images of india/Alamy)](https://www.bing.com/th?id=OHR.HemakutaHill_IT-IT1160628582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-12 | [Mare del Nord al tramonto, Norddorf, Isola di Amrum, Germania (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_IT-IT7467715287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-12 | [Mare del Nord al tramonto, Norddorf, Isola di Amrum, Germania (© Frederick Doerschem/Getty Images)](https://www.bing.com/th?id=OHR.NorthSeaStairs_IT-IT7467715287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-11 | [L’alba sui vigneti di Bordeaux, France (© Esperanza33/Getty Images)](https://www.bing.com/th?id=OHR.MarathonMedoc_IT-IT6196597856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-11 | [L’alba sui vigneti di Bordeaux, France (© Esperanza33/Getty Images)](https://www.bing.com/th?id=OHR.MarathonMedoc_IT-IT6196597856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-10 | [Coppia di trichechi nelle Svalbard, Norvegia (© Mark Smith/Getty Images)](https://www.bing.com/th?id=OHR.WalrusSvalbard_IT-IT3284663825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-10 | [Coppia di trichechi nelle Svalbard, Norvegia (© Mark Smith/Getty Images)](https://www.bing.com/th?id=OHR.WalrusSvalbard_IT-IT3284663825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-09 | [Tempio di Wat Chaiwatthanaram, Parco storico di Ayutthaya, Thailandia  (© Weerasak Saeku/Getty Images)](https://www.bing.com/th?id=OHR.AyutthayaTemple_IT-IT2272597242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-09 | [Tempio di Wat Chaiwatthanaram, Parco storico di Ayutthaya, Thailandia  (© Weerasak Saeku/Getty Images)](https://www.bing.com/th?id=OHR.AyutthayaTemple_IT-IT2272597242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-08 | [Le case a schiera del Circus a Bath, Somerset, Inghilterra (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.BathCircus_IT-IT9829288820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-08 | [Le case a schiera del Circus a Bath, Somerset, Inghilterra (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.BathCircus_IT-IT9829288820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-07 | [Cammelli nel deserto, Emirati Arabi Uniti  (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CamelsAbove_IT-IT6972066019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-07 | [Cammelli nel deserto, Emirati Arabi Uniti  (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CamelsAbove_IT-IT6972066019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-06 | [Vecchio porto veneziano, Retimo, Creta, Grecia (© Gatsi/Getty Images)](https://www.bing.com/th?id=OHR.CreteHarbor_IT-IT6052319754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-06 | [Vecchio porto veneziano, Retimo, Creta, Grecia (© Gatsi/Getty Images)](https://www.bing.com/th?id=OHR.CreteHarbor_IT-IT6052319754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-05 | [Monte Segla, Isola di Senja, Troms og Finnmark, Norvegia (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_IT-IT4869636525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-05 | [Monte Segla, Isola di Senja, Troms og Finnmark, Norvegia (© imageBROKER/Moritz Wolf/Getty Images)](https://www.bing.com/th?id=OHR.MountSegla_IT-IT4869636525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-04 | [Paludi di Bourges, Francia  (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.BourgesMarsh_IT-IT3651136733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-04 | [Paludi di Bourges, Francia  (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.BourgesMarsh_IT-IT3651136733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-03 | [Regata Storica di Venezia, Venezia, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.HistoricalRegatta_IT-IT6174180890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-03 | [Regata Storica di Venezia, Venezia, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.HistoricalRegatta_IT-IT6174180890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-02 | [Colibrì di Allen, Santa Cruz, California, USA (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_IT-IT0334846745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-02 | [Colibrì di Allen, Santa Cruz, California, USA (© mallardg500/Getty Images)](https://www.bing.com/th?id=OHR.TinyHummer_IT-IT0334846745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-09-01 | [Fungo Trametes versicolor, Brevard, North Carolina, Stati Uniti (© Bill Gozansky/Alamy)](https://www.bing.com/th?id=OHR.TurkeyTailMush_IT-IT6836911122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-09-01 | [Fungo Trametes versicolor, Brevard, North Carolina, Stati Uniti (© Bill Gozansky/Alamy)](https://www.bing.com/th?id=OHR.TurkeyTailMush_IT-IT6836911122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-31 | [Cactus Saguaro, Monumento Nazionale di Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-31 | [Cactus Saguaro, Monumento Nazionale di Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-30 | [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-30 | [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://www.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-29 | [Lago Crescent a Dunhuang, provincia di Gansu, Cina (© R7 Photo/Shutterstock)](https://www.bing.com/th?id=OHR.CrescentLake_IT-IT9118936365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-29 | [Lago Crescent a Dunhuang, provincia di Gansu, Cina (© R7 Photo/Shutterstock)](https://www.bing.com/th?id=OHR.CrescentLake_IT-IT9118936365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-28 | [Forte Lovrijenac, porto occidentale, Dubrovnik, Croazia (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_IT-IT2167312556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-28 | [Forte Lovrijenac, porto occidentale, Dubrovnik, Croazia (© Benny Marty/Shutterstock)](https://www.bing.com/th?id=OHR.DubrovnikHarbor_IT-IT2167312556_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-27 | [Veduta della città di Ragusa Ibla, città patrimonio dell'UNESCO (© DaLiu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RagusaIbla_IT-IT6191963185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-27 | [Veduta della città di Ragusa Ibla, città patrimonio dell'UNESCO (© DaLiu/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RagusaIbla_IT-IT6191963185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-26 | [Cattedrale di Berlino e Isola dei Musei, Berlino (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_IT-IT1593981985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-26 | [Cattedrale di Berlino e Isola dei Musei, Berlino (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_IT-IT1593981985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-25 | [Cascate di Yellowstone inferiori, Parco Nazionale di Yellowstone, Wyoming (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.YellowstoneFalls_IT-IT0133423333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-25 | [Cascate di Yellowstone inferiori, Parco Nazionale di Yellowstone, Wyoming (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.YellowstoneFalls_IT-IT0133423333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-24 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SharkFinCove_IT-IT2584929275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-24 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SharkFinCove_IT-IT2584929275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-23 | [Cascata di Skógafoss, Islanda (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_IT-IT4739675900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-23 | [Cascata di Skógafoss, Islanda (© Maridav/Shutterstock)](https://www.bing.com/th?id=OHR.SkogafossWaterfall_IT-IT4739675900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-22 | [Anfiteatro di El Jem, Tunisia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_IT-IT5133645566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-22 | [Anfiteatro di El Jem, Tunisia (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_IT-IT5133645566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-21 | [Lago Emerald, South Klondike Highway, Canada (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_IT-IT7373029287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-21 | [Lago Emerald, South Klondike Highway, Canada (© artherng/Getty Images)](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_IT-IT7373029287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-20 | [Faro di Start Point, South Devon, Inghilterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-20 | [Faro di Start Point, South Devon, Inghilterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-19 | [Scoiattolo che guarda nell'obiettivo di una macchina fotografica (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_IT-IT9208434870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-19 | [Scoiattolo che guarda nell'obiettivo di una macchina fotografica (© Alfredo Piedrafita/Getty Images)](https://www.bing.com/th?id=OHR.CameraSquirrel_IT-IT9208434870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-18 | ['Montagne di Avatar ', Parco forestale nazionale Zhangjiajie, Cina (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-18 | ['Montagne di Avatar ', Parco forestale nazionale Zhangjiajie, Cina (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-17 | [Vista aerea di Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_IT-IT8257270083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-17 | [Vista aerea di Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://www.bing.com/th?id=OHR.ManhattanAerial_IT-IT8257270083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-16 | [Seven Mile Bridge di Key West, Florida, Stati Uniti (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-16 | [Seven Mile Bridge di Key West, Florida, Stati Uniti (© Evgeny Vasenev/Cavan Images)](https://www.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-15 | [La Maddalena, Cala Coticcio, Sardegna, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-15 | [La Maddalena, Cala Coticcio, Sardegna, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-14 | [Piccolo geco su una foglia  (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_IT-IT8317437276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-14 | [Piccolo geco su una foglia  (© Darren Greenwood/Alamy)](https://www.bing.com/th?id=OHR.GeckoLeaf_IT-IT8317437276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-13 | [Pioggia delle Perseidi, Parco nazionale di Cottonwood Canyon, Oregon, Stati Uniti (© Joshua Meador/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PerseidsOregon_IT-IT7659438199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-13 | [Pioggia delle Perseidi, Parco nazionale di Cottonwood Canyon, Oregon, Stati Uniti (© Joshua Meador/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PerseidsOregon_IT-IT7659438199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-12 | [Una famiglia di elefanti presso il Parco nazionale di Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ThreeElephants_IT-IT7027027610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-12 | [Una famiglia di elefanti presso il Parco nazionale di Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ThreeElephants_IT-IT7027027610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-11 | [Saline al tramonto, Marsala (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.MarsalaSalt_IT-IT4114634251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-11 | [Saline al tramonto, Marsala (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.MarsalaSalt_IT-IT4114634251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-10 | [Notte di San Lorenzo (© Francesco De Marco/Shutterstock)](https://www.bing.com/th?id=OHR.SanLorenzo_IT-IT6813005251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-10 | [Notte di San Lorenzo (© Francesco De Marco/Shutterstock)](https://www.bing.com/th?id=OHR.SanLorenzo_IT-IT6813005251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-09 | [Opera d'arte indigena, Centro d'arte Ngaruwanajirri (© Robert Wyatt/Alamy)](https://www.bing.com/th?id=OHR.BathurstArt_IT-IT6904548782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-09 | [Opera d'arte indigena, Centro d'arte Ngaruwanajirri (© Robert Wyatt/Alamy)](https://www.bing.com/th?id=OHR.BathurstArt_IT-IT6904548782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-08 | [Autostrade a Taipei, Taiwan (© Tavarius/Shutterstock)](https://www.bing.com/th?id=OHR.InfinityTaipei_IT-IT6968967057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-08 | [Autostrade a Taipei, Taiwan (© Tavarius/Shutterstock)](https://www.bing.com/th?id=OHR.InfinityTaipei_IT-IT6968967057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-07 | [Faro di Bodie Island, Nags Head, Carolina del Nord (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_IT-IT7342146060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-07 | [Faro di Bodie Island, Nags Head, Carolina del Nord (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.BodieNC_IT-IT7342146060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-06 | [Kagami-ike (stagno degli specchi), Nagano, Giappone (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_IT-IT2333262550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-06 | [Kagami-ike (stagno degli specchi), Nagano, Giappone (© Shoji Fujita/Getty Images)](https://www.bing.com/th?id=OHR.NaganoPond_IT-IT2333262550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-05 | [Pulcinella di mare, Islanda (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_IT-IT2092454905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-05 | [Pulcinella di mare, Islanda (© Peter Hering/Minden Pictures)](https://www.bing.com/th?id=OHR.AtlanticPuffin_IT-IT2092454905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-04 | [Abbazia di Tintern, Galles (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_IT-IT1962956673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-04 | [Abbazia di Tintern, Galles (© matthibcn/Getty Images)](https://www.bing.com/th?id=OHR.GothicRuins_IT-IT1962956673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-03 | [Riserva naturale di Zelenci, Slovenia (© Andrey Danilovich/Getty Images)](https://www.bing.com/th?id=OHR.ZelenciSprings_IT-IT8957946104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-03 | [Riserva naturale di Zelenci, Slovenia (© Andrey Danilovich/Getty Images)](https://www.bing.com/th?id=OHR.ZelenciSprings_IT-IT8957946104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-02 | [“Sandstone butte” nel Parco nazionale di Capitol Reef, Utah, USA (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CapitolButte_IT-IT7118088520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-02 | [“Sandstone butte” nel Parco nazionale di Capitol Reef, Utah, USA (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.CapitolButte_IT-IT7118088520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-08-01 | [Il Monte Foraker visto da Denali, Parco Nazionale di Denali, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DenaliClimber_IT-IT5864283089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-08-01 | [Il Monte Foraker visto da Denali, Parco Nazionale di Denali, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.DenaliClimber_IT-IT5864283089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-31 | [Casa nella roccia, Parco nazionale di Hocking Hills, Ohio  (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-31 | [Casa nella roccia, Parco nazionale di Hocking Hills, Ohio  (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-30 | [Terreni agricoli nel Palouse, Washington, Stati Uniti (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-30 | [Terreni agricoli nel Palouse, Washington, Stati Uniti (© EJ-J/Getty Images)](https://www.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-29 | [Tigre del Bengala, Parco nazionale di Ranthambore, India (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.TigerIndia_IT-IT4957354565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-29 | [Tigre del Bengala, Parco nazionale di Ranthambore, India (© Andy Rouse/Minden Pictures)](https://www.bing.com/th?id=OHR.TigerIndia_IT-IT4957354565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-28 | [Faraglione Pan di Zucchero, Sardegna, Italia (© DaLiu/Getty Images)](https://www.bing.com/th?id=OHR.PandiZucchero_IT-IT1428407618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-28 | [Faraglione Pan di Zucchero, Sardegna, Italia (© DaLiu/Getty Images)](https://www.bing.com/th?id=OHR.PandiZucchero_IT-IT1428407618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-27 | [Arco di Trionfo del Carrousel e Piramide del Louvre, Parigi (© Jon Hicks/Getty Images)](https://www.bing.com/th?id=OHR.ParisLouvre_IT-IT4671492105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-27 | [Arco di Trionfo del Carrousel e Piramide del Louvre, Parigi (© Jon Hicks/Getty Images)](https://www.bing.com/th?id=OHR.ParisLouvre_IT-IT4671492105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-26 | [Parco delle mangrovie di Jubail ad Abu Dhabi, Emirati Arabi Uniti (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MangrovePark_IT-IT4772428064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-26 | [Parco delle mangrovie di Jubail ad Abu Dhabi, Emirati Arabi Uniti (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MangrovePark_IT-IT4772428064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-25 | [Laguna di Torrevieja, Alicante, Spagna (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.LasLagunas_IT-IT4823734746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-25 | [Laguna di Torrevieja, Alicante, Spagna (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.LasLagunas_IT-IT4823734746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-24 | [Zebre nel Parco Nazionale Tarangire, Tanzania (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.ZebraCousins_IT-IT4929634782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-24 | [Zebre nel Parco Nazionale Tarangire, Tanzania (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.ZebraCousins_IT-IT4929634782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-23 | [Tenuta del tè di Edimburgo, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_IT-IT5131350973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-23 | [Tenuta del tè di Edimburgo, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.TeaEstate_IT-IT5131350973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-22 | [Polignano a Mare, Puglia (© Sky_Blue/Getty Images)](https://www.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-22 | [Polignano a Mare, Puglia (© Sky_Blue/Getty Images)](https://www.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-21 | [Ponte di Storseisundet, Strada dell'Oceano Atlantico, Norvegia (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_IT-IT5538215979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-21 | [Ponte di Storseisundet, Strada dell'Oceano Atlantico, Norvegia (© Morten Falch Sortland/Getty Images)](https://www.bing.com/th?id=OHR.BridgeNorway_IT-IT5538215979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-20 | [La luna vista dalla navicella Orion della missione Artemis della NASA (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-20 | [La luna vista dalla navicella Orion della missione Artemis della NASA (© NASA)](https://www.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-19 | [Duomo di San Pietro, Modica, Italia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.DuomoModica_IT-IT4321167712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-19 | [Duomo di San Pietro, Modica, Italia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.DuomoModica_IT-IT4321167712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-18 | [Grande bucero, Parco nazionale di Khao Yai, Thailandia (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_IT-IT3646182612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-18 | [Grande bucero, Parco nazionale di Khao Yai, Thailandia (© kajornyot wildlife photography/Shutterstock)](https://www.bing.com/th?id=OHR.BucerosBicornis_IT-IT3646182612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-17 | [Castello di Cloughoughter a Lough Oughter, Contea di Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_IT-IT1212756093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-17 | [Castello di Cloughoughter a Lough Oughter, Contea di Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://www.bing.com/th?id=OHR.CavanCastle_IT-IT1212756093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-16 | [Bear Hole Brook, Monti Catskill, New York, Stati Uniti  (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_IT-IT6529030811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-16 | [Bear Hole Brook, Monti Catskill, New York, Stati Uniti  (© GummyBone/Getty Images)](https://www.bing.com/th?id=OHR.BearHoleBrook_IT-IT6529030811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-15 | [Castelmezzano, Basilicata, Italia (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.CastelmazzanoSunrise_IT-IT5391321297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-15 | [Castelmezzano, Basilicata, Italia (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.CastelmazzanoSunrise_IT-IT5391321297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-14 | [Squali pinna nera della barriera corallina, Maldive (© Filippo Bacci/Getty Images)](https://www.bing.com/th?id=OHR.BlacktipSharks_IT-IT3592191686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-14 | [Squali pinna nera della barriera corallina, Maldive (© Filippo Bacci/Getty Images)](https://www.bing.com/th?id=OHR.BlacktipSharks_IT-IT3592191686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-13 | [Parco Nazionale di Zhangye Danxia, Gansu, Cina (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_IT-IT0499587285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-13 | [Parco Nazionale di Zhangye Danxia, Gansu, Cina (© TONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.ZhangyeGeopark_IT-IT0499587285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-12 | [Bar sulla sabbia nella Riserva Naturale di Nakupenda Beach, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-12 | [Bar sulla sabbia nella Riserva Naturale di Nakupenda Beach, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-11 | [Hong Kong (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_IT-IT9604532087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-11 | [Hong Kong (© leungchopan/Getty Images)](https://www.bing.com/th?id=OHR.WorldPopDay_IT-IT9604532087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-10 | [Campo di lavanda, Somerset, Inghilterra (© Doug Chinnery/Getty Images)](https://www.bing.com/th?id=OHR.SomersetLavender_IT-IT8631560565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-10 | [Campo di lavanda, Somerset, Inghilterra (© Doug Chinnery/Getty Images)](https://www.bing.com/th?id=OHR.SomersetLavender_IT-IT8631560565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-09 | [Fiume Mosella, villaggio di Kröv, Germania (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_IT-IT6706244041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-09 | [Fiume Mosella, villaggio di Kröv, Germania (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.MoselleRiver_IT-IT6706244041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-08 | [Sirmione, Lago di Garda (© saiko3p/Getty Images)](https://www.bing.com/th?id=OHR.GardaLake_IT-IT6879693178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-08 | [Sirmione, Lago di Garda (© saiko3p/Getty Images)](https://www.bing.com/th?id=OHR.GardaLake_IT-IT6879693178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-07 | [Baccelli di cacao di Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_IT-IT5102977472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-07 | [Baccelli di cacao di Ambanja, Madagascar (© pierivb/Getty Images)](https://www.bing.com/th?id=OHR.CocoaPods_IT-IT5102977472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-06 | [Pinguini rockhopper meridionali, Isole Falkland (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_IT-IT4154575174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-06 | [Pinguini rockhopper meridionali, Isole Falkland (© Tony Beck/Getty Images)](https://www.bing.com/th?id=OHR.KissingPenguins_IT-IT4154575174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-05 | [Spiaggia di Porto Timoni a Corfù, Grecia (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_IT-IT3660908629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-05 | [Spiaggia di Porto Timoni a Corfù, Grecia (© nantonov/Getty Images)](https://www.bing.com/th?id=OHR.CorfuBeach_IT-IT3660908629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-04 | [Parco nazionale delle Grasslands, Saskatchewan, Canada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_IT-IT3302807559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-04 | [Parco nazionale delle Grasslands, Saskatchewan, Canada (© Robert Postma/Getty Images)](https://www.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_IT-IT3302807559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-03 | [Un coyote a Banff, Canada (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.CoyoteBanff_IT-IT2529436922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-03 | [Un coyote a Banff, Canada (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.CoyoteBanff_IT-IT2529436922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-02 | [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-02 | [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://www.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-07-01 | [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-07-01 | [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://www.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-30 | [Lago di Braies, Bolzano (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-30 | [Lago di Braies, Bolzano (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-29 | [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-29 | [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-28 | [Bandiere e coriandoli arcobaleno, Reykjavík, Islanda (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-28 | [Bandiere e coriandoli arcobaleno, Reykjavík, Islanda (© Arctic-Images/Getty Images)](https://www.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-27 | [Sedona, Arizona, USA (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-27 | [Sedona, Arizona, USA (© Jonathan Ross/Getty Images)](https://www.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-26 | [Castello di Villandry e giardino, Valle della Loira, Francia (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-26 | [Castello di Villandry e giardino, Valle della Loira, Francia (© VLADJ55/Shutterstock)](https://www.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-25 | [Il Tesoro, Petra, Giornadia (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-25 | [Il Tesoro, Petra, Giornadia (© WitthayaP/Shutterstock)](https://www.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-24 | [Baia di Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-24 | [Baia di Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-23 | [Le farfalle monarca si nutrono di fiori selvatici (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-23 | [Le farfalle monarca si nutrono di fiori selvatici (© bookguy/Getty Images)](https://www.bing.com/th?id=OHR.PollinatorMonarch_IT-IT6949124466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-22 | [L'Amazzonia peruviana, Perù (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-22 | [L'Amazzonia peruviana, Perù (© Rhett Ayers Butler/Getty Images)](https://www.bing.com/th?id=OHR.PeruAmazon_IT-IT9169623612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-21 | [Stonehenge, Pianura di Salisbury, Wiltshire, Inghilterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-21 | [Stonehenge, Pianura di Salisbury, Wiltshire, Inghilterra (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.StonehengeSalisbury_IT-IT8579898357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-20 | [Aquila di mare testabianca, Foresta Nazionale di Tongass, Alaska (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-20 | [Aquila di mare testabianca, Foresta Nazionale di Tongass, Alaska (© Jaynes Gallery/Shutterstock)](https://www.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-19 | [Piccolo di capriolo che corre sull'erba in Normandia, Francia (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-19 | [Piccolo di capriolo che corre sull'erba in Normandia, Francia (© Gerard Lacz/Minden)](https://www.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-18 | [Vista di Roma da Castel Sant’Angelo, Roma, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-18 | [Vista di Roma da Castel Sant’Angelo, Roma, Italia (© Getty Images)](https://www.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-17 | [Il “Pagaiare per l'unità” di San Diego, California, USA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-17 | [Il “Pagaiare per l'unità” di San Diego, California, USA  (© Brandon Colbert Photography/Getty Images)](https://www.bing.com/th?id=OHR.SurfSanDiego_IT-IT5610851115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-16 | [Una tartaruga embricata che nuota vicino ad Akajima, Okinawa, Giappone (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-16 | [Una tartaruga embricata che nuota vicino ad Akajima, Okinawa, Giappone (© Robert Mallon/Getty Images)](https://www.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-15 | [Lucciole sincrone, Parco Nazionale delle Great Smoky Mountains, Tennessee, Stati Uniti (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-15 | [Lucciole sincrone, Parco Nazionale delle Great Smoky Mountains, Tennessee, Stati Uniti (© Floris Van Bruegel/Minden Pictures)](https://www.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-14 | [La città di Passavia riflessa nel Danubio, Baviera, Germania (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-14 | [La città di Passavia riflessa nel Danubio, Baviera, Germania (© Scott Wilson/Alamy)](https://www.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-13 | [Castelluccio, Parco nazionale dei Monti Sibillini, Italia (© Stefano Termanini/Getty Images)](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-13 | [Castelluccio, Parco nazionale dei Monti Sibillini, Italia (© Stefano Termanini/Getty Images)](https://www.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-12 | [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-12 | [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-11 | [Airone golia, Parco nazionale di Kruger, Sudafrica (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-11 | [Airone golia, Parco nazionale di Kruger, Sudafrica (© Johan Swanepoel/Alamy)](https://www.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-10 | [La Cattedrale di Porto, Portogallo (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-10 | [La Cattedrale di Porto, Portogallo (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-09 | [Mongolfiere in Cappadocia, Turchia  (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-09 | [Mongolfiere in Cappadocia, Turchia  (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.BalloonsTurkey_IT-IT6131651809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-08 | [La megattera (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-08 | [La megattera (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-07 | [Pueblo Bonito, Parco nazionale storico della cultura Chaco , Nuovo Messico, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-07 | [Pueblo Bonito, Parco nazionale storico della cultura Chaco , Nuovo Messico, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-06 | [Le falesie di Etretat, Normandia, Francia (© MarcelloLand/Getty Images)](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-06 | [Le falesie di Etretat, Normandia, Francia (© MarcelloLand/Getty Images)](https://www.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-05 | [Installazione artistica "Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, Stati Uniti (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-05 | [Installazione artistica "Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, Stati Uniti (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.PlasticParrotfish_IT-IT8230571535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-04 | [Spiaggia di sabbia nera del Wai'anapanapa State Park, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-04 | [Spiaggia di sabbia nera del Wai'anapanapa State Park, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.MauiBeach_IT-IT7525014716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-03 | [Sentiero South Kaibab nel Parco Nazionale del Grand Canyon, Arizona, Stati Uniti (© Roman Khomlyak/Getty Images)](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-03 | [Sentiero South Kaibab nel Parco Nazionale del Grand Canyon, Arizona, Stati Uniti (© Roman Khomlyak/Getty Images)](https://www.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-02 | [Festa della Repubblica Italiana, Roma, Italia (© Kiparisas/Shutterstock)](https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-02 | [Festa della Repubblica Italiana, Roma, Italia (© Kiparisas/Shutterstock)](https://www.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-06-01 | [Immagine aerea della Grande barriera corallina, Australia (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-06-01 | [Immagine aerea della Grande barriera corallina, Australia (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-31 | [Cucciolo di lontra marina, Prince William Sound, Alaska  (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-31 | [Cucciolo di lontra marina, Prince William Sound, Alaska  (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-30 | [Playa del Amor, Isole Marietas, Puerto Vallarta, Messico  (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-30 | [Playa del Amor, Isole Marietas, Puerto Vallarta, Messico  (© ferrantraite/Getty Images)](https://www.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-29 | [Grand Cul-de-Sac Marin, Parco Nazionale della Guadalupa, Piccole Antille  (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_IT-IT7910228854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-29 | [Grand Cul-de-Sac Marin, Parco Nazionale della Guadalupa, Piccole Antille  (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.Antilles_IT-IT7910228854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-28 | [Fattorie a terrazza di Tegallalang a Ubud, Indonesia  (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_IT-IT1569351575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-28 | [Fattorie a terrazza di Tegallalang a Ubud, Indonesia  (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.TegallalangTerrace_IT-IT1569351575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-27 | [La vita delle piante in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_IT-IT2593431941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-27 | [La vita delle piante in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.AloeDichotomum_IT-IT2593431941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-26 | [Vernazza, Cinque Terre, Italia (© Rubin Versigny/Getty Images)](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_IT-IT2256387382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-26 | [Vernazza, Cinque Terre, Italia (© Rubin Versigny/Getty Images)](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_IT-IT2256387382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-25 | [Pozzo del Papa scala e finestra a doppia elica, Orvieto (© Ben Robson Hull Photography/Getty Images)](https://www.bing.com/th?id=OHR.OrvietoWell_IT-IT7164285597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-25 | [Pozzo del Papa scala e finestra a doppia elica, Orvieto (© Ben Robson Hull Photography/Getty Images)](https://www.bing.com/th?id=OHR.OrvietoWell_IT-IT7164285597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-24 | [L'antica fortezza di Corfù, Grecia (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-24 | [L'antica fortezza di Corfù, Grecia (© Netfalls Remy Musser/Shutterstock)](https://www.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-23 | [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-23 | [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-22 | [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-22 | [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://www.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-21 | [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-21 | [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-20 | [Api europee a Sheffield, Inghilterra (© Deborah Vernon/Alamy)](https://www.bing.com/th?id=OHR.EuropeanHoneybee_IT-IT9793007364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-20 | [Api europee a Sheffield, Inghilterra (© Deborah Vernon/Alamy)](https://www.bing.com/th?id=OHR.EuropeanHoneybee_IT-IT9793007364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-19 | [Rinoceronte di Sumatra, Parco nazionale di Way Kambas, Indonesia (© Cyril Ruoso/Minden Pictures)](https://www.bing.com/th?id=OHR.SumatranRhino_IT-IT9282232501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-19 | [Rinoceronte di Sumatra, Parco nazionale di Way Kambas, Indonesia (© Cyril Ruoso/Minden Pictures)](https://www.bing.com/th?id=OHR.SumatranRhino_IT-IT9282232501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-18 | [Edificio di Plaza Carso, Museo Soumay, Città del Messico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-18 | [Edificio di Plaza Carso, Museo Soumay, Città del Messico (© Juan Romero/Alamy)](https://www.bing.com/th?id=OHR.MuseoSoumaya_IT-IT1686511851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-17 | [Parco statale dei Ponti Naturali a Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-17 | [Parco statale dei Ponti Naturali a Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-16 | [Pagaiare in canoa nell'Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_IT-IT8776833543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-16 | [Pagaiare in canoa nell'Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AmericanWetlands_IT-IT8776833543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-15 | [Morro Jable e Playa del Matorral, Fuerteventura, Isole Canarie (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_IT-IT8361270560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-15 | [Morro Jable e Playa del Matorral, Fuerteventura, Isole Canarie (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.MorroJable_IT-IT8361270560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-14 | [Cervo dalla coda bianca e cerbiatto appena nato, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_IT-IT8168130990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-14 | [Cervo dalla coda bianca e cerbiatto appena nato, Montana (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.OdocoileusVirginianus_IT-IT8168130990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-13 | [Pellicani al Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_IT-IT7971350601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-13 | [Pellicani al Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)](https://www.bing.com/th?id=OHR.SonnyBonoPelicans_IT-IT7971350601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-12 | [Lupino selvatico viola e blu (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_IT-IT7783064723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-12 | [Lupino selvatico viola e blu (© silverjohn/Getty Images Plus)](https://www.bing.com/th?id=OHR.WildLupine_IT-IT7783064723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-11 | [Uliveto con vista sulla valle, Bevagna (© David Noton Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Bevagna_IT-IT7498659443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-11 | [Uliveto con vista sulla valle, Bevagna (© David Noton Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Bevagna_IT-IT7498659443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-10 | [Faro di Cordouan, Royan, Charente, Francia (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_IT-IT6579555278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-10 | [Faro di Cordouan, Royan, Charente, Francia (© FRTimelapse/Getty Images)](https://www.bing.com/th?id=OHR.CordouanLighthouse_IT-IT6579555278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-09 | [Rovine di Pompei, Campania (© Massimo Ripani/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-09 | [Rovine di Pompei, Campania (© Massimo Ripani/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-08 | [Arco Fragile, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://www.bing.com/th?id=OHR.TheChaps_IT-IT7027496709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-08 | [Arco Fragile, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://www.bing.com/th?id=OHR.TheChaps_IT-IT7027496709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-07 | [Cucciolo di foca, isola di Lundy, Inghilterra (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-07 | [Cucciolo di foca, isola di Lundy, Inghilterra (© Henley Spiers/Minden Pictures)](https://www.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-06 | [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-06 | [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://www.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-05 | [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-05 | [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://www.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-04 | [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-04 | [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://www.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-03 | [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-03 | [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://www.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-02 | [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-02 | [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://www.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-05-01 | [Ponte del Quebec sul fiume San Lorenzo, Canada  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-05-01 | [Ponte del Quebec sul fiume San Lorenzo, Canada  (© Ronald Santerre/Getty Images)](https://www.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-30 | [Preservation Hall, New Orleans, Louisiana, Stati Uniti (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_IT-IT1147958461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-30 | [Preservation Hall, New Orleans, Louisiana, Stati Uniti (© Cosmo Condina North America/Alamy)](https://www.bing.com/th?id=OHR.ExteriorPreservationHall_IT-IT1147958461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-29 | [La Via Lattea vista dal Parco Nazionale di Joshua Tree, California, Stati Uniti (© Schroptschop/Getty Images)](https://www.bing.com/th?id=OHR.JTNPMilkyWay_IT-IT0241234588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-29 | [La Via Lattea vista dal Parco Nazionale di Joshua Tree, California, Stati Uniti (© Schroptschop/Getty Images)](https://www.bing.com/th?id=OHR.JTNPMilkyWay_IT-IT0241234588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-28 | [Boschetto di Mariposa nel Parco Nazionale dello Yosemite, California (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-28 | [Boschetto di Mariposa nel Parco Nazionale dello Yosemite, California (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-27 | [Alpe di Siusi, Dolomiti, Italia (© primeimages/Getty Images)](https://www.bing.com/th?id=OHR.ItalyDolomitesSeiserAlm_IT-IT4289580227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-27 | [Alpe di Siusi, Dolomiti, Italia (© primeimages/Getty Images)](https://www.bing.com/th?id=OHR.ItalyDolomitesSeiserAlm_IT-IT4289580227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-26 | [Gufi della Virginia (© Michael Morse/Getty Images)](https://www.bing.com/th?id=OHR.GHOAudubonDay_IT-IT7709502144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-26 | [Gufi della Virginia (© Michael Morse/Getty Images)](https://www.bing.com/th?id=OHR.GHOAudubonDay_IT-IT7709502144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-25 | [Festa della Liberazione (© Silvio Verrecchia/EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.FrecceTricolori_IT-IT2306161494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-25 | [Festa della Liberazione (© Silvio Verrecchia/EyeEm/Getty Images)](https://www.bing.com/th?id=OHR.FrecceTricolori_IT-IT2306161494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-24 | [Cantina nella Foresta Bavarese, Germania (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-24 | [Cantina nella Foresta Bavarese, Germania (© Andreas Zerndl/Getty Images)](https://www.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-23 | [Biblioteca civica di Stoccarda, Germania (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-23 | [Biblioteca civica di Stoccarda, Germania (© Axel Brunst/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-22 | [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-22 | [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-21 | [Procida, Campania, Italia (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-21 | [Procida, Campania, Italia (© Sean Pavone/Shutterstock)](https://www.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-20 | [La Strada del gigante, Irlanda del Nord, Regno Unito (© Dieter Meyrl/Getty Images)](https://www.bing.com/th?id=OHR.NIrelandGiants_IT-IT5231557937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-20 | [La Strada del gigante, Irlanda del Nord, Regno Unito (© Dieter Meyrl/Getty Images)](https://www.bing.com/th?id=OHR.NIrelandGiants_IT-IT5231557937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-19 | [Torri medievali a San Gimignano, Siena (© Jason Langley/Cavan Images)](https://www.bing.com/th?id=OHR.SanGimignano1_IT-IT9409869098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-19 | [Torri medievali a San Gimignano, Siena (© Jason Langley/Cavan Images)](https://www.bing.com/th?id=OHR.SanGimignano1_IT-IT9409869098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://www.bing.com/th?id=OHR.MPPUnesco_IT-IT3824162238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://www.bing.com/th?id=OHR.MPPUnesco_IT-IT3824162238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-17 | [Haiku, Giardini botanici reali di Kew, Londra, Inghilterra  (© Guy Bell/Alamy Live News)](https://www.bing.com/th?id=OHR.OneThousandSprings_IT-IT4206647958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-17 | [Haiku, Giardini botanici reali di Kew, Londra, Inghilterra  (© Guy Bell/Alamy Live News)](https://www.bing.com/th?id=OHR.OneThousandSprings_IT-IT4206647958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-16 | [Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)](https://www.bing.com/th?id=OHR.KiteDay_IT-IT3478773106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-16 | [Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)](https://www.bing.com/th?id=OHR.KiteDay_IT-IT3478773106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-15 | [“Together" di Lorenzo Quinn, Le Grande Piramidi di Giza, Il Cairo, Egitto (© Sima Diab/Getty Images)](https://www.bing.com/th?id=OHR.LorenzoQuinn_IT-IT2361937887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-15 | [“Together" di Lorenzo Quinn, Le Grande Piramidi di Giza, Il Cairo, Egitto (© Sima Diab/Getty Images)](https://www.bing.com/th?id=OHR.LorenzoQuinn_IT-IT2361937887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-14 | [Stelle marine rosse, Mar Mediterraneo (© Hans Leijnse/Minden Pictures)](https://www.bing.com/th?id=OHR.RedSeaStars_IT-IT1751132764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-14 | [Stelle marine rosse, Mar Mediterraneo (© Hans Leijnse/Minden Pictures)](https://www.bing.com/th?id=OHR.RedSeaStars_IT-IT1751132764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
-2023-04-13 | [Parco Hitsujiyama, Prefettura di Saitama, Giappone (© Takashi Images/Shutterstock)](https://www.bing.com/th?id=OHR.PhloxSubulata_IT-IT2380570126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+2023-04-13 | [Parco Hitsujiyama, Prefettura di Saitama, Giappone (© Takashi Images/Shutterstock)](https://www.bing.com/th?id=OHR.PhloxSubulata_IT-IT2380570126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
