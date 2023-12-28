@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-29 | [アムステルダム, オランダ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_JA-JP3650946549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-28 | [ディスコ湾のザトウクジラ, グリーンランド (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_JA-JP1574725222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-27 | [キルキュフェットル山, アイスランド (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_JA-JP1371346229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
