@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-30 | [Hogmanay firework display, Edinburgh, Scotland (© The Travel Library/Shutterstock)](https://www.bing.com/th?id=OHR.HogmanayFireworksSoctland_EN-GB9543718054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-29 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_EN-GB8931241370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-28 | [Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.KirkjufellAurora_EN-GB8700754244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
