@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-30 | [Ponte Daiichi sul fiume Tadami, Fukushima, Giappone (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.TadamiWinter_IT-IT9712600092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-29 | [Quartiere di Oud-West, Amsterdam, Olanda (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_IT-IT8956401026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-28 | [Balena megattera, Baia di Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.GreenlandHumpback_IT-IT6047849263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
