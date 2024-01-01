@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-01 | [Renard roux dormant dans la neige, Abruzzes, Italie (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_FR-FR9573665261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-31 | [Feux d'artifice sur Phra Nakhon Khiri, Phetchaburi, Thaïlande (© noomcpk/Shutterstock)](https://www.bing.com/th?id=OHR.ThailandNewYears_FR-FR9400381287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-30 | [Pont de la rivière Daiichi Tadami, Fukushima, Japon (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.TadamiWinter_FR-FR9156285439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

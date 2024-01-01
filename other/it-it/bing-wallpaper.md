@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-01 | [Volpe che sonnecchia nella neve, Abruzzo, Italia (© Marco Vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_IT-IT1479703607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-31 | [Fuochi artificiali di Venezia, Italia (© Patryk Kosmider/Getty Images)](https://www.bing.com/th?id=OHR.SantaMariaVenice_1185725818_IT-IT0984119913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-30 | [Ponte Daiichi sul fiume Tadami, Fukushima, Giappone (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.TadamiWinter_IT-IT9712600092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
