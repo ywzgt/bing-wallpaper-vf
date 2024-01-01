@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [Raposa-vermelha dormindo na neve, Abruzzo, Itália (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_PT-BR0026523663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-01 | [Fogos de artifício na festa de Ano Novo na praia de Copacabana (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.ReveillonBrazil_PT-BR9820187694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-31 | [Ponte Daiichi, Rio Tadami River, Fukushima, Japão (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.TadamiWinter_PT-BR9134257179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
