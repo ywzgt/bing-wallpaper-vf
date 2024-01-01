@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [ポブジカ渓谷, ブータン (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_JA-JP1805849873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-01 | [本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)](https://www.bing.com/th?id=OHR.Sunrise2024_JA-JP1927003758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-31 | [増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)](https://www.bing.com/th?id=OHR.Omisoka2023_JA-JP4038808718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
