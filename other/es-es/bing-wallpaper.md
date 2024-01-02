@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [Banderas de oración en el valle de Phobjikha, Bután (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_ES-ES8582320012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-01 | [Zorro rojo durmiendo en la nieve, Abruzzo, Italia (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_ES-ES8416762367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-31 | [Año Nuevo en la Puerta del Sol, Madrid, España (© ADDICTIVE STOCK CREATIVES/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SpainNewYear_ES-ES8250941524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
