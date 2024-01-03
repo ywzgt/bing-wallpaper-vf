@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-04 | [Biblioteca Bodleian, Universidade de Oxford, Inglaterra (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_PT-BR0267945002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-03 | [Bandeiras de oração no Vale de Phobjikha, Butão (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_PT-BR0103911356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-02 | [Raposa-vermelha dormindo na neve, Abruzzo, Itália (© marco vancini/500px/Getty Images)](https://www.bing.com/th?id=OHR.SleepingFox_PT-BR0026523663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
