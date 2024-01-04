@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-04 | [Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.StPeterMonastery_DE-DE0883907232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-03 | [Bodleian Library, Universität von Oxford, England (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_DE-DE0740071981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-02 | [Gebetsfahnen im Phobjikha-Tal, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BhutanSolstice_DE-DE0513592693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
