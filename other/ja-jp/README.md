@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&w=1000)Today: [��ルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&w=1000)Today: [ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-05 [download 4k](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-05 [download 4k](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GoldenGateLight_JA-JP2205373586_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-01-04 [download 4k](https://www.bing.com/th?id=OHR.GoldenGateLight_JA-JP2205373586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|

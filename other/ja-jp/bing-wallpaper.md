@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2024-01-05 | [��ルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
-
 2024-01-05 | [ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-05 | [��ルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_JA-JP2258801493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-04 | [ゴールデン・ゲート・ブリッジ, 米国 サンフランシスコ (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_JA-JP2205373586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
