@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HarbinFestival_EN-GB9198021502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-05 | [Golden Gate Bridge, San Francisco, California, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_EN-GB6303595201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-04 | [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://www.bing.com/th?id=OHR.BodleianCeiling_EN-GB7979385278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
