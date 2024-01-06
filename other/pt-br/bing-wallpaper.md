@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-07 | [Tentilhão macho pousado em uma macieira (© Mark Hamblin/2020VISION/Minden Pictures)](https://www.bing.com/th?id=OHR.CrabappleChaffinch_PT-BR1131580779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-06 | [Um belo pôr do sol no Pantanal do Brasil (© Lucas Ninno/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPantanal_PT-BR1044442706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-05 | [A Ponte Golden Gate, San Francisco, Califórnia, EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_PT-BR0467523919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
