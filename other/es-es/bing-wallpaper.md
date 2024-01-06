@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Pinzón vulgar macho posado en un manzano cangrejo en invierno (© Mark Hamblin/2020VISION/Minden Pictures)](https://www.bing.com/th?id=OHR.CrabappleChaffinch_ES-ES9402342278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-05 | [Mercadillo navideño en la Plaza Mayor, Madrid, España (© Mattia Bicchi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.KingsDay_ES-ES9269541177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-04 | [Puente Golden Gate, San Francisco, California, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_ES-ES8887697115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
