@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Skifahrer am Berninapass, Graubünden, Schweiz (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_DE-DE1884250361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-07 | [Karlu Karlu, heilige Stätte der Aborigines, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.DevilsMarbles_DE-DE1638220976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-06 | [Golden Gate Bridge, San Francisco, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GoldenGateLight_DE-DE1352725160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

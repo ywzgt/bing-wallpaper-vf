@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Skieur au col de la Bernina, Grisons, Suisse (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_FR-FR1590880403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-07 | [Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.DevilsMarbles_FR-FR1418224441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-06 | [Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)](https://www.bing.com/th?id=OHR.GuadeloupeCarnival_FR-FR1231104335_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

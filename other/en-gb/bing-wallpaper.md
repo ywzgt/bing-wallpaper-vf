@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_EN-GB1258077580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-08 | [Great Staple Tor, Dartmoor National Park (© MattStansfield/E+/Getty Images)](https://www.bing.com/th?id=OHR.GreatStapleSnowUK_EN-GB2875416954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-07 | [Oud-West neighbourhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BlueAmsterdam_EN-GB2503528249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
