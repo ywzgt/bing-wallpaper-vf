@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Esquiador no Passo Bernina, Grisões, Suíça (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_PT-BR1871424589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-08 | [Reserva de Conservação Karlu Karlu, Devils Marbles, Austrália (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.DevilsMarbles_PT-BR1760984393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-07 | [Tentilhão macho pousado em uma macieira (© Mark Hamblin/2020VISION/Minden Pictures)](https://www.bing.com/th?id=OHR.CrabappleChaffinch_PT-BR1131580779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
