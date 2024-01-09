@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Globos aerostáticos sobre el Río Grande, Albuquerque, Nuevo México, EE.UU. (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_ES-ES6385510449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-08 | [Esquiador en el paso de Bernina, Graubunden, Suiza (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_ES-ES9729899080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-07 | [Karlu Karlu/Reserva Natural Devils Marbles, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.DevilsMarbles_ES-ES9592851915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
