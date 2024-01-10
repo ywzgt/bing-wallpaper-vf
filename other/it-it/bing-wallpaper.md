@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-10 | [Scale sul litorale di Mylopotamos, Tessaglia, Grecia (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_IT-IT8276211075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-09 | [Mongolfiere sopra il Rio Grande, Albuquerque, Nuovo Messico, USA (© Jennifer MacCornack/Shutterstock)](https://www.bing.com/th?id=OHR.BalloonDay_IT-IT9345867684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-08 | [Sciatore al Passo del Bernina, Grigioni, Svizzera (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.BerninaPass_IT-IT0635782959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
