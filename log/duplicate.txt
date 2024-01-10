@@ -46,3 +46,6 @@ other/ja-jp/bing-wallpaper.md:
 other/ja-jp/bing-wallpaper.md:
 2024-01-05
 
+other/ja-jp/bing-wallpaper.md:
+2024-01-05
+
