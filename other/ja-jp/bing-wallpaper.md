@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-12 | [北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_JA-JP1162904036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-11 | [オオヤマネコ (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.LynxSnow_JA-JP2676099304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-10 | [ミロポタモスの海岸にある階段, ギリシャ (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_JA-JP2627387814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
