@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-12 | [Imagen aérea de La Sargrada Familia, Barcelona, España (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.FestaMajorBarcelona_ES-ES2068839332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-11 | [Lince euroasiático en la nieve (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.LynxSnow_ES-ES0115513442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-10 | [Escaleras en la costa de Mylopotamos, Tesalia, Grecia (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_ES-ES9277675627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

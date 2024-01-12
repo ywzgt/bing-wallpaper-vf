@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-12 | [Parco Nazionale di Bukhansan, Corea del Sud (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_IT-IT1722160676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-11 | [Lince eurasiatica nella neve (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.LynxSnow_IT-IT4529092262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-10 | [Scale sul litorale di Mylopotamos, Tessaglia, Grecia (© Orestis Zoumpos/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MilopotamosStairs_IT-IT8276211075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
