@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-14 | [屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_JA-JP3605792409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-13 | [勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)](https://www.bing.com/th?id=OHR.Daruma2024_JA-JP9897104150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-12 | [北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_JA-JP1162904036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
