@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-13 | [Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_FR-FR2322911528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-12 | [Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_FR-FR2089322284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-11 | [Lynx boréal dans la neige (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.LynxSnow_FR-FR2285365573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
