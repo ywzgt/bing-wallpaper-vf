@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-14 | [Singschwäne im Kussharo-See, Hokkaido, Japan (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_DE-DE3486591797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-13 | [Road to Hāna, Maui, Hawaii, USA (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_DE-DE3152977646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-12 | [Bukhansan-Nationalpark, Südkorea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_DE-DE2867363525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

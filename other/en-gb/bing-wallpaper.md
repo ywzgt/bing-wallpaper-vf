@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-15 | [Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_EN-GB1710828228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-14 | [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_EN-GB1532378824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-13 | [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_EN-GB0341063799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

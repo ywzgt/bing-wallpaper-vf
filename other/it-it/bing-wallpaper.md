@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-14 | [Cigni sevatici nel Lago di Kussharo, Giappone (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_IT-IT3824531235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-13 | [Taibor Agordino, Belluno (© Moreno Geremetta/Alamy)](https://www.bing.com/th?id=OHR.SanLucanoValley_IT-IT3035454153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-12 | [Parco Nazionale di Bukhansan, Corea del Sud (© TRAVEL TAKE PHOTOS/Shutterstock)](https://www.bing.com/th?id=OHR.BukhansanSeoul_IT-IT1722160676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
