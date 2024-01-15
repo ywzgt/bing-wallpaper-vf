@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-15 | [Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)](https://www.bing.com/th?id=OHR.SnowHorses_FR-FR2904040226_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-14 | [Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_FR-FR2489851452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-13 | [Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.HanaHighway_FR-FR2322911528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
