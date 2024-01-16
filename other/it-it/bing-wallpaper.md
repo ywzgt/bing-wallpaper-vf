@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-16 | [Lago Louise, Parco Nazionale di Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_IT-IT5093605505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-15 | [La "Cappella di ghiaccio" ai piedi del Monte Watzmann, Baviera, Germania (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.IceChapel_IT-IT4504163641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-14 | [Cigni sevatici nel Lago di Kussharo, Giappone (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_IT-IT3824531235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

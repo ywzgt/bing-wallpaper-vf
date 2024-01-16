@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-16 | [Lake Louise, Banff-Nationalpark, Alberta, Kanada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_DE-DE3736207762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-15 | [Eiskapelle am Fuße des Watzmanns, Bayern (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.IceChapel_DE-DE7506991008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-14 | [Singschwäne im Kussharo-See, Hokkaido, Japan (© Darrell Gulin/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.HokkaidoSwans_DE-DE3486591797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
