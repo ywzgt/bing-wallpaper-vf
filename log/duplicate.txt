@@ -151,3 +151,9 @@ other/es-es/bing-wallpaper.md:
 other/ja-jp/bing-wallpaper.md:
 2024-01-05
 
+other/es-es/bing-wallpaper.md:
+2024-01-10
+
+other/ja-jp/bing-wallpaper.md:
+2024-01-05
+
