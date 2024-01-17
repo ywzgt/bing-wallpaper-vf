@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-18 | [アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_JA-JP7502194315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-17 | [バイエルンの森国立公園, ドイツ (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_JA-JP7170122030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-16 | [レイク・ルイーズ, カナダ アルバータ州 (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_JA-JP5881267112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
