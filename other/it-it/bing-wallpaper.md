@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-17 | [Lupo durante un pisolino nel Parco nazionale della foresta bavarese, Germania (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_IT-IT5699370388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-16 | [Lago Louise, Parco Nazionale di Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_IT-IT5093605505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-15 | [La "Cappella di ghiaccio" ai piedi del Monte Watzmann, Baviera, Germania (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.IceChapel_IT-IT4504163641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

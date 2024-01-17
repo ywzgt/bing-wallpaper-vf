@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-18 | [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_EN-GB2239080031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-17 | [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_EN-GB2053286596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-16 | [Pont Alexandre III, Paris, France (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_EN-GB8372523882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

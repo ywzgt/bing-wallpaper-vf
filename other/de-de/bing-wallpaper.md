@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-17 | [Schlafender Wolf im Nationalpark Bayerischer Wald (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_DE-DE6606781162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-16 | [Lake Louise, Banff-Nationalpark, Alberta, Kanada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_DE-DE3736207762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-15 | [Eiskapelle am Fuße des Watzmanns, Bayern (© Christian Bäck/eStock Photo)](https://www.bing.com/th?id=OHR.IceChapel_DE-DE7506991008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
