@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-18 | [Brücke Alexandre III. in der Dämmerung, Paris, Frankreich (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_DE-DE4033680304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-17 | [Schlafender Wolf im Nationalpark Bayerischer Wald (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_DE-DE6606781162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-16 | [Lake Louise, Banff-Nationalpark, Alberta, Kanada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_DE-DE3736207762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

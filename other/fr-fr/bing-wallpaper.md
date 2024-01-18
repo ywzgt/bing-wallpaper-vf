@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-18 | [Pont Alexandre III au crépuscule, Paris, France  (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_FR-FR4526044555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-17 | [Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_FR-FR3759485122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-16 | [Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_FR-FR3546637527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

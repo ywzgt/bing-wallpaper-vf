@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-18 | [Ponte Alessandro III, Parigi, Francia (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_IT-IT8868576406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-17 | [Lupo durante un pisolino nel Parco nazionale della foresta bavarese, Germania (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.SleepyWolf_IT-IT5699370388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-16 | [Lago Louise, Parco Nazionale di Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://www.bing.com/th?id=OHR.LakeLouise_IT-IT5093605505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
