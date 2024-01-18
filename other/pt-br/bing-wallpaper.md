@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-19 | [A Ponte Alexandre III ao crepúsculo, Paris, França (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_PT-BR5007932654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-19 | [A Ponte Alexandre III ao crepúsculo, Paris, França (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.ParisBridge_PT-BR1047809633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-18 | [Um tamanduá passeando pelo Pantanal brasileiro (© Pedro Ferreira do Amaral/Getty Images)](https://www.bing.com/th?id=OHR.GiantAnteaterBR_PT-BR0815796970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
