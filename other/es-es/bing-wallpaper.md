@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-20 | [Pingüinos macaroni, Pasaje de Drake, Chile (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.MacaroniPenguins_ES-ES2099572646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-19 | [Parque Nacional de los Lagos de Plitvice, Croacia (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_ES-ES1965080924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-18 | [Exploradores en un lago helado, Estany de Colomina, Lérida, Cataluña, España (© Manu Prats/Stocksy)](https://www.bing.com/th?id=OHR.EstanyColomina_ES-ES2289553231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
