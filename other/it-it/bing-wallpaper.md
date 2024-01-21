@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-21 | [Scoiattolo rosso eurasiatico, Paesi Bassi (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_IT-IT1961289620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-20 | [Pinguini Macaroni, Passaggio di Drake, Cile (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.MacaroniPenguins_IT-IT1123912901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-19 | [Parco Nazionale dei Laghi di Plitvice, Croazia (© Massimo_S8/Getty Images)](https://www.bing.com/th?id=OHR.PlitviceWinter_IT-IT0587144378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
