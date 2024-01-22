@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-23 | [インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_JA-JP0994970307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-22 | [ウォルトン灯台, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_JA-JP5594322328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-21 | [木の枝につかまるキタリス, オランダ (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.SquirrelNetherlands_JA-JP9623906743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
