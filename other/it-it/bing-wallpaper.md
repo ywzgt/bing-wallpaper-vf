@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-24 | [Parco Nazionale del Gran Sasso, con il castello di Rocca Calascio (© Riccardo Spila/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.AbruzzoGranSasso_IT-IT5897224471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-23 | [Atolli nell'Oceano Indiano, Maldive (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_IT-IT6509796728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-22 | [Alba invernale, Faro di Walton, Santa Cruz, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SantaCruzSunrise_IT-IT2418215934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
