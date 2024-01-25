@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-25 | [Rovine della Chiesa di San Dwynwen, Ynys Llanddwyn, Galles, Regno Unito (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_IT-IT3386589226_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-24 | [Parco Nazionale del Gran Sasso, con il castello di Rocca Calascio (© Riccardo Spila/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.AbruzzoGranSasso_IT-IT5897224471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-23 | [Atolli nell'Oceano Indiano, Maldive (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_IT-IT6509796728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

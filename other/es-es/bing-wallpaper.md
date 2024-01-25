@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-25 | [Ruinas de la iglesia de San Dwynwen, Ynys Llanddwyn, Gales, Reino Unido (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_ES-ES2710084737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-24 | [Playa Diamante, Islandia (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_ES-ES2591644727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-23 | [Atolones del océano Índico, Maldivas (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_ES-ES2469932499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

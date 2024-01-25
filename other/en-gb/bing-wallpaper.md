@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [Burns National Heritage Park, Alloway, Ayrshire, Scotland (© Alister Firth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BurnsNightAlloway_EN-GB4165452223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-25 | [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_EN-GB3731647332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-24 | [Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)](https://www.bing.com/th?id=OHR.MaldivesAtolls_EN-GB3594196029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
