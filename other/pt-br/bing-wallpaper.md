@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-27 | [Coruja-gavião (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_PT-BR7690108757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-26 | [Baleia metálica, Avenida Faria Lima, São Paulo, Brasil (© Brazil Photo Press/Alamy)](https://www.bing.com/th?id=OHR.FundacaodaCapital_PT-BR3549565256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-25 | [Praia dos Diamantes, Islândia (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_PT-BR2508967674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
