@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [Sperbereule (© Remo Savisaar/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HawkOwl_DE-DE8185827416_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-25 | [Ruinen der St. Dwynwen's Church, Ynys Llanddwyn, Wales, Vereinigtes Königreich (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_DE-DE3164731658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-24 | [Jökulsárlón, Island (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_DE-DE2839387359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

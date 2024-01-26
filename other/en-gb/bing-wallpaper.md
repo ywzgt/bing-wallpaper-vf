@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-27 | [Eurasian blue tit, United Kingdom (© Anne Coatesy/iStock/Getty Images)](https://www.bing.com/th?id=OHR.EurasianBlueTitUK_EN-GB5165508087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-26 | [Burns National Heritage Park, Alloway, Ayrshire, Scotland (© Alister Firth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BurnsNightAlloway_EN-GB4165452223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-25 | [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_EN-GB3731647332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

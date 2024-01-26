@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [Búho gavilán (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_ES-ES0489194970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-25 | [Ruinas de la iglesia de San Dwynwen, Ynys Llanddwyn, Gales, Reino Unido (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_ES-ES2710084737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-24 | [Playa Diamante, Islandia (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.IcelandBeach_ES-ES2591644727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
