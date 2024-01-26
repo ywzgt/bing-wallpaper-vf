@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-27 | [氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)](https://www.bing.com/th?id=OHR.WinterCarnival_JA-JP8320595671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-26 | [枝にとまるオナガフクロウ (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_JA-JP5530639554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-25 | [イニス・ランドウィンにある遺跡, イギリス ウェールズ (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_JA-JP1767839645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
