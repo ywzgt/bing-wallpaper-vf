@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-27 | [Maschera al Carnevale di Venezia, Veneto, Italia (© Neyya/Getty Images)](https://www.bing.com/th?id=OHR.VeniceMask_IT-IT8837676102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-26 | [Un’ulula appoggiata su un ramo (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_IT-IT8168664237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-25 | [Rovine della Chiesa di San Dwynwen, Ynys Llanddwyn, Galles, Regno Unito (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_IT-IT3386589226_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

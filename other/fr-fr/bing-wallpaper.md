@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-27 | [Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)](https://www.bing.com/th?id=OHR.WinterCarnival_FR-FR5345279239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-26 | [La chouette épervière (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_FR-FR1707000792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-25 | [Ruines de l'église St. Dwynwen, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Photos by R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.DwynwensDay_FR-FR7589802554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
