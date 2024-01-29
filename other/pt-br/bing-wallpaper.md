@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-30 | [Cachoeiras de Gollinger, Tennengau, Salzburgo, Áustria (© Frank Fischbach/Alamy)](https://www.bing.com/th?id=OHR.GollingerFalls_PT-BR0731696047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-29 | [Channel Country, Outback Queensland, Austrália (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/th?id=OHR.ChannelOutback_PT-BR0542625781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-28 | [Palácio de Gelo no Carnaval de Inverno de St. Paul, Minnesota, EUA (© Joe Mamer Photography/Alamy)](https://www.bing.com/th?id=OHR.WinterCarnival_PT-BR0235088801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
