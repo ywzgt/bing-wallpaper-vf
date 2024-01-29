@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-29 | [Gollinger Wasserfall, Tennengau, Salzburg, Österreich (© Frank Fischbach/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GollingerFalls_DE-DE0072333494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-28 | [Channel Country, Outback Queensland, Australien (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/th?id=OHR.ChannelOutback_DE-DE2211262112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-27 | [Eisskulpturen auf dem Saint Paul Winterkarneval, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WinterCarnival_DE-DE2266431187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

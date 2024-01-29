@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-30 | [Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GollingerFalls_EN-GB7103601086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-29 | [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://www.bing.com/th?id=OHR.ChannelOutback_EN-GB6512449937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-28 | [Ice Palace at Saint Paul Winter Carnival, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WinterCarnival_EN-GB6178646232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

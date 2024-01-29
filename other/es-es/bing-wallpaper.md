@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-29 | [Cascadas de Gollinger, Tennengau, Salzburgo, Austria (© Frank Fischbach/Alamy)](https://www.bing.com/th?id=OHR.GollingerFalls_ES-ES0904440430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-28 | [Catedral de Burgos, Burgos, España (© Marco Bottigelli/Moment/Getty Images)](https://www.bing.com/th?id=OHR.SanLesmesBurgos_ES-ES5995468445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-27 | [Palacio de Hielo en el Carnaval de Invierno de St. Paul, Minnesota, EE.UU. (© Joe Mamer Photography/Alamy)](https://www.bing.com/th?id=OHR.WinterCarnival_ES-ES4102228000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
