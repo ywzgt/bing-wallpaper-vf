@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-30 | [Ayna, Sierra de Segura, Albacete, España (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.AlbaceteSpain_ES-ES6264558269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-29 | [Cascadas de Gollinger, Tennengau, Salzburgo, Austria (© Frank Fischbach/Alamy)](https://www.bing.com/th?id=OHR.GollingerFalls_ES-ES0904440430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-28 | [Catedral de Burgos, Burgos, España (© Marco Bottigelli/Moment/Getty Images)](https://www.bing.com/th?id=OHR.SanLesmesBurgos_ES-ES5995468445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
