@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-02 | [Murmeltier lugt aus seinem Bau hervor (© Scacciamosche/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmot_DE-DE8110603230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-01 | [Sassnitz Leuchtturm, Rügen, Mecklenburg-Vorpommern (© Christian Back/eStock)](https://www.bing.com/th?id=OHR.HalbinselJasmund_DE-DE8684103043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-31 | [Burchell-Zebra Mutter und Fohlen, Rietvlei Nature Reserve, Südafrika (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.ZebraMother_DE-DE8530297892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

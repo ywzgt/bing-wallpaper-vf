@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-02 | [Marmotta che sbircia fuori dalla sua tana (© Scacciamosche/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmot_IT-IT3513060995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-01 | [Faro di Sassnitz sull’isola di Rüge, Germania (© Christian Back/eStock)](https://www.bing.com/th?id=OHR.HalbinselJasmund_IT-IT4499863722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-31 | [Esemplare di zebra di Burchell con il suo piccolo, Riserva naturale di Rietvlei, Sud Africa (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.ZebraMother_IT-IT4043343068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
