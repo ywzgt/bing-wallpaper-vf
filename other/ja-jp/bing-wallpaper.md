@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-05 | [テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_JA-JP0929359307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-04 | [梅の枝に止まるメジロ  (© pheeby/Adobe Stock)](https://www.bing.com/th?id=OHR.Risshun2024_JA-JP0473025978_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-03 | [函館山から見る夜景, 北海道 函館市 (© Hiro1775/Getty Images)](https://www.bing.com/th?id=OHR.Hakodate2024_JA-JP0227242180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
