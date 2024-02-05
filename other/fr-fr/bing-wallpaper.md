@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-05 | [Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_FR-FR5198463793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-04 | [Grotte de Devetashka, Devetaki, Bulgarie (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_FR-FR4993374932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-03 | [Grand Canal et basilique Santa Maria della Salute, Venise, Italie (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VeniceCarnival_FR-FR7084522294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
