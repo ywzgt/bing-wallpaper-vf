@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [ヴェルドン峡谷, フランス (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_JA-JP1674672705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-06 | [タホ湖, 米国 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_JA-JP1426233885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-05 | [テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)](https://www.bing.com/th?id=OHR.TeideNational_JA-JP0929359307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
