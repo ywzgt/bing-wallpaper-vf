@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [Bonsai Rock, Lake Tahoe, Nevada, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_EN-GB2276440186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-06 | [Northern hawk-owl (© Remo Savisaar/Alamy)](https://www.bing.com/th?id=OHR.HawkOwl_EN-GB0033020646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-05 | [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://www.bing.com/th?id=OHR.DevetashkaCave_EN-GB0187525185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
