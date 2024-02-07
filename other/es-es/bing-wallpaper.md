@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [St. James Tidal Pool, Ciudad del Cabo, Sudáfrica (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_ES-ES0103959547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-06 | [Bonsai Rock, Lago Tahoe, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_ES-ES8162819510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-05 | [Mariposas monarca, Goleta, California, EE.UU. (© Craig Rademacher/500px/Getty Images)](https://www.bing.com/th?id=OHR.WesternMonarchs_ES-ES7926880512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

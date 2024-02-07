@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [St. James Tidal Pool, Kapstadt, Südafrika (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_DE-DE1729086692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-06 | [Bonsai Rock, Lake Tahoe, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_DE-DE1626232597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-05 | [Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)](https://www.bing.com/th?id=OHR.MunichOperaHouse_DE-DE1491407214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
