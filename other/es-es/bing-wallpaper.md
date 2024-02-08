@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-08 | [Monte Hood, Oregón, EE.UU. (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_ES-ES8487119175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-07 | [St. James Tidal Pool, Ciudad del Cabo, Sudáfrica (© AmazingAerialAgency/Adobe)](https://www.bing.com/th?id=OHR.StJamesPool_ES-ES0103959547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-06 | [Bonsai Rock, Lago Tahoe, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_ES-ES8162819510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
