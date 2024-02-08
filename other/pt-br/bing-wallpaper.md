@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-09 | [Monte Hood, Oregon, EUA (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_PT-BR4355402757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-08 | [Figuras feitas pelos indígenas locais de Manaus, Brasil (© rchphoto/Getty Images)](https://www.bing.com/th?id=OHR.PovosIndigenas_PT-BR6197320294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-07 | [Bonsai Rock, Lago Tahoe, EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LakeTahoeRock_PT-BR3293078683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
