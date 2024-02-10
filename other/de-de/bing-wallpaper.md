@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-10 | [Chinesisches Neujahr, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_DE-DE3426075443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-09 | [Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_DE-DE2295980114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-08 | [Mount Hood, Stratovulkan, Oregon, USA (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_DE-DE1892795022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

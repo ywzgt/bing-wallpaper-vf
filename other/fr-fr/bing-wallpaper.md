@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-10 | [Nouvel An chinois, Luzhou, Chine (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_FR-FR1214192528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-09 | [Rocher de Pegadung, Lampung, Sumatra, Indonésie (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_FR-FR0984354515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-08 | [Mont Hood, Oregon, États-Unis (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.MtHoodOregon_FR-FR7401351171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
