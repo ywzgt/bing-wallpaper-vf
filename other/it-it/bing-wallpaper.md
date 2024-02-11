@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-11 | [Isola di Policandro, Isole Cicladi, Grecia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_IT-IT6602141211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-10 | [Capodanno lunare, Luzhou, Cina (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_IT-IT5937378207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-09 | [Pegadung Rock, Provincia di Lampung, Isola di Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://www.bing.com/th?id=OHR.PegadungRocks_IT-IT3929820367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
