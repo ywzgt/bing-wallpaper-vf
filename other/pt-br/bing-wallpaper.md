@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-12 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_PT-BR2119893846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-11 | [Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_PT-BR1649344638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-10 | [Praia de Copacabana, Rio de Janeiro, Brasil (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.PraiadeCopacabana_PT-BR1256625219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
