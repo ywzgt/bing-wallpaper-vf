@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-12 | [Testuggini delle Galapagos vicino al vulcano Alcedo, Isola di Isabela, Galapagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_IT-IT7539494378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-11 | [Isola di Policandro, Isole Cicladi, Grecia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_IT-IT6602141211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-10 | [Capodanno lunare, Luzhou, Cina (© Liu Guoxing/VCG via Getty Images)](https://www.bing.com/th?id=OHR.ChinaDragon_IT-IT5937378207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
