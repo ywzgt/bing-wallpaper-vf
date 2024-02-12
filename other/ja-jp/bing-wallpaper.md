@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-13 | [カラフルなビーズの首飾り, 米国 ルイジアナ州 (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_JA-JP4162697836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-12 | [ガラパゴスゾウガメ, エクアドル (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_JA-JP6597399891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-11 | [フォレガンドロス島, ギリシャ (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_JA-JP6408429847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
