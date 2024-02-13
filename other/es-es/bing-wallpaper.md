@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-13 | [Collares de Mardi Gras en Marigny, Nueva Orleans, EE.UU. (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_ES-ES0958430194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-12 | [Tortugas gigantes del Volcán Alcedo, Isla Isabela, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_ES-ES0844160920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-11 | [Chora, Isla de Folegandros, Cícladas, Grecia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.FolegandrosGreece_ES-ES0493333315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
