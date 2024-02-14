@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Mandschurenkranich mit Gefährtin in Hokkaido, Japan (© Steve Bloom Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BowingCrane_DE-DE6578691031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-13 | [Mardi Gras im Stadtteil Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_DE-DE5830440814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-12 | [Riesenschildkröten am Vulkan Alcedo, Insel Isabela, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_DE-DE4591798432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

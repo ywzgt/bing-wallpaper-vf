@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)](https://www.bing.com/th?id=OHR.BowingCrane_FR-FR5228524278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-13 | [Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_FR-FR2441069115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-12 | [Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_FR-FR1778987386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

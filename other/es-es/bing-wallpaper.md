@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Grulla de coronilla roja saludando a su pareja en Hokkaido, Japón (© Steve Bloom Images/Alamy)](https://www.bing.com/th?id=OHR.BowingCrane_ES-ES1063645662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-13 | [Collares de Mardi Gras en Marigny, Nueva Orleans, EE.UU. (© Erik Pronske Photography/Getty Images)](https://www.bing.com/th?id=OHR.MarignyBeads_ES-ES0958430194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-12 | [Tortugas gigantes del Volcán Alcedo, Isla Isabela, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantTortoise_ES-ES0844160920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
