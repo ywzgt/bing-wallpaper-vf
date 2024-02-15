@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-15 | [Mamma ippopotamo con il suo piccolo, Parco Nazionale del Sud Luangwa, Zambia (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.HippopotamusDay_IT-IT9950254763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-14 | [Gru della Manciuria durante il corteggiamento ad Hokkaido, Giappone (© Steve Bloom Images/Alamy)](https://www.bing.com/th?id=OHR.BowingCrane_IT-IT9417947557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-13 | [Sfilata dei carri di Carnevale di Viareggio, Toscana, Italia (© Laura Lezza/Getty Images)](https://www.bing.com/th?id=OHR.CarnevaleViareggio_IT-IT8940909658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
