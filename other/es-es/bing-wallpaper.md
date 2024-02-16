@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Una hembra de pyrrhuloxia se posa en un cactus espinoso en Texas, EE.UU. (© outtakes/Getty Images)](https://www.bing.com/th?id=OHR.BackyardBird_ES-ES5058549868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-15 | [Madre y cría de hipopótamo, Parque Nacional de South Luangwa, Zambia (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.HippopotamusDay_ES-ES1187827553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-14 | [Grulla de coronilla roja saludando a su pareja en Hokkaido, Japón (© Steve Bloom Images/Alamy)](https://www.bing.com/th?id=OHR.BowingCrane_ES-ES1063645662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
