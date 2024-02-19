@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-19 | [Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_FR-FR6517933820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-18 | [Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_FR-FR6743804203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-17 | [Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)](https://www.bing.com/th?id=OHR.BrightonBoxes_FR-FR1148207790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

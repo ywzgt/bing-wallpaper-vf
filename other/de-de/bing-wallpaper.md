@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-19 | [Luftaufnahme von bunten Häusern an der Küste von Puerto de la Cruz, Teneriffa, Spanien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_DE-DE3563683527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-18 | [Auftauchende Pottwale, Dominica, Karibik (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_DE-DE9056542872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-17 | [Der Pragser Wildsee in den Dolomiten, Südtirol, Italien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LakeDolomites_DE-DE3348859489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

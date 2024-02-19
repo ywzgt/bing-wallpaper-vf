@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-19 | [El Pragser Wildsee en los Dolomitas, Tirol del Sur, Italia (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LakeDolomites_ES-ES6192174568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-18 | [Manada de cachalotes saliendo a la superficie, Dominica (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_ES-ES1609036579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-17 | [Casas de colores en Punta Brava, Puerto de la Cruz, Tenerife, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_ES-ES6332745599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
