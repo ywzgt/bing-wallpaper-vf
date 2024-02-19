@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-20 | [Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_PT-BR5233903925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-19 | [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_PT-BR4985904903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-18 | [Lago Di Braies nas Dolomitas, Tirol do Sul, Itália (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LakeDolomites_PT-BR5853675668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
