@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [ホーステール滝, 米国 カリフォルニア州 (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_JA-JP8953953821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-20 | [キンダー・スカウト, イギリス (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_JA-JP8773323840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-19 | [乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)](https://www.bing.com/th?id=OHR.Ume2024_JA-JP3356449258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
