@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-20 | [Kinder Scout all'alba, Parco Nazionale del Peak District, Regno Unito (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_IT-IT5172127370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-19 | [Vista aerea di Punta Brava, Puerto de la Cruz, Tenerife, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_IT-IT6859565404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-18 | [Gruppo di capodogli in superficie, Dominica (© Franco Banfi/Minden Pictures)](https://www.bing.com/th?id=OHR.DominicaWhales_IT-IT8820553852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
