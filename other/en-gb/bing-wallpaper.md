@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-22 | [Firefall at Horsetail Fall, Yosemite National Park, California, USA (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_EN-GB3012383425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-21 | [Kinder Scout, Peak District National Park, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_EN-GB0353580996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-20 | [Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.CarnavalTenerife_EN-GB7377141712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
