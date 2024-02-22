@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-22 | [Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.FrozenSoapBubble_DE-DE1646022530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-21 | [Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_DE-DE4800433927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-20 | [Kinder Scout bei Sonnenaufgang, Peak-District-Nationalpark, UK (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_DE-DE4372136028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-22 | [Cabine da spiaggia a Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)](https://www.bing.com/th?id=OHR.BrightonBoxes_IT-IT6630946422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-21 | [Cascata di fuoco a Horsetail Fall, Parco Nazionale dello Yosemite, California, USA (© Gregory B Cuvelier/Shutterstock)](https://www.bing.com/th?id=OHR.YosemiteFirefall_IT-IT1880342554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-20 | [Kinder Scout all'alba, Parco Nazionale del Peak District, Regno Unito (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.PeakDistrictNP_IT-IT5172127370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
