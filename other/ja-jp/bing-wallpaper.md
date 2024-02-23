@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-24 | [アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlmondBloom_JA-JP9467341348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-23 | [朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)](https://www.bing.com/th?id=OHR.Fuji2024_JA-JP9270000739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-23 | [朝焼けに輝く富士山と山��湖, 山梨県 (© magicflute002/Getty Images)](https://www.bing.com/th?id=OHR.Fuji2024_JA-JP9270000739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
