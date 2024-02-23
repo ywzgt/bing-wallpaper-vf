@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-23 | [朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)](https://www.bing.com/th?id=OHR.Fuji2024_JA-JP9270000739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-23 | [朝焼けに輝く富士山と山��湖, 山梨県 (© magicflute002/Getty Images)](https://www.bing.com/th?id=OHR.Fuji2024_JA-JP9270000739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-22 | [ブライトンビーチ, オーストラリア ビクトリア州 (© Prasit photo/Getty Images)](https://www.bing.com/th?id=OHR.BrightonBoxes_JA-JP7289590135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
