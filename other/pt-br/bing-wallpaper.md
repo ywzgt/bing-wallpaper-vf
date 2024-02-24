@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-25 | [Amendoeiras em plena floração, Califórnia, EUA (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlmondBloom_PT-BR9517500813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-24 | [Monastério de Haghartsin, Parque Nacional de Dilijan, Armênia (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_PT-BR9216139787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-23 | [Cataratas do Iguaçu, Paraná (© Nido Huebl/Shutterstock)](https://www.bing.com/th?id=OHR.IguazuFalls_PT-BR6454188192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
