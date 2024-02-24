@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-24 | [Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AgriculturalShow_FR-FR2506485920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-23 | [Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_FR-FR1636518850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-22 | [Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancChamonix_FR-FR7471811923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
