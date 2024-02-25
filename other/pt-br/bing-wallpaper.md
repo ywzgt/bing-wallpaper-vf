@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-26 | [Névoa no Vale Cowichan a partir do Monte Prevost, Duncan, Ilha de Vancouver, Colúmbia Britânica, Canadá (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_PT-BR0029292582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-25 | [Amendoeiras em plena floração, Califórnia, EUA (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlmondBloom_PT-BR9517500813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-24 | [Monastério de Haghartsin, Parque Nacional de Dilijan, Armênia (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_PT-BR9216139787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
