@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-25 | [Nebel im Cowichan Valley auf Vancouver Island, British Columbia, Kanada (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_DE-DE5893806279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-24 | [Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)](https://www.bing.com/th?id=OHR.HanselGretelHouse_DE-DE6769523400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-23 | [Kloster Haghartsin, Dilijan-Nationalpark, Armenien (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_DE-DE6295908879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

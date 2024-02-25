@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-25 | [Niebla en el valle de Cowichan, en la isla de Vancouver, Columbia Británica, Canadá (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_ES-ES1488593633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-24 | [Almendros en flor, California, EE.UU. (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlmondBloom_ES-ES1883019018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-23 | [Monasterio de Haghartsin, Parque Nacional de Dilijan, Armenia (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ES-ES1400026000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

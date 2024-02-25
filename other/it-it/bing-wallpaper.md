@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-25 | [Nebbia nella valle Cowichan a Vancouver Island, Columbia Britannica, Canada (© Kevin Oke/Alamy)](https://www.bing.com/th?id=OHR.MtPrevostDuncan_IT-IT3250174651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-24 | [Due verdoni che litigano mentre nevica, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://www.bing.com/th?id=OHR.GreenfinchesBattle_IT-IT1304906662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-23 | [Monastero di Haghartsin, Parco Nazionale di Dilijan, Armenia (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_IT-IT8194609337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
