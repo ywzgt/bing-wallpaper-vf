@@ -1237,3 +1237,13 @@ other/ja-jp/bing-wallpaper.md:
 other/pt-br/bing-wallpaper.md:
 2024-01-19
 
+other/es-es/bing-wallpaper.md:
+2024-01-10
+
+other/ja-jp/bing-wallpaper.md:
+2024-01-05
+2024-02-23
+
+other/pt-br/bing-wallpaper.md:
+2024-01-19
+
