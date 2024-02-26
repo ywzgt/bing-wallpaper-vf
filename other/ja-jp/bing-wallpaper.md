@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-27 | [じゃれあうホッキョクグマの赤ちゃん, 米国 アラスカ州 (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_JA-JP0012953029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-26 | [グランドキャニオン国立公園, 米国 アリゾナ州 (© Jeremy Janus/Getty Images)](https://www.bing.com/th?id=OHR.GrandCanyonWinter_JA-JP9819536991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-25 | [ハガルツィン修道院, アルメニア (© Alexey Kharitonov/Shutterstock)](https://www.bing.com/th?id=OHR.HaghartsinMonastery_JA-JP9652317145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
