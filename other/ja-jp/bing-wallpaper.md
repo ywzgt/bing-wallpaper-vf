@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-29 | [バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_JA-JP0444568228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-28 | [バンバラ城, イングランド ノーサンバーランド州 (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_JA-JP0209461050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-27 | [じゃれあうホッキョクグマの赤ちゃん, 米国 アラスカ州 (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_JA-JP0012953029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
