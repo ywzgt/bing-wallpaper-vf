@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-28 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_DE-DE7368019020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-27 | [Eisbärenjunge beim Spielen, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_DE-DE7089509348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-26 | [Grand-Canyon-Nationalpark, Arizona, USA (© Jeremy Janus/Getty Images)](https://www.bing.com/th?id=OHR.GrandCanyonWinter_DE-DE6805018652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

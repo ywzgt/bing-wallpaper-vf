@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-28 | [Plaza de España, Sevilla, España (© KavalenkavaVolha/Getty images)](https://www.bing.com/th?id=OHR.SevilleAndalusiaDay_ES-ES5223382941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-27 | [Cachorros de oso polar jugando, Kaktovik, Alaska, EE.UU. (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_ES-ES1868103985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-26 | [Parque Nacional del Gran Cañón, Arizona, EE.UU. (© Jeremy Janus/Getty Images)](https://www.bing.com/th?id=OHR.GrandCanyonWinter_ES-ES1684306340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
