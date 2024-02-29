@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-29 | [Écureuil roux d'Europe (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_FR-FR3290902737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-28 | [Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_FR-FR3136425670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-27 | [Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_FR-FR2914859035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

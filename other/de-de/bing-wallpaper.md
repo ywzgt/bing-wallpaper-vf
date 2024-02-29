@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-29 | [Eurasisches Eichhörnchen (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_DE-DE7623766811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-28 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_DE-DE7368019020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-27 | [Eisbärenjunge beim Spielen, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_DE-DE7089509348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

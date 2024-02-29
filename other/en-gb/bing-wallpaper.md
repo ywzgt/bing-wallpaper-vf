@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-01 | [Eurasian red squirrel (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_EN-GB4552548404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-29 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://www.bing.com/th?id=OHR.BamburghCastleUK_EN-GB3792083746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-28 | [Polar bear cubs playing, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.PolarBearCubs_EN-GB3190423564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
