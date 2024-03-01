@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [クルーガー国立公園のヒョウ, 南アフリカ (© Tonino De Marco/Minden Pictures)](https://www.bing.com/th?id=OHR.KrugerLeopard_JA-JP0770741894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-01 | [モディカ, イタリア (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_JA-JP0616823869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-29 | [バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.VermilionCliffs_JA-JP0444568228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
