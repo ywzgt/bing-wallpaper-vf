@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-01 | [Málaga, Andalucia, España (© Manfred Gottschalk/Getty Images)](https://www.bing.com/th?id=OHR.FilmFestivalMalaga_ES-ES5797431476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-02-29 | [Ardilla roja euroasiática (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_ES-ES2689500178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-28 | [Plaza de España, Sevilla, España (© KavalenkavaVolha/Getty images)](https://www.bing.com/th?id=OHR.SevilleAndalusiaDay_ES-ES5223382941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
