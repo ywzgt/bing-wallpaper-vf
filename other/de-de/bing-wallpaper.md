@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Modica, Sizilien, Italien (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_DE-DE7624827179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-01 | [Schmetterlinge auf einer Wiese, Deutschland (© Albert Fertl/Getty Images)](https://www.bing.com/th?id=OHR.Schmetterlingswiese_DE-DE0613438088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-02-29 | [Eurasisches Eichhörnchen (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.LeapingSquirrel_DE-DE7623766811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

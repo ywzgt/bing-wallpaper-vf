@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Modica, Sicilia, Italia (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_ES-ES5949854185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-01 | [Málaga, Andalucía, España (© Manfred Gottschalk/Getty Images)](https://www.bing.com/th?id=OHR.FilmFestivalMalaga_ES-ES1114429111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-01 | [Málaga, Andalucia, España (© Manfred Gottschalk/Getty Images)](https://www.bing.com/th?id=OHR.FilmFestivalMalaga_ES-ES5797431476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
