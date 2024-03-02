@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-03 | [Módica, Sicília, Itália (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.ModicaItaly_PT-BR1634339196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-02 | [Borboletas em um campo na Alemanha (© Albert Fertl/Getty Images)](https://www.bing.com/th?id=OHR.Schmetterlingswiese_PT-BR1454975701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-01 | [Filhotes de coruja-buraqueira recém-nascidos, Pantanal (© Bence Mate/Minden)](https://www.bing.com/th?id=OHR.Owlchicks_PT-BR1285033341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
