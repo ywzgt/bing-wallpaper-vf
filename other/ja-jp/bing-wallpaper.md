@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-04 | [アレナル火山, コスタリカ (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.ArenalCostaRica_JA-JP1112345495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-03 | [下鴨神社の流し雛, 京都 (© masahiro Makino/Getty Images)](https://www.bing.com/th?id=OHR.Hinamatsuri2024_JA-JP0939071176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-02 | [クルーガー国立公園のヒョウ, 南アフリカ (© Tonino De Marco/Minden Pictures)](https://www.bing.com/th?id=OHR.KrugerLeopard_JA-JP0770741894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
