@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-06 | [ワクレラ滝, 米国 オレゴン州 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_JA-JP1412765410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-05 | [バンコク, タイ (© Avigator Fortuner/Shutterstock)](https://www.bing.com/th?id=OHR.BangkokCircle_JA-JP1249849159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-04 | [アレナル火山, コスタリカ (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.ArenalCostaRica_JA-JP1112345495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
