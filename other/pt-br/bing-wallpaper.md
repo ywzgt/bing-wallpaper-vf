@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-08 | [Roques de Benet, Parque Natural Els Ports, Catalunha, Espanha (© Sergi Boixader/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TarragonaSpain_PT-BR3520793083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-07 | [Cachoeiras de Wahclella na garganta do rio Columbia, Oregon, EUA (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WahclellaFalls_PT-BR3300718426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-06 | [Nanday, família dos periquitos, Pantanal (© Pedro Hélder da Costa Pinheiro/Getty Images)](https://www.bing.com/th?id=OHR.NandayParakeet_PT-BR2771660938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
