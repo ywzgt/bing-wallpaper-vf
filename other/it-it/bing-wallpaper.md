@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-09 | [La natura selvaggia del Bisti/De-Na-Zin, Nuovo Messico, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_IT-IT0491354330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-08 | [Tate Modern illuminato di viola, Londra, Inghilterra (© Stephen Chung/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TateLightUp_IT-IT9961329902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-07 | [Roques de Benet, Parco Naturale di Els Ports, Catalogna, Spagna (© Sergi Boixader/Alamy)](https://www.bing.com/th?id=OHR.TarragonaSpain_IT-IT1704210976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
