@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-10 | [サン・ジャシント・ビルの大時計, 米国 テキサス州 (© Richard T. Nowitz/Getty Images)](https://www.bing.com/th?id=OHR.BeaumontClock_JA-JP2519288408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-09 | [ビスティ・デナジン荒野, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_JA-JP2352512218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-08 | [テート・モダン, イギリス ロンドン (© Stephen Chung/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TateLightUp_JA-JP2160540676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
