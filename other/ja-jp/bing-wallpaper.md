@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-12 | [東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)](https://www.bing.com/th?id=OHR.OmizutoriNew_JA-JP3433655435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-11 | [追悼イベントの灯籠, 宮城県 名取市 (© Satoshi Takahashi/Getty Images)](https://www.bing.com/th?id=OHR.Earthquake2024_JA-JP2825640638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-10 | [サン・ジャシント・ビルの大時計, 米国 テキサス州 (© Richard T. Nowitz/Getty Images)](https://www.bing.com/th?id=OHR.BeaumontClock_JA-JP2519288408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
