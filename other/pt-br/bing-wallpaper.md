@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-12 | [Um coala dormindo em uma árvore de eucalipto, Austrália (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_PT-BR9818387982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-11 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BistiBlue_PT-BR3525071051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-10 | [Garça-branca-grande (Ardea alba) em pé em uma lagoa de vitórias-régias, Pantanal (© Geraldi Corsi/Getty Images)](https://www.bing.com/th?id=OHR.ArdeAlba_PT-BR8363660380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
