@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-13 | [Bryce Canyon National Park, Utah, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_EN-GB7209658465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-12 | [A sleeping koala, Australia (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_EN-GB8056580586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-11 | [Mute swan mother and cygnet, Stanpit Marsh, England (© LecartPhotos/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MotheringSundayMuteSwan_EN-GB7947590349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
