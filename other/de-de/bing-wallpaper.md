@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-13 | [Zwergflamingos im Flug über den Magadisee, Kenia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_DE-DE1454409448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-12 | [Bryce-Canyon-Nationalpark, Utah, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_DE-DE0166968518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-11 | [Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_DE-DE9658817284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

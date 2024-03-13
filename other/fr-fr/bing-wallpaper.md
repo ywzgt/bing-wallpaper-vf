@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-13 | [Flamants nains survolant le lac Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_FR-FR1596921851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-12 | [Parc national de Bryce Canyon, Utah, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_FR-FR1248593635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-11 | [Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)](https://www.bing.com/th?id=OHR.SleepyKoala_FR-FR0968348231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
