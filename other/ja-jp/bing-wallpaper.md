@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-14 | [アユタヤ歴史公園にある菩提樹, タイ (© boonchai wedmakawand/Alamy)](https://www.bing.com/th?id=OHR.AyutthayaTree_JA-JP4047642741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-13 | [マガディ湖, ケニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_JA-JP3870887285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-12 | [東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)](https://www.bing.com/th?id=OHR.OmizutoriNew_JA-JP3433655435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
