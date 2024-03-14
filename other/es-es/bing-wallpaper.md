@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-14 | [Wat Phra Ngam, Parque Histórico de Ayutthaya, Tailandia (© boonchai wedmakawand/Alamy)](https://www.bing.com/th?id=OHR.AyutthayaTree_ES-ES7297623437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-13 | [Flamencos enanos sobrevolando el lago Magadi, Kenia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_ES-ES7116146101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-12 | [Parque Nacional del Cañón Bryce, Utah, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_ES-ES6985034687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
