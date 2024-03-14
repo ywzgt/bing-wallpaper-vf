@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-15 | [Alameda de Palmeiras Imperiales in the Botanical Garden of Rio de Janeiro (© Marcia Silva de Mendonca/Getty Images)](https://www.bing.com/th?id=OHR.CancaoDoExilio_PT-BR1504985587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-14 | [Flamingos-pequenos voando sobre o Lago Magadi, Quênia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.MagadiFlamingos_PT-BR0452597039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-13 | [Parque Nacional Bryce Canyon, Utah, EUA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BryceSnow_PT-BR0096570080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
