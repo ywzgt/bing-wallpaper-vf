@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-17 | [Vista aerea dell'Altare della Patria, Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.AltaredellaPatria_IT-IT8301062240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-16 | [Panda gigante che mangia bambù, Chengdu, Cina (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BambooPanda_IT-IT5188324890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-15 | [Parco Statale del Deserto di Anza-Borrego, California, Stati Uniti (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_IT-IT1728403447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
