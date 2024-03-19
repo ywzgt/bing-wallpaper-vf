@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-19 | [Papà e piccolo di volpe rossa, Washington, Stati Uniti (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFox_IT-IT0563708572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-18 | [Elephant Rock, Al-Ula, Arabia Saudita (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_IT-IT7160275980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-17 | [Vista aerea dell'Altare della Patria, Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.AltaredellaPatria_IT-IT8301062240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

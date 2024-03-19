@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-19 | [Zorro rojo con su cachorro en Washington (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFox_ES-ES2820174785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-18 | [Roca del Elefante, Al-Ula, Arabia Saudí (© Lubo Ivanko/Shutterstock)](https://www.bing.com/th?id=OHR.ElephantRock_ES-ES8654521374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-17 | [St. Finian's Bay, Condado de Kerry, Irlanda (© Atlantide Phototravel/Getty Images)](https://www.bing.com/th?id=OHR.StFiniansBay_ES-ES8366850024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
