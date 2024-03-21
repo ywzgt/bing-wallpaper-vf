@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-21 | [Bosque Nacional Impenetrable de Bwindi, Uganda (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_ES-ES9010079935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-20 | [Rana de árbol sobre hoja (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_ES-ES8842639194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-19 | [Zorro rojo con su cachorro en Washington (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFox_ES-ES2820174785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

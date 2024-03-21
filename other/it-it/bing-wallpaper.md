@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-21 | [Foresta Nazionale Impenetrabile di Bwindi, Uganda (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_IT-IT7927335166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-20 | [Cave Dale e Peveril Castle a Castleton, Derbyshire Peak District, Inghilterra (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_IT-IT3874246493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-19 | [Papà e piccolo di volpe rossa, Washington, Stati Uniti (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFox_IT-IT0563708572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
