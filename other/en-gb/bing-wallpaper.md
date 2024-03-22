@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-23 | [Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_EN-GB8519481849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-22 | [Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_EN-GB8408921240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-21 | [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.SpringFrog_EN-GB9074192994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
