@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-23 | [アマゾン上空の積乱雲, ブラジル (© NASA)](https://www.bing.com/th?id=OHR.AmazonClouds_JA-JP3921092390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-22 | [テ・ワイホウ・ウォークウェイ, ニュージーランド  (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_JA-JP3608135323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-21 | [ブウィンディ原生国立公園, ウガンダ (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_JA-JP5771338834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

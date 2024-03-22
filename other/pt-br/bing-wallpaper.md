@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-23 | [Rio Azul, Te Waihou Passagem,Nova Zelândia (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_PT-BR9033741044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-23 | [Rio Azul, Te Waihou Passagem,Nova Zelândia (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_PT-BR6097354065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-22 | [Floresta Nacional Impenetrável de Bwindi, Uganda (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.BwindiNationalForest_PT-BR3676820157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
