@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-24 | [Coppia di occhialino dorsogrigio su un ramo di ciliegio, Sud Corea (© TigerSeo/Getty Images)](https://www.bing.com/th?id=OHR.WhiteEyes_IT-IT2367465138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-23 | [Nuvole sulla foresta Amazzonica in Brasile (© NASA)](https://www.bing.com/th?id=OHR.AmazonClouds_IT-IT1860560546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-22 | [Blue Spring, Te Waihou Walkway, Nuova Zelanda (© Ian Beattie/Alamy)](https://www.bing.com/th?id=OHR.WaikatoWater_IT-IT0972621598_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
