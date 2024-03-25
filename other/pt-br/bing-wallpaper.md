@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [Devotos hindus brincam com pós coloridos durante o Holi, na Índia (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_PT-BR7363563541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-25 | [Ave Silvereyes em um ramo de flor de cerejeira, Coreia do Sul (© TigerSeo/Getty Images)](https://www.bing.com/th?id=OHR.WhiteEyes_PT-BR8910495803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-24 | [Poço encantado em Chapada Diamantina, Bahia (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.ChapadaDiamantinaBahia_PT-BR8776626015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
