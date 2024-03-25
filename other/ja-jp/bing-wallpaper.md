@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [目黒川沿いの桜, 東京 (© twomeows/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossom2024_JA-JP4820412066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-25 | [カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_JA-JP4638350581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-24 | [オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_JA-JP4419409957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
