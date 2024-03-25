@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-25 | [Devotos hindúes juegan con polvos de colores durante Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_ES-ES7983447833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-24 | [Anteojitos dorsigrís en una rama de cerezo en flor, Corea del Sur (© TigerSeo/Getty Images)](https://www.bing.com/th?id=OHR.WhiteEyes_ES-ES7879462917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-23 | [Ria de Vigo, Vigo, España (© JulioConde/Getty Images)](https://www.bing.com/th?id=OHR.ReconquistaVigo_ES-ES1686192678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
