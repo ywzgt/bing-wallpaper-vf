@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [Meerwasser fällt in Kaskaden über ein altes Korallenriff, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_DE-DE4086995351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-25 | [Hinduistische Gläubige spielen mit bunten Pulvern während Holi, Indien (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_DE-DE3992457522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-24 | [Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)](https://www.bing.com/th?id=OHR.ViewFieldsBavaria_DE-DE3928372966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
