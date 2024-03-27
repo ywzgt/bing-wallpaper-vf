@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-28 | [ハンライ, ベトナム (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_JA-JP5262793326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-27 | [テアトロ・コロン, アルゼンチン (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_JA-JP5032198346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-26 | [目黒川沿いの桜, 東京 (© twomeows/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossom2024_JA-JP4820412066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
