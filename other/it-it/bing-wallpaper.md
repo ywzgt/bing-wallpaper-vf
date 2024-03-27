@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-27 | [Teatro Colón di Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_IT-IT6266704589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-26 | [Expo Business Center, Milano, Italia (© photovideostock/Getty Images)](https://www.bing.com/th?id=OHR.Milanbusinesscenter_IT-IT6797515629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-25 | [Festeggiamenti durante l'Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://www.bing.com/th?id=OHR.ColorfulHoli_IT-IT7690011331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

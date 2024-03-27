@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-27 | [Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_FR-FR8848862049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-26 | [Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_FR-FR8788707911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-25 | [Une biche dans un champ de colza, lac de Serre-Ponçon, Chorges, Hautes-Alpes, France (© Alain Bachellier/Getty Images)](https://www.bing.com/th?id=OHR.ProcrastinationDay_FR-FR8703277811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
