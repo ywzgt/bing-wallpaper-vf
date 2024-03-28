@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-29 | [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_EN-GB3832708958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-28 | [The Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.TeatroColon_EN-GB2271752304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-27 | [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_EN-GB3016593740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
