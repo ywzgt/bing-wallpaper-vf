@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-29 | [Flores de cerejeira em Xangai, China (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_PT-BR9791195331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-28 | [Teatro Colón em Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://www.bing.com/th?id=OHR.TeatroColon_PT-BR9483499387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-27 | [Cascata de água do mar sobre um antigo recife de coral, Hang Rai, Vietnã (© Thang Tat Nguyen/Getty Images)](https://www.bing.com/th?id=OHR.HangRaiVietnam_PT-BR9135997938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
