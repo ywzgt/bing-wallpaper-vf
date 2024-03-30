@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-30 | [Bradipo tridattilo dal collo marrone che dorme su un albero di cecropia, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_IT-IT7892909153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-29 | [Faro di South Stack al tramonto, Holyhead, Galles, Regno Unito (© mariotlr/Getty Images)](https://www.bing.com/th?id=OHR.SouthStackLight_IT-IT5123694912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-28 | [Fiori di ciliegio a Shanghai, in Cina (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_IT-IT7775972818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
