@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-31 | [Bicho-preguiça dormindo em uma embaúba, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_PT-BR0186395932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-30 | [Igreja do Nosso Senhor do Bonfim, Pelourinho (© Grafissimo/Getty images)](https://www.bing.com/th?id=OHR.AniversarioSalvador_PT-BR0763407699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-29 | [Flores de cerejeira em Xangai, China (© Yaorusheng/Getty Images)](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_PT-BR9791195331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
