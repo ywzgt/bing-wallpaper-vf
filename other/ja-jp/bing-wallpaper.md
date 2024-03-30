@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-31 | [カラフルにペイントされたイースターエッグ, ハンガリー (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_JA-JP9558688915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-03-30 | [セクロピアの木で眠るナマケモノ, コスタリカ (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.SleepySloth_JA-JP5634281010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-29 | [サウススタック灯台, イギリス (© mariotlr/Getty Images)](https://www.bing.com/th?id=OHR.SouthStackLight_JA-JP5461690758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
