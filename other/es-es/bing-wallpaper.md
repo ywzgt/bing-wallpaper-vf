@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Hayas y anémonas silvestres, Jutlandia, Dinamarca (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_ES-ES9886348843_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-01 | [Obra del artista JR, "Vanishing Point", en la fachada del Palacio Farnesio de Roma, Italia (© Fabrizio Troiani/Alamy)](https://www.bing.com/th?id=OHR.PalazzoFarnese_ES-ES9713992360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-31 | [Huevos de Pascua de Tünde Csuhaj, Szekszárd, Hungría (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_ES-ES9484985742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

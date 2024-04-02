@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Faggi e anemoni selvatici, Jutland, Danimarca (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_IT-IT3723976885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-01 | ["Vanishing Point" dell'artista francese JR copre la facciata del Palazzo Farnese, Roma, Italia (© Fabrizio Troiani/Alamy)](https://www.bing.com/th?id=OHR.PalazzoFarnese_IT-IT8737632028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-31 | [Uova di Pasqua di Tünde Csuhaj, Szekszárd, Ungheria (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_IT-IT8993577928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

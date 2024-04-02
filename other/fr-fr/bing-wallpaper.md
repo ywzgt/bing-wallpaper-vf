@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Hêtres et anémones sauvages, Jutland, Danemark (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_FR-FR9511410007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-01 | [L'œuvre « Vanishing Point » de l'artiste de rue français JR sur la façade du Palais Farnèse, Rome, Italie (© Fabrizio Troiani/Alamy)](https://www.bing.com/th?id=OHR.PalazzoFarnese_FR-FR9572652511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-03-31 | [Œufs de Pâques réalisés par Tünde Csuhaj, Szekszárd, Hongrie (© ATTILA KISBENEDEK/AFP/Getty Images)](https://www.bing.com/th?id=OHR.HungarianEggs_FR-FR9262429239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
