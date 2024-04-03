@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-03 | [Ein Regenbogen im Bezirk Atbaschy, Kakshaal Too-Gebirge, Naryn, Kirgisistan (© Emad aljumah/Getty Images)](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_DE-DE6804066855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-02 | [Buchen und wilde Buschwindröschen, Jütland, Dänemark (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_DE-DE6705207300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-01 | [Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)](https://www.bing.com/th?id=OHR.StGeorgiRide_DE-DE6646277481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
