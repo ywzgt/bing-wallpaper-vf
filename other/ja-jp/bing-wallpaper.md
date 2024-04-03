@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-04 | [吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.YoshinoyamaSpring_JA-JP6657067611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-03 | [カクシャール・ツー山にかかる虹, キルギス (© Emad aljumah/Getty Images)](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_JA-JP6458656191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-02 | [ユトランド半島の風景, デンマーク (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_JA-JP6178777806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
