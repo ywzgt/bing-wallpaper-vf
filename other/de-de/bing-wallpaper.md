@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-04 | [Rote Letschwe-Herde beim Durchqueren der sumpfigen Ebene des Okavangodeltas, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_DE-DE6866899384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-03 | [Ein Regenbogen im Bezirk Atbaschy, Kakshaal Too-Gebirge, Naryn, Kirgisistan (© Emad aljumah/Getty Images)](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_DE-DE6804066855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-02 | [Buchen und wilde Buschwindröschen, Jütland, Dänemark (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.JutlandSpring_DE-DE6705207300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
