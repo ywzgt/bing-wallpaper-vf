@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [Die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_DE-DE5829125320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-04 | [Rote Letschwe-Herde beim Durchqueren der sumpfigen Ebene des Okavangodeltas, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_DE-DE6866899384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-03 | [Ein Regenbogen im Bezirk Atbaschy, Kakshaal Too-Gebirge, Naryn, Kirgisistan (© Emad aljumah/Getty Images)](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_DE-DE6804066855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
