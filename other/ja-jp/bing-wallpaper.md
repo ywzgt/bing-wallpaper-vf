@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-06 | [姫路城, 兵庫県 姫路市 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_JA-JP3641774172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-05 | [バハマ諸島, バハマ (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_JA-JP3451367539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-04 | [吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.YoshinoyamaSpring_JA-JP6657067611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
