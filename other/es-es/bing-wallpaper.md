@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-06 | [Pont del Bisbe, Barrio Gótico de Barcelona, España (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.NeogothicBarcelona_ES-ES5800770786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-05 | [Las Bahamas fotografiadas desde la Estación Espacial Internacional (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_ES-ES5387689014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-04 | [Manada de antílopes Lechwe cruzando la llanura pantanosa del delta del Okavango, Botsuana (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_ES-ES0796068308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
