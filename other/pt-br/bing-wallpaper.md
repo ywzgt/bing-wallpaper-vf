@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-07 | [O Castelo de Himeji, Himeji, Prefeitura de Hyōgo, Japão (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_PT-BR1183252233_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-06 | [As Bahamas fotografadas da Estação Espacial Internacional (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_PT-BR0940093186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-05 | [Rebanho de cobo-de-leche vermelho cruzando a planície pantanosa do Delta do Okavango, Botsuana (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.AntelopeBotswana_PT-BR1126611308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
