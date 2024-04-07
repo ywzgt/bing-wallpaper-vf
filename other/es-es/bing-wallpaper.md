@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-07 | [Castor norteamericano en un estanque cerca del lago Wonder, Parque Nacional Denali, Alaska, EE.UU. (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_ES-ES5993015272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-06 | [Pont del Bisbe, Barrio Gótico de Barcelona, España (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.NeogothicBarcelona_ES-ES5800770786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-05 | [Las Bahamas fotografiadas desde la Estación Espacial Internacional (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_ES-ES5387689014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-07 | [Kanadischer Biber in einem Teich in der Nähe des Wonder Lake, Denali-Nationalpark, Alaska, USA (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_DE-DE4088011437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-06 | [Himeji Burg, Himeji, Hyōgo Präfektur, Japan (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_DE-DE3876117869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-05 | [Die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_DE-DE5829125320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

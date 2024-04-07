@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-07 | [Castor du Canada dans un étang près du lac Wonder, parc national de Denali, Alaska, États-Unis (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_FR-FR4899490419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-06 | [Château de Himeji, Hyōgo, Japon (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_FR-FR4643255326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-05 | [Les Bahamas vues depuis la Station spatiale internationale (© NASA)](https://www.bing.com/th?id=OHR.BahamasSpace_FR-FR2737935866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
