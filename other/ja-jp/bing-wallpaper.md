@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-08 | [リンゴの果樹園, ドイツ (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_JA-JP3983835058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-07 | [デナリ国立公園のアメリカビーバー, 米国 アラスカ州  (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_JA-JP3797917391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-06 | [姫路城, 兵庫県 姫路市 (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_JA-JP3641774172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
