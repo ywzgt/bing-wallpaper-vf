@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Vista aérea da cidade de Cuiabá e do rio Cuiabá, Mato Grosso (© Lucas Ninno/Getty Images)](https://www.bing.com/th?id=OHR.CuiabaAniversary_PT-BR5141528738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-08 | [Castor norte-americano em uma lagoa perto de Wonder Lake, Parque Nacional Denali, Alasca, EUA (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_PT-BR1390611449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-07 | [O Castelo de Himeji, Himeji, Prefeitura de Hyōgo, Japão (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.JapanHimeji_PT-BR1183252233_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
