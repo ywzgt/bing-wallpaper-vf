@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Campos de tulipanes en primavera, Velle de Skagit, Washington, EE.UU. (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_ES-ES6696432400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-08 | [Erizo de pecho marrón en un jardín con dientes de león, Bad Driburg, Renania del Norte-Westfalia, Alemania (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_ES-ES6542510858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-07 | [Castor norteamericano en un estanque cerca del lago Wonder, Parque Nacional Denali, Alaska, EE.UU. (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_ES-ES5993015272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

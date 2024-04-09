@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Tulip fields, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_EN-GB3144179284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-08 | [Llansteffan Castle, Carmarthenshire, Wales (© Roy Shakespeare/Loop Images Ltd/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LlansteffanCastleWales_EN-GB2601161101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-07 | [North American beaver in a pond near Wonder Lake, Denali National Park, Alaska, USA (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_EN-GB1771360512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

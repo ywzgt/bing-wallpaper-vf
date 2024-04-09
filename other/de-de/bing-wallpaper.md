@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Tulpenfelder im Frühling, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_DE-DE4476556053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-08 | [Braunbrustigel in einem Garten mit Löwenzahn, Bad Driburg, Nordrhein-Westfalen (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_DE-DE4306396811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-07 | [Kanadischer Biber in einem Teich in der Nähe des Wonder Lake, Denali-Nationalpark, Alaska, USA (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDenali_DE-DE4088011437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
