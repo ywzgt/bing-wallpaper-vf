@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-10 | [アナホリフクロウ, 米国 ワイオミング州 (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_JA-JP4322199651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-09 | [スカジットバレー, 米国 ワシントン州 (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_JA-JP4166297873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-08 | [リンゴの果樹園, ドイツ (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_JA-JP3983835058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
