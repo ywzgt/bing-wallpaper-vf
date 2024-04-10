@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-10 | [Pulcini di gufo di tana vicino a una tana, Wyoming, Stati Uniti (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_IT-IT3656877654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-09 | [Dune di sale nelle saline, Sardegna, Italia (© Stefano Oppo/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaSalt_IT-IT3748947428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-08 | [Riccio europeo in un prato, Bad Driburg, Germania (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_IT-IT3829622276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

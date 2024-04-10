@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-10 | [Polluelos de mochuelo de madriguera, Wyoming, EE.UU. (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_ES-ES3032029640_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-09 | [Campos de tulipanes en primavera, Velle de Skagit, Washington, EE.UU. (© Claudia Cooper/Getty Images)](https://www.bing.com/th?id=OHR.SkagitValleyTulips_ES-ES6696432400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-08 | [Erizo de pecho marrón en un jardín con dientes de león, Bad Driburg, Renania del Norte-Westfalia, Alemania (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_ES-ES6542510858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
