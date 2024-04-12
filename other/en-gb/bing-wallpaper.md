@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-12 | [North Window with Turret Arch in the distance, Arches National Park, Utah, USA (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_EN-GB5962271625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-11 | [Aerial view of the Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_EN-GB5111698733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-10 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_EN-GB3722989537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
