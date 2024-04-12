@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)](https://www.bing.com/th?id=OHR.ShibaZakura2024_JA-JP5037441018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-12 | [アーチーズ国立公園, 米国 ユタ州 (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_JA-JP4875080007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-11 | [チュルン・メルー滝, ベネズエラ (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_JA-JP4588588498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
