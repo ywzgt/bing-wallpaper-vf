@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [Jardim botânico de Curitiba, Paraná (© Marcelo Araujo/Getty Images)](https://www.bing.com/th?id=OHR.Curitiba_PT-BR8811404397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-12 | [Vista aérea da catarata Churun-Meru (Dragão), Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_PT-BR5875441012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-11 | [Filhotes de coruja-buraqueira perto de uma toca, Wyoming, EUA (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.OwlSiblings_PT-BR5674103316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
