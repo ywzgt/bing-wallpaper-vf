@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)](https://www.bing.com/th?id=OHR.LyonGastronomy_FR-FR6987706290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-12 | [Lumière du soir sur la North Window avec l'arche Turret en fond, Parc national des Arches, Utah, États-Unis (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_FR-FR6671864096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-11 | [Vue aérienne de la cascade de Churun-Meru, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DragonWaterfall_FR-FR6498141179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
