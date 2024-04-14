@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-GB8164059079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-13 | [The Grand National at Aintree Racecourse, England (© Tim Goode/Pool/Getty Images)](https://www.bing.com/th?id=OHR.GrandNationalDayUK_EN-GB7349486395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-12 | [North Window with Turret Arch in the distance, Arches National Park, Utah, USA (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_EN-GB5962271625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Bailadoras en la Feria de Sevilla, España (© Pepitoko/Getty Images)](https://www.bing.com/th?id=OHR.FeriaDeSevilla_ES-ES8766768902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-13 | [Manzanos en primavera, Alemania (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_ES-ES7671231855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-12 | [Luz del atardecer en el Parque Nacional de Arches, Utah, EE.UU. (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_ES-ES7566145703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
