@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_JA-JP5377417723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-14 | [ボーリングボール・ビーチ, 米国 カリフォルニア州 (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_JA-JP1174732417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-13 | [富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)](https://www.bing.com/th?id=OHR.ShibaZakura2024_JA-JP5037441018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

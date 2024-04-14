@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [Die Kunstinstallation RedBall Project, Bahnhof Antwerpen-Centraal, Belgien (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_DE-DE7374714252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-14 | [Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)](https://www.bing.com/th?id=OHR.WeenerPrimroses_DE-DE5775502209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-13 | [Apfelbäume im Frühling, Deutschland (© Smileus/Getty Images)](https://www.bing.com/th?id=OHR.SpringApple_DE-DE5480839920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
