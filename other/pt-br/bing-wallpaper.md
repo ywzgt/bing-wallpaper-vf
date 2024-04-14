@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [Pôr do sol em Praia das Bolas de Boliche, Condado de Mendocino, Califórnia, EUA (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_PT-BR6942653750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-14 | [Luz noturna sobre a North Window com o Arco Turret à distância, Parque Nacional dos Arcos, Utah, EUA (© Anthony Heflin/Shutterstock)](https://www.bing.com/th?id=OHR.SunsetArchesNP_PT-BR6301905431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-13 | [Jardim botânico de Curitiba, Paraná (© Marcelo Araujo/Getty Images)](https://www.bing.com/th?id=OHR.Curitiba_PT-BR8811404397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
