@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-16 | [Union Square in Lower Manhattan, New York, USA (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_EN-GB2643158378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-15 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_EN-GB2394850317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-14 | [Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)](https://www.bing.com/th?id=OHR.BowlingBallCali_EN-GB8164059079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
