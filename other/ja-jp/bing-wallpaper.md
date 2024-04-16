@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-17 | [シェナンドー国立公園, 米国 バージニア州 (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_JA-JP5808009798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-16 | [ユニオンスクエア, 米国 ニューヨーク (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_JA-JP5528212006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-15 | [アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_JA-JP5377417723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
