@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-17 | [Amerikanisches Schwarzbärenjunges im Frühling, Shenandoah-Nationalpark, Virginia, USA (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_DE-DE5388419505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-16 | [Union Square in Lower Manhattan, New York City, USA (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_DE-DE5106138170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-15 | [Die Kunstinstallation RedBall Project, Bahnhof Antwerpen-Centraal, Belgien (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_DE-DE7374714252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
