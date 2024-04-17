@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-18 | [Filhote de urso negro americano na primavera, Parque Nacional Shenandoah, Virgínia, EUA (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_PT-BR7805959671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-17 | ['Union Square' em Manhattan no crepúsculo, Nova York, EUA (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_PT-BR7552214578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-16 | [Instalação artística do 'RedBall Project', Estação Central, Antuérpia, Bélgica (© Brit Worgan/Getty Images)](https://www.bing.com/th?id=OHR.RedBallBelgium_PT-BR7344009835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
