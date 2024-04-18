@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-18 | [Mura medievali della città, Ávila, Spagna (© Alberto Loyo/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_IT-IT3101409748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-17 | [Cucciolo di orso nero americano in primavera, Parco Nazionale di Shenandoah, Virginia, USA (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_IT-IT3204058586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-16 | [Union Square a Lower Manhattan al crepuscolo, New York, USA (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.UnionSquareNYC_IT-IT3337017060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
