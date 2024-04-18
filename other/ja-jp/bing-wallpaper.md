@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-19 | [リング・オブ・ブロッガー, スコットランド (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_JA-JP3906042620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-18 | [アビラの城壁, スペイン (© Alberto Loyo/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_JA-JP6005661298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-17 | [シェナンドー国立公園, 米国 バージニア州 (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_JA-JP5808009798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
