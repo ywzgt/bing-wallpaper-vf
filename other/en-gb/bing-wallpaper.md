@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-19 | [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_EN-GB3162909571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-18 | [Medieval city walls, Ávila, Spain (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_EN-GB3098487745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-17 | [American black bear cub in spring, Shenandoah National Park, Virginia, USA (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.SpringCub_EN-GB2876346932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
