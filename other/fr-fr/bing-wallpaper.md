@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-20 | [Le Grand Prismatic Spring au lever du soleil, parc national de Yellowstone, Wyoming, États-Unis (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_FR-FR1968699876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-19 | [Le cercle de Brodgar, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_FR-FR1638921700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-18 | [Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)](https://www.bing.com/th?id=OHR.MonumentsDay_FR-FR8787138664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

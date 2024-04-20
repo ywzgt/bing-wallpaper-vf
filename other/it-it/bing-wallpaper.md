@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-20 | [La Grande Sorgente Prismatica all’alba, Parco Nazionale di Yellowstone, Wyoming, Stati Uniti (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_IT-IT0943670017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-19 | [Palazzo dei Priori, Perugia, Italia (© Photo Beto/Getty Images)](https://www.bing.com/th?id=OHR.PerugiaPriori_IT-IT0077173597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-18 | [Mura medievali della città, Ávila, Spagna (© Alberto Loyo/Getty Images)](https://www.bing.com/th?id=OHR.AvilaSpain_IT-IT3101409748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
