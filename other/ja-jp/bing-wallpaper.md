@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-21 | [グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_JA-JP4163759564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-20 | [イエローストーン国立公園の熱水泉, 米国 ワイオミング州 (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_JA-JP4045047908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-19 | [リング・オブ・ブロッガー, スコットランド (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_JA-JP3906042620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
