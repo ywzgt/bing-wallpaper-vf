@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-21 | [Sparks Lane en Cades Cove, Parque Nacional de las Grandes Montañas Humeantes, Tennessee, EE.UU. (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_ES-ES1523935320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-20 | [Gran Fuente Prismática al amanecer, Parque Nacional de Yellowstone, Wyoming, EE.UU. (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ES-ES1324165406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-19 | [El Anillo de Brodgar, Orcadas, Escocia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_ES-ES1176985734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
