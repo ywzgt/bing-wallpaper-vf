@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [トリニティ・カレッジ図書館, アイルランド (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_JA-JP4414218998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-22 | [アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_JA-JP4280227627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-21 | [グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_JA-JP4163759564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
