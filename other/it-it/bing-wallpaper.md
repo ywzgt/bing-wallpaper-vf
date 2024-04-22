@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-22 | [Un esemplare di tartaruga verde, San Diego, California, Stati Uniti (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_IT-IT4132854501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-21 | [Vicolo delle scintille a Cades Cove, Parco Nazionale delle montagne Great Smoky,Tennessee, Stati Uniti (© Richard Bernabe/Shutterstock)](https://www.bing.com/th?id=OHR.CadesCove_IT-IT3109778366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-20 | [La Grande Sorgente Prismatica all’alba, Parco Nazionale di Yellowstone, Wyoming, Stati Uniti (© XIN WANG/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneGeyser_IT-IT0943670017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
