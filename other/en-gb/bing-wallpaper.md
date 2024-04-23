@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [Painting titled 'Saint George and the Dragon' by Paolo Uccello (© Photo 12/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.SaintGeorgePaoloUccello_EN-GB4189497272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-22 | [Green sea turtle, San Diego, California, USA (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-GB3948660559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-21 | [London Marathon in London on April 23, 2017 (© CHRIS J RATCLIFFE/Stringer/AFP/Getty Images)](https://www.bing.com/th?id=OHR.LondonMarathon2017_EN-GB9757388511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
