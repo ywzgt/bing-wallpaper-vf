@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [Biblioteca da Universidade Trinity, Dublin, Irlanda (© Vincent Isore/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_PT-BR4634069744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-24 | [Biblioteca da Universidade Trinity, Dublin, Irlanda (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_PT-BR3116849937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-23 | [Tartaruga-verde, San Diego, Califórnia, EUA (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_PT-BR2849722316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-24 | [White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://www.bing.com/th?id=OHR.TrilliumOntario_EN-GB4411437530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-23 | [Painting titled 'Saint George and the Dragon' by Paolo Uccello (© Photo 12/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.SaintGeorgePaoloUccello_EN-GB4189497272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-22 | [Green sea turtle, San Diego, California, USA (© Ralph Pace/Minden Pictures)](https://www.bing.com/th?id=OHR.EarthDayTurtle_EN-GB3948660559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
