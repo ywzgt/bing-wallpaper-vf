@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-25 | [Frecce Tricolori in volo, Giornata della Liberazione, Roma (© Marie-Laure Messana/Getty Images)](https://www.bing.com/th?id=OHR.LiberationOfItaly_IT-IT5702803658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-24 | [Trillio Bianco in fioritura in Ontario, Canada (© Jun Zhang/Getty Images)](https://www.bing.com/th?id=OHR.TrilliumOntario_IT-IT6051725546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-23 | [Biblioteca Trinity College di Dublino, Irlanda (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TrinityDublin_IT-IT5100279268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
