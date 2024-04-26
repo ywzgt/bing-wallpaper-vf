@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_JA-JP4843663786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-26 | [オリンピック国立公園にある不思議な木, 米国 ワシントン州 (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_JA-JP4733041534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-25 | [氷山の上に立つアデリーペンギン, 南極大陸 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_JA-JP4629543570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
