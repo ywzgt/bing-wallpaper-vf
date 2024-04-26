@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-26 | [Arbre de Kalaloch, alias l'arbre de vie, plage de Kalaloch, parc national olympique, Washington, États-Unis (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_FR-FR8329014212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-25 | [Manchots Adélie sur un iceberg, Antarctique (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_FR-FR7724304898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-24 | [Floraison du trille blanc, Ontario, Canada (© Jun Zhang/Getty Images)](https://www.bing.com/th?id=OHR.TrilliumOntario_FR-FR7322477820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
