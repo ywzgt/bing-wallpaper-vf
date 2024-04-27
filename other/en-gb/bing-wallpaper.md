@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [Leucistic Anna's Hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_EN-GB5146934481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-26 | [Kalaloch Tree, aka the tree of life, Kalaloch Beach, Olympic National Park, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_EN-GB4909909836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-25 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_EN-GB4668084701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

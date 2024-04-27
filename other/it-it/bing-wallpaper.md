@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [Colibrì leucistico di Anna, Australia Garden, UCSC Arboretum, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_IT-IT7331627780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-26 | [Albero di Kalaloch, alias l'albero della vita, Kalaloch Beach, Parco Nazionale di Olympic, Washington, Stati Uniti (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_IT-IT7011475645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-25 | [Frecce Tricolori in volo, Giornata della Liberazione, Roma (© Marie-Laure Messana/Getty Images)](https://www.bing.com/th?id=OHR.LiberationOfItaly_IT-IT5702803658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
