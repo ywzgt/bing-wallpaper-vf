@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-28 | [Beija-flor leucístico de Anna no Jardim da Austrália, UCSC Arboretum, Santa Cruz, Califórnia, EUA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_PT-BR4306978820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-27 | [Árvore de Kalaloch, conhecida como a árvore da vida, Praia de Kalaloch, Parque Nacional Olímpico, Washington, EUA (© Abbie Warnock-Matthews/Shutterstock)](https://www.bing.com/th?id=OHR.KalalochTree_PT-BR4023725758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-26 | [Pinguins-de-Adélia em um iceberg, Antártica (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_PT-BR3690073340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
