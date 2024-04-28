@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-28 | [El Capitan bei Sonnenaufgang im Guadalupe-Mountains-Nationalpark, Texas, USA (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_DE-DE2699373436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-27 | [Annakolibri im Australischen Garten, UCSC Arboretum, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_DE-DE2322778119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-26 | [Adeliepinguine auf einem Eisberg, Antarktis (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.PenguinDirections_DE-DE2082660344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
