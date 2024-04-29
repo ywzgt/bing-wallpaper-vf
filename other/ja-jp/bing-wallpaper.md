@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-30 | [ンゴロンゴロ保全地域, タンザニア  (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_JA-JP5165159755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-29 | [福建土楼の鳥瞰図, 中国 福建省 (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_JA-JP5056058159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-28 | [グアダルーペ山脈国立公園, 米国 テキサス州 (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_JA-JP4951023881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
