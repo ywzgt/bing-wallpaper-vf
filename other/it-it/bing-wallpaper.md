@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-29 | [Fujian Tulou, edifici del patrimonio storico e culturale della provincia del Fujian, Cina (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_IT-IT7939512907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-28 | [El Capitan all'alba nel Parco Nazionale delle Montagne di Guadalupe, Texas, USA (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_IT-IT7610169822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-27 | [Colibrì leucistico di Anna, Australia Garden, UCSC Arboretum, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.LeucisticHummingbird_IT-IT7331627780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
