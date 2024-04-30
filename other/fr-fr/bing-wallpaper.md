@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-30 | [Guépard sous la pluie, plaines de Ndutu, zone de conservation du Ngorongoro, Tanzanie (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_FR-FR0543352581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-29 | [Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_FR-FR9745511197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-28 | [El Capitan au lever du soleil, parc national des Guadalupe Mountains, Texas, États-Unis (© Adam Mowery/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GuadalupeTexas_FR-FR9507308056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
