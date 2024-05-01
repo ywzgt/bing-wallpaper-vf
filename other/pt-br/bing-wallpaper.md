@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [Real Gabinete Portugues de Leitura, Rio de Janeiro (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.DiadaLiteraturaBrasileira_PT-BR6259851380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-01 | [Guepardo na chuva da manhã, Planícies de Ndutu, Área de Conservação de Ngorongoro, Tanzânia (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_PT-BR5107827451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-30 | [Tulou de Fuquiém, edifícios de patrimônio histórico e cultural na província de Fuquiém, China (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_PT-BR4910373349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
