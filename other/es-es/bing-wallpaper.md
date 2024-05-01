@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-01 | [Guirnaldas de flores de lei hawaianas (© Jotika Pun/Shutterstock)](https://www.bing.com/th?id=OHR.HawaiianLei_ES-ES3282014146_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-04-30 | [Guepardo bajo la lluvia matutina, Llanuras de Ndutu, Área de Conservación del Ngorongoro, Tanzania (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_ES-ES2760167365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-29 | [Tulou de Fujian, edificios del patrimonio histórico y cultural de la provincia de Fujian, China (© Hongjie Han/Getty Images)](https://www.bing.com/th?id=OHR.TulouFujian_ES-ES2621683417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
