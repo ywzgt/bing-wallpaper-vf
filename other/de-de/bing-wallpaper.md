@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_DE-DE3535189706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-01 | [Weg durch den Gespensterwald bei Sonnenaufgang, Nienhagen, Mecklenburg-Vorpommern (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.NienhagenMecklenburg_DE-DE3604963569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-04-30 | [Gepard im Morgenregen, Ndutu-Region, Ngorongoro, Tansania (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_DE-DE3160302306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
