@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-03 | [Fluxo de lava Dragão Azul, Monumento e Reserva Nacional Crateras da Lua, Idaho, EUA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_PT-BR6520589652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-02 | [Real Gabinete Portugues de Leitura, Rio de Janeiro (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.DiadaLiteraturaBrasileira_PT-BR6259851380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-01 | [Guepardo na chuva da manhã, Planícies de Ndutu, Área de Conservação de Ngorongoro, Tanzânia (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.CheetahRain_PT-BR5107827451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
