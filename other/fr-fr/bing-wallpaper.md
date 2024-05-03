@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-03 | [Encelia farinose en fleur dans le désert de Sonora, Arizona, États-Unis (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_FR-FR5225084633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-02 | [Coulée de lave du Dragon Bleu, Monument national des Cratères de la Lune, Idaho, États-Unis (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_FR-FR1896950585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-01 | [Colliers de fleurs hawaïens (© Jotika Pun/Shutterstock)](https://www.bing.com/th?id=OHR.HawaiianLei_FR-FR1676452706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

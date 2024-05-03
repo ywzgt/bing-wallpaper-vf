@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-03 | [Brittlebushes blooming in springtime, Sonoran Desert, Arizona, USA (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_EN-GB6882953741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-02 | [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_EN-GB6307433192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-01 | [Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)](https://www.bing.com/th?id=OHR.HawaiianLei_EN-GB6017463804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
