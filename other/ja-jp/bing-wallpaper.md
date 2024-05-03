@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-04 | [シュケリッグ・ヴィヒルの古代修道院跡 , アイルランド (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_JA-JP7788266024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-03 | [ソノラ砂漠, 米国 アリゾナ州 (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_JA-JP1708087750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-02 | [月のクレーター国立公園, 米国 アイダホ州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_JA-JP5423756803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
