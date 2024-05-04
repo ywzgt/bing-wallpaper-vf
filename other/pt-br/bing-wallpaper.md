@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-05 | [As ruínas de um antigo mosteiro na ilha de Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_PT-BR8049739935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-04 | [Colorido atardecer en Pantanal, Brasil (© filipefrazao/Getty Images)](https://www.bing.com/th?id=OHR.DiadoSertanejo_PT-BR9682293877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-03 | [Fluxo de lava Dragão Azul, Monumento e Reserva Nacional Crateras da Lua, Idaho, EUA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_PT-BR6520589652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
