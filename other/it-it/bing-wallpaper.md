@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-04 | [Giro d'Italia, Ciclisti sulle Dolomiti (© Tim de Waele/Staff/Getty Images)](https://www.bing.com/th?id=OHR.GirodItalia2024_IT-IT9407204320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-03 | [Fioritura primaverile dei cespugli, deserto di Sonora, Arizona, Stati Uniti (© Charles Harker/Getty Images)](https://www.bing.com/th?id=OHR.SonoranSpring_IT-IT9351993894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-02 | [Flusso di lava del Drago Blu, Monumento e riserva nazionale Craters of the Moon, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.CratersOfTheMoon_IT-IT8708957821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
