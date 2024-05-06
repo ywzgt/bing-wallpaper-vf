@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [Heidelberg, no rio Neckar, em Baden-Württemberg, Alemanha (© Juergen Sack/Getty Images)](https://www.bing.com/th?id=OHR.RiverNekarHeidelberg_PT-BR6227220024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-06 | [Colunata em San Miguel de Allende, Guanajuato, México (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAllende_PT-BR8483156225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-05 | [As ruínas de um antigo mosteiro na ilha de Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_PT-BR8049739935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
