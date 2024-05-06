@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-06 | [Le rovine di un antico monastero sull'isola di Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_IT-IT4680145020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-05 | [Il Cerchio di Brodgar, Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.OrkneyStones_IT-IT2078101217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-04 | [Giro d'Italia, Ciclisti sulle Dolomiti (© Tim de Waele/Staff/Getty Images)](https://www.bing.com/th?id=OHR.GirodItalia2024_IT-IT9407204320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
