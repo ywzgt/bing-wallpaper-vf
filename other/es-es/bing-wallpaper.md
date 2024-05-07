@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [Un patito nadando en un estanque, Suffolk, Inglaterra (© Nick Hurst/Getty Images)](https://www.bing.com/th?id=OHR.LittleDuckling_ES-ES9482906211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-06 | [Heidelberg a orillas del río Neckar, en Baden-Wurtemberg, Alemania (© Juergen Sack/Getty Images)](https://www.bing.com/th?id=OHR.RiverNekarHeidelberg_ES-ES3292625362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-05 | [Hembra de guanaco y cría recién nacida en pastizal, provincia de La Pampa, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_ES-ES1631881267_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

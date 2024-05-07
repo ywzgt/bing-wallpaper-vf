@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [Un caneton nageant dans une prairie d'eau, Suffolk, Angleterre (© Nick Hurst/Getty Images)](https://www.bing.com/th?id=OHR.LittleDuckling_FR-FR7460969875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-06 | [Les Roaches, Peak District, Angleterre (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.TheRoachesPeakDistrict_FR-FR7206874137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-05 | [Colonnade à San Miguel de Allende, Guanajuato, Mexique (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAllende_FR-FR6896201862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

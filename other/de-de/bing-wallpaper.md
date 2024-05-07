@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)](https://www.bing.com/th?id=OHR.SuspensionBridge_DE-DE5413963074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-06 | [The Roaches, Peak District, Vereinigtes Königreich (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.TheRoachesPeakDistrict_DE-DE5320650823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-05 | [Kolonnade in San Miguel de Allende, Guanajuato, Mexiko (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAllende_DE-DE2308730889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
