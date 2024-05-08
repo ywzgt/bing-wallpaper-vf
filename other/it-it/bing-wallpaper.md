@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-08 | [Vista dal castello d’IF del porto di Marsiglia, Francia (© Sergii Figurnyi/Alamy)](https://www.bing.com/th?id=OHR.PortMarseille_IT-IT2921013222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-07 | [Vigneto vulcanico a Lanzarote, Isole Canarie (© Pol Albarrán/Getty Images)](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_IT-IT5537790219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-06 | [Le rovine di un antico monastero sull'isola di Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.JediMonastery_IT-IT4680145020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
