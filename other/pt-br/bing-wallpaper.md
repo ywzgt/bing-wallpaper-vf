@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-11 | [Misool, Ilhas Raja Ampat, Indonésia (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_PT-BR6517717174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-10 | [Tulipas no Emirgan Park em Istambul, Turquia (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_PT-BR9433604698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-09 | [Cataratas do Iguaçu durante o amanhecer (© SinghaphanAllB/Moment/Getty Images)](https://www.bing.com/th?id=OHR.IguazuTurism_PT-BR9760109650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
