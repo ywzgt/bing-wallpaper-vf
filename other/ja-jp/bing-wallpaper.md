@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-11 | [枝にとまるルリノジコ, 米国 テキサス州 (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_JA-JP9651791616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-10 | [ミソール島, インドネシア  (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_JA-JP9378923555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-09 | [エミルギャン公園, トルコ (© Ozbalci/Getty Images)](https://www.bing.com/th?id=OHR.EmirganPark_JA-JP9127414605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
