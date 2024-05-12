@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-12 | [Guanako-Weibchen und neugeborenes Baby im Grasland, La Pampa, Argentinien (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_DE-DE8465520187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-11 | [Die „Blaue Stadt“ Jodhpur, Rajasthan, Indien (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_DE-DE7777501336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-10 | [Misool, Raja Ampat, Archipel, Indonesien (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_DE-DE6830111784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

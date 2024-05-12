@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-12 | [Vista dall'alto di delfini che nuotano nel mare, Genova, Italia (© Andrea Izzotti/500px/Getty Images)](https://www.bing.com/th?id=OHR.BabyDolphinMom_IT-IT8782194786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-11 | [Uno zigolo indaco appollaiato su un ramo, Texas, USA (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_IT-IT9364925475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-10 | [Misool, Isole Raja Ampat, Indonesia (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_IT-IT8362086795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

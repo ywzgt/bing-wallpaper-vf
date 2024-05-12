@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-12 | [Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/th?id=OHR.CamargueFlamingos_FR-FR0995673980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-11 | [Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_FR-FR9846433348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-10 | [Misool, îles Raja Ampat, Indonésie (© Giordano Cipriani/Getty Images)](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_FR-FR9641192055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
