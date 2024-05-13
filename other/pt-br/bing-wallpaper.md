@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-14 | [Desfiladeiro do rio Fish, Namíbia (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_PT-BR7314875835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-13 | [Fêmea de guanaco e bebê recém-nascido em pastagem, província de La Pampa, Argentina (© Gabriel Rojo/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacoMother_PT-BR7069142219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-12 | [Um azulão empoleirado em um galho, Texas, Estados Unidos (© Jeff R Clow/Getty Images)](https://www.bing.com/th?id=OHR.TexasIndigoBunting_PT-BR6730881258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
