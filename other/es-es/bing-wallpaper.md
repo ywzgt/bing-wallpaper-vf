@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-14 | [Pasarela de acceso a la Gran Sala, Cavernas de Carlsbad, Nuevo México, EE.UU. (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_ES-ES0756476646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-13 | [Cañón del río Fish, Namibia (© R. M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.NamibiaCanyon_ES-ES0636008379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-12 | [San Miguel de Allende, Guanajuato, México (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAllende_ES-ES3153624819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
