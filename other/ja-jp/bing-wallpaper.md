@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-16 | [ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_JA-JP1257596439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-15 | [下鴨神社, 京都 (© beibaoke/Shutterstock)](https://www.bing.com/th?id=OHR.AoiMatsuri2024_JA-JP1018506374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-14 | [カールズバッド洞窟群国立公園, 米国 ニューメキシコ州 (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_JA-JP0802484908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
