@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-16 | [Campeonato de Europa de Parapente. Pegalajar, Jaén, España (© Jorgefontestad/Getty Images)](https://www.bing.com/th?id=OHR.ParaglidingChampion_ES-ES1439141263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-15 | [La ciudad azul de Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_ES-ES0873677345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-14 | [Pasarela de acceso a la Gran Sala, Cavernas de Carlsbad, Nuevo México, EE.UU. (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_ES-ES0756476646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

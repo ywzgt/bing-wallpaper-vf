@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-16 | [Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_FR-FR2802585315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-15 | [La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_FR-FR2415111297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-14 | [Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)](https://www.bing.com/th?id=OHR.CarlsbadNP_FR-FR1644664306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
