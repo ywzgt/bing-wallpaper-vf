@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | [Vista di Bergamo Alta durante il tramonto, Lombardia, Italia (© Deimagine/Getty Images)](https://www.bing.com/th?id=OHR.BergamoAlta_IT-IT3472701981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-16 | ["Feelings are Facts", dell'artista Olafur Eliasson e dell'architetto Ma Yansong, Pechino, Cina (© Feng Li/Getty Images News)](https://www.bing.com/th?id=OHR.DayOfLight_IT-IT0477712926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-15 | [La città blu di Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_IT-IT7121297677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

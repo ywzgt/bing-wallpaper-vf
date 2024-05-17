@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | [Una familia de elefantes africanos en el Parque Nacional de Tarangire, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_ES-ES3245528088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-16 | [Campeonato de Europa de Parapente. Pegalajar, Jaén, España (© Jorgefontestad/Getty Images)](https://www.bing.com/th?id=OHR.ParaglidingChampion_ES-ES1439141263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-15 | [La ciudad azul de Jodhpur, India (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.BlueCityIndia_ES-ES0873677345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
