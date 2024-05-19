@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-19 | [Vernazza, Cinque Terre, Liguria, Italia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_IT-IT4901627475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-18 | [Scheletro della balenottera Azzurra “Hope”, Museo di Storia Naturale di Londra, Inghilterra (© Bailey-Cooper Photography/Alamy)](https://www.bing.com/th?id=OHR.MuseumWhale_IT-IT4738172799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-17 | [Vista di Bergamo Alta durante il tramonto, Lombardia, Italia (© Deimagine/Getty Images)](https://www.bing.com/th?id=OHR.BergamoAlta_IT-IT3472701981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
