@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-20 | [Vila de Vernazza, Cinque Terre, Ligúria, Itália (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_PT-BR0108995686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-19 | [Esqueleto de baleia azul chamada Hope, Museu de História Natural, Londres, Inglaterra (© Bailey-Cooper Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MuseumWhale_PT-BR0044062488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-18 | [Uma família de elefantes africanos no Parque Nacional Tarangire, Tanzânia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.TarangireElephants_PT-BR9979896896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
