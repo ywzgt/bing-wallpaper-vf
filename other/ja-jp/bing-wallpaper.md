@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-20 | [巣を作っているミツバチ (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_JA-JP0520778035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-19 | [ヴェルナッツァ, イタリア リグーリア州 (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_JA-JP0110983802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
