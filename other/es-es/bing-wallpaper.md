@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Plantación de té de Cameron Highlands, Malasia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_ES-ES4744673149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-20 | [Abeja cuidando un panal (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-19 | [Pueblo de Vernazza, Cinque Terre, Liguria, Italia (© Roberto Moiola/Sysaworld/Getty Images)](https://www.bing.com/th?id=OHR.VernazzaItaly_ES-ES4215156011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
