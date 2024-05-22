@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Tasmanischer Schnee-Eukalyptus (Eucalyptus pauciflora), Mount-Field-Nationalpark, Tasmanien, Australien (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_DE-DE8538899812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-21 | [Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_DE-DE8270167574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-20 | [Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneycombBee_DE-DE7958601447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

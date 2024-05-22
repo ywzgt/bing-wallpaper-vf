@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_FR-FR8041530043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-21 | [Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_FR-FR7897047895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-20 | [Abeille travaillant dans un nid (© Simun Ascic/Alamy)](https://www.bing.com/th?id=OHR.HoneycombBee_FR-FR7652566648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
