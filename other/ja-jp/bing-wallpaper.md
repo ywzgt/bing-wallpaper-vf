@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-23 | [インドホシガメ, スリランカ (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_JA-JP1239891119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-22 | [夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)](https://www.bing.com/th?id=OHR.SkyTree2024_JA-JP0993799568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-21 | [キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_JA-JP0806186041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
