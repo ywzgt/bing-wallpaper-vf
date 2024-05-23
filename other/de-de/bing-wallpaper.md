@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-23 | [Indische Sternschildkröte, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_DE-DE8901102439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-22 | [Tasmanischer Schnee-Eukalyptus (Eucalyptus pauciflora), Mount-Field-Nationalpark, Tasmanien, Australien (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_DE-DE8538899812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-21 | [Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_DE-DE8270167574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

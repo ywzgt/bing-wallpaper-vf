@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-23 | [Tartaruga stellata indiana, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_IT-IT5611549896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-22 | [Gomma delle nevi della Tasmania (Eucalyptus pauciflora), Parco Nazionale di Mount Field, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.SnowGumTasmania_IT-IT5111843479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-21 | [Piantagione di tè, Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://www.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
