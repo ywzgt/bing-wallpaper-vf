@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_FR-FR8548629295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-24 | [Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.OrdesaNationalPark_FR-FR8382940670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-23 | [Tortue étoilée d’Inde, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_FR-FR8197500473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

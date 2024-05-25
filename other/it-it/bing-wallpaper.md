@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-25 | [Ait-Ben-Haddou, Marocco (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_IT-IT7804111538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-24 | [Gola di Añisclo, Parco Nazionale di Ordesa e Monte Perdido, Huesca, Spagna (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.OrdesaNationalPark_IT-IT5681157201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-23 | [Tartaruga stellata indiana, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://www.bing.com/th?id=OHR.IndianStarTortoise_IT-IT5611549896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
