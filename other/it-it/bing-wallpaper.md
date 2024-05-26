@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-26 | [Balsamorhiza sagittata e lupini, Methow Valley, North Cascades, Washington, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_IT-IT7261352417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-25 | [Ait-Ben-Haddou, Marocco (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_IT-IT7804111538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-24 | [Gola di Añisclo, Parco Nazionale di Ordesa e Monte Perdido, Huesca, Spagna (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.OrdesaNationalPark_IT-IT5681157201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
