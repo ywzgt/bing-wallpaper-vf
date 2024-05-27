@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-27 | [Baia del Silenzio in Sestri Levante, Ligurien, Italien (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_DE-DE0573141632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-26 | [Elbsandsteingebirge und Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.ElbeSandstone_DE-DE9941836770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-25 | [Aït-Ben-Haddou, Marokko (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_DE-DE9640944189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
