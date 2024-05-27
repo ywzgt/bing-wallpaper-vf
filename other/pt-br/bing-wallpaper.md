@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-28 | [Parque Nacional Serra dos Órgãos em Petrópolis, Río de Janeiro (© MesquitaFMS/Getty Images)](https://www.bing.com/th?id=OHR.MataAtlantica_PT-BR0600772527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-27 | [Bálsamos e lupinos, Methow Valley, North Cascades, Washington, EUA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_PT-BR0540541576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-26 | [Aït Benhaddou, Marrocos (© Grant Faint/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_PT-BR0472580311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
