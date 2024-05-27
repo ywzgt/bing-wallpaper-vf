@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-28 | [ルサヌ修道院, ギリシャ (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MeteoraMonastery_JA-JP2717990749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-27 | [ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)](https://www.bing.com/th?id=OHR.HedgehogMeadow_JA-JP0023153078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-26 | [メソウ・バレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_JA-JP2117575252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
