@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-28 | [Monastero di Roussanou, Meteora, Tessaglia, Grecia (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MeteoraMonastery_IT-IT6224656516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-27 | [Baia del Silenzio in Sestri Levante, Liguria, Italia (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_IT-IT7994211355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-26 | [Balsamorhiza sagittata e lupini, Methow Valley, North Cascades, Washington, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.MethowWildflowers_IT-IT7261352417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
