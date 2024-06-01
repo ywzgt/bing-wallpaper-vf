@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [San Francisco City Hall lit up in rainbow lights for Pride, California, USA (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-GB6271318842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-31 | [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_EN-GB1861917445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-30 | [A stand of slash pines and sawgrass prairie, Everglades National Park, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_EN-GB0429923413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

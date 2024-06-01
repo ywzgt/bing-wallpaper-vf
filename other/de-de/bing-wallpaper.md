@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [Das Rathaus von San Francisco erstrahlt in Regenbogenfarben anlässlich der Pride, Kalifornien, USA (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_DE-DE2818464419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-05-31 | [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_DE-DE2262987650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-30 | [Sumpf-Kiefer, Everglades-Nationalpark, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_DE-DE6253688442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
