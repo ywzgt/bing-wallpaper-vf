@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-02 | [Centro Cívico de São Francisco iluminado com luzes de arco-íris para Orgulho LGBTQIA+, Califórnia, EUA (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_PT-BR6281938141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-01 | [Gunnerside, Swaledale, Parque Nacional de Yorkshire Dales, Inglaterra (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_PT-BR5805097424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-31 | [Uma área de pinheiros e pradaria de grama, Parque Nacional de Everglades, Flórida, EUA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.Everglades90th_PT-BR0782569600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
