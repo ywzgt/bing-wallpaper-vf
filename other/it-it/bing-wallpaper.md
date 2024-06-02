@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-02 | [Festa della Repubblica (© Independent Photo Agency Srl)](https://www.bing.com/th?id=OHR.ItalyFlag_IT-IT1674511086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-01 | [Il centro civico di San Francisco illuminato con luci arcobaleno per il Pride, California, USA (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_IT-IT0189244856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-05-31 | [Gunnerside, Swaledale, Parco Nazionale delle Yorkshire Dales, Inghilterra (© Derek Croucher/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
