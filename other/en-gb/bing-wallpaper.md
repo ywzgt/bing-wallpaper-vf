@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-GB4395240180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-02 | [Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_EN-GB3931672297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-01 | [San Francisco City Hall lit up in rainbow lights for Pride, California, USA (© Josh Edelson/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PrideMonthSF_EN-GB6271318842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
