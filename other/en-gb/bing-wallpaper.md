@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-04 | [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_EN-GB4849522533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-03 | [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_EN-GB4395240180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-02 | [Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.SestriLevante_EN-GB3931672297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

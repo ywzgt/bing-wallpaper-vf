@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-04 | [Abejaruco Cabecirrufo, Parque Nacional de Bardiya, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_ES-ES4472834413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-03 | [Bicicletas en Copenhague, Dinamarca (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_ES-ES4229368591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-02 | [Faro de Ploumanac'h, Costas de Armor, Francia (© Christian Handl/Getty Images)](https://www.bing.com/th?id=OHR.MenRuz_ES-ES3990544497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

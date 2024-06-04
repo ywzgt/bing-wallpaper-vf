@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-04 | [Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_DE-DE7400779777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-03 | [Fahrräder in Kopenhagen, Dänemark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_DE-DE6785283446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-02 | [Leuchtturm Ploumanac'h, Côtes-d'Armor, Frankreich (© Christian Handl/Getty Images)](https://www.bing.com/th?id=OHR.MenRuz_DE-DE4765276671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
