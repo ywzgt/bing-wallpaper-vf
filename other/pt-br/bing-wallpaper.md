@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Abelharuco-de-cabeça-castanha, Parque Nacional de Bardia, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_PT-BR6524596779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-04 | [Capivara, o maior roedor do mundo, na margem de um rio no Pantanal (© Joe McDonald/Getty Images)](https://www.bing.com/th?id=OHR.CapybaraEducation_PT-BR9998060500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-03 | [Bicicletas em Copenhague, Dinamarca (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_PT-BR5476760078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
