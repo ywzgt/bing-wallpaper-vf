@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_FR-FR2602472406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-04 | [Guêpiers de Leschenault, Parc National de Bardia, Népal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_FR-FR2288715924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-03 | [Vélos à Copenhague, Danemark (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_FR-FR1244854988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

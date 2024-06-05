@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-05 | [Parco Nazionale di Masoala, Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_IT-IT3546941915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-04 | [Gruccione testacastana, Parco Nazionale Reale di Bardia, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_IT-IT3152555866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-03 | [Biciclette a Copenaghen, Danimarca (© Alphotographic/Getty Images)](https://www.bing.com/th?id=OHR.CopenhagenBicycles_IT-IT2125819648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
