@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-06 | [Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.RossfeldRoad_DE-DE6613150514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-05 | [Masoala-Nationalpark in Madagaskar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_DE-DE7722316951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-04 | [Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)](https://www.bing.com/th?id=OHR.ChestnutBeeEater_DE-DE7400779777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
