@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-08 | [北極圏の扉国立公園, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_JA-JP3191986449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-07 | [港湾地区ダッチハーバーのザトウクジラ, 米国 アラスカ州 (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_JA-JP3134637599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-06 | [オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_JA-JP2673483195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
