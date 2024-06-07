@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-07 | [Famiglia di megattere, Dutch Harbor, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_IT-IT4429880425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-06 | [Monumento Les Braves sulla spiaggia di Omaha, Normandia, Francia (© Christopher Furlong/Getty Images)](https://www.bing.com/th?id=OHR.LesBravesNormandy_IT-IT3884856406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-05 | [Parco Nazionale di Masoala, Madagascar (© Dennis van de Water/Shutterstock)](https://www.bing.com/th?id=OHR.MadagascarRiver_IT-IT3546941915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
