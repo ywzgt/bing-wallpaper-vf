@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-09 | [Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)](https://www.bing.com/th?id=OHR.KlosterKamp_DE-DE6407205141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-08 | [Zusammenfluss von Easter Creek und Killik River, Gates-of-the-Arctic-Nationalpark, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_DE-DE8386979162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-07 | [Buckelwalfamilie, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.HumpbackFamily_DE-DE8013802672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
