@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [Osaka à noite, Japão (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_PT-BR8462311640_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-10 | [Reserva da Biosfera e Parque Natural Bardenas Reales, Bardenas, Navarra, Espanha (© Aliaume Chapelle/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BardenasBiosphere_PT-BR8155922865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-09 | [Confluência de Easter Creek e Killik River, Parque Nacional e Reserva Portas do Ártico, Alasca, EUA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_PT-BR9004579454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
