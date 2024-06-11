@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-12 | [ビッグ・ベンド国立公園, 米国 テキサス州 (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_JA-JP3523395036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-11 | [アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2024_JA-JP3414608133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-10 | [大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)](https://www.bing.com/th?id=OHR.OsakaNight_JA-JP3335717675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
