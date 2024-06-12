@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-12 | [Vía Láctea sobre el Parque Nacional Big Bend, Texas, EE.UU. (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ES-ES2997966986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2050-01-01 | [La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)](https://www.bing.com/sa/simg/hpb/LaDigue_EN-CA1115245085_UHD.jpg?w=3840&h=2160&rs=1&c=4) 
 
 2024-06-11 | [Órice del cabo (Gemsbok) en la sabana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_ES-ES2633873347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
