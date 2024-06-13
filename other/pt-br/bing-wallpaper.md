@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-14 | [Fachada de mosaico na Praça Registan, Samarcanda, Uzbequistão (© da-kuk/Getty Images)](https://www.bing.com/th?id=OHR.RegistanUzbekistan_PT-BR8909125250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-13 | [Periquito-monge e do periquito-da-planície cuidando um do outro (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.DiadosNamorado_PT-BR1152869085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-12 | [Órix-do-cabo na savana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.GemsbokBotswana_PT-BR8699513531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
