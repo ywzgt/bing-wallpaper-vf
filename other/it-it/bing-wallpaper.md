@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-14 | [Kokino, antico osservatorio megalitico, Macedonia del Nord (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_IT-IT5698531580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-13 | [Facciata a mosaico in piazza Registan, Samarcanda, Uzbekistan (© da-kuk/Getty Images)](https://www.bing.com/th?id=OHR.RegistanUzbekistan_IT-IT8716524920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-12 | [Via Lattea, Parco Nazionale di Big Bend, Texas, USA (© wisanuboonrawd/Adobe Stock)](https://www.bing.com/th?id=OHR.BigBendMilkyWay_IT-IT7811408807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
