@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_JA-JP0937901099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_JA-JP0665828544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_JA-JP0528290685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
