@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-17 | [Lagos de crateras vulcânicas em Kelimutu, Flores, Indonésia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_PT-BR1096612620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-16 | [Surfista pegando onda em Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_PT-BR1726789452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-15 | [Farol de Peggys Cove, Nova Escócia, Canadá (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_PT-BR1473312250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
