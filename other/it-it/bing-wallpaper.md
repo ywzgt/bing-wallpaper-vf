@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [Todi, Umbria, Italia (© Fani Kurti/Getty Images)](https://www.bing.com/th?id=OHR.TodiView_IT-IT4184020567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [Surfer che cavalca un’onda a Nazaré, Portogallo (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_IT-IT1958162870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [Kokino, antico osservatorio megalitico, Macedonia del Nord (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_IT-IT5698531580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

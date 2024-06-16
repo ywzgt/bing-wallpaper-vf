@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [Red fox father and kit, Washington, USA (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_EN-GB2072246945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [Guards Bands at Horse Guards Parade, London during Trooping the Colour 2014 (© Malcolm Park editorial/Alamy Live News)](https://www.bing.com/th?id=OHR.TroopingTheColourParade_EN-GB1777396736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_EN-GB2774875684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [Confluencia de Easter Creek y el río Killik, Parque Nacional de las Puertas del Ártico, Alaska, EE.UU. (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.KillikRiverAlaska_ES-ES6266165210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [Surfista montando una ola en Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_ES-ES3451063756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [Faro de Peggys Cove, Nueva Escocia, Canadá (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_ES-ES2898736491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

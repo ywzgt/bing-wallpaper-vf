@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-16 | [Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)](https://www.bing.com/th?id=OHR.Ruinenberg_DE-DE5900996291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-15 | [Wellenreiter in Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_DE-DE6510576584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-14 | [Leuchtturm Peggy’s Point, Nova Scotia, Kanada (© Pugalenthi/Getty Images)](https://www.bing.com/th?id=OHR.PeggysCove_DE-DE6175899520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
