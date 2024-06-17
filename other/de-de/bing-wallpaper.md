@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-17 | [Grünstirn-Brillantkolibri mit Riesendistel, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_DE-DE7552143842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-16 | [Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)](https://www.bing.com/th?id=OHR.Ruinenberg_DE-DE5900996291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-15 | [Wellenreiter in Nazaré, Portugal (© Rui Caria/Getty Images)](https://www.bing.com/th?id=OHR.NazareWave_DE-DE6510576584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
