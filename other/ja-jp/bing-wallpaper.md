@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-18 | [スナイフェルス半島, アイスランド (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_JA-JP1350338976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-17 | [ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)](https://www.bing.com/th?id=OHR.HummingThistle_JA-JP1170638705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-16 | [ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.RedFoxDad_JA-JP0937901099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
