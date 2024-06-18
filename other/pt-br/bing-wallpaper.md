@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-19 | [Campos de tremoços e igreja ao nascer do sol, Península de Snæfellsnes, Islândia (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_PT-BR2281677682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-18 | [Beija-flor brilhante de coroa verde com cardo gigante, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HummingThistle_PT-BR2010044953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-17 | [Lagos de crateras vulcânicas em Kelimutu, Flores, Indonésia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_PT-BR1096612620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
