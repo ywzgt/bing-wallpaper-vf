@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-19 | [Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)](https://www.bing.com/th?id=OHR.CuxhavenTower_FR-FR4564976759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-18 | [Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_FR-FR4349851245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-17 | [Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)](https://www.bing.com/th?id=OHR.FortCigogne_FR-FR4151283347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
