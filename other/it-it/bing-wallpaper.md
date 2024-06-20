@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-20 | [Vista di alberi nel bosco Reggio Calabria, Italia (© Roberto Martini/Getty Images)](https://www.bing.com/th?id=OHR.SummerTree_IT-IT6031529080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-19 | [Torre dell'acqua, Cuxhaven, Bassa Sassonia, Germania (© Andreas Vogel/Alamy)](https://www.bing.com/th?id=OHR.CuxhavenTower_IT-IT3147341965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-18 | [Campi di lupini e una chiesa all'alba, penisola di Snæfellsnes, Islanda (© Matteo Colombo/Getty Images)](https://www.bing.com/th?id=OHR.LupinIceland_IT-IT2902162777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
