@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-21 | [レワ野生生物保護区, ケニア (© Sean Crane/Minden Pictures)](https://www.bing.com/th?id=OHR.LewaGiraffe_JA-JP1858057864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-20 | [コキノ古代天文台, 北マケドニア (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_JA-JP1713805484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-19 | [サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_JA-JP1549442901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
