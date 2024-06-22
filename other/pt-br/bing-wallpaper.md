@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [Floresta Amazônica, Brasil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-22 | [Pôr do sol na praia de Ipanema, Rio de Janeiro, Brasil. Vista para as praias de Ipanema e Leblon, Morro Dois Irmãos e Pedra da Gávea (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.IniciodoInverno_PT-BR1929239619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-21 | [Kokino, um antigo observatório megalítico, Macedônia do Norte (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_PT-BR2816851215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
