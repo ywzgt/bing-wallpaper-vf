@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-22 | [Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_FR-FR5609224020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-21 | [Pont-Neuf à Toulouse (© benkrut/Getty Images)](https://www.bing.com/th?id=OHR.MusicDayToulouse_FR-FR5434347440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-20 | [Kokino, ancien observatoire mégalithique, Macédoine du Nord (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_FR-FR5105619878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

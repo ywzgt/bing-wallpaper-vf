@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-22 | [Amazonas-Regenwald, Brasilien (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_DE-DE1305753130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-21 | [Netzgiraffenmutter begrüßt ihr Kalb, Lewa Wildlife Conservancy, Kenia (© Sean Crane/Minden Pictures)](https://www.bing.com/th?id=OHR.LewaGiraffe_DE-DE0857828620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-20 | [Kokino, ein antikes megalithisches Observatorium, Nordmazedonien (© stoimilov/Shutterstock)](https://www.bing.com/th?id=OHR.KokinoMacedonia_DE-DE0078075426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
