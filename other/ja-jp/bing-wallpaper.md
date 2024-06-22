@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.Lavender2024_JA-JP2620797533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-22 | [アマゾン熱帯雨林, ブラジル (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_JA-JP2489498028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-21 | [レワ野生生物保護区, ケニア (© Sean Crane/Minden Pictures)](https://www.bing.com/th?id=OHR.LewaGiraffe_JA-JP1858057864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
