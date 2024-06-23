@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-24 | [Vista aérea de uma rotatória em Daca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_PT-BR3551380225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-23 | [Floresta Amazônica, Brasil (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_PT-BR3213724204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-22 | [Pôr do sol na praia de Ipanema, Rio de Janeiro, Brasil. Vista para as praias de Ipanema e Leblon, Morro Dois Irmãos e Pedra da Gávea (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.IniciodoInverno_PT-BR1929239619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
