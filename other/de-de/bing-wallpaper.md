@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [Luftaufnahme eines Verkehrskreisels in Dhaka, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_DE-DE1601087316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-22 | [Amazonas-Regenwald, Brasilien (© Claus Meyer/plainpicture)](https://www.bing.com/th?id=OHR.BrazilRainforest_DE-DE1305753130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-21 | [Netzgiraffenmutter begrüßt ihr Kalb, Lewa Wildlife Conservancy, Kenia (© Sean Crane/Minden Pictures)](https://www.bing.com/th?id=OHR.LewaGiraffe_DE-DE0857828620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
