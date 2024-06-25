@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [The Fire Wave rock formation, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_EN-GB9662129375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-24 | [Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_EN-GB9368933126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-23 | [Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DhakaBangladesh_EN-GB6313540805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

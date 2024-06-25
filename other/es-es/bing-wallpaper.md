@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [Parque Estatal del Valle del Fuego, Nevada, EE.UU. (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_ES-ES9125556493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-24 | [Lagos de cráteres volcánicos en Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_ES-ES8971100389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-23 | [Cala Macarelleta, Menorca, Islas Baleares, España (© Matteo Colombo/DigitalVision/Getty Images)](https://www.bing.com/th?id=OHR.SanJuanMenorca_ES-ES8672078305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
