@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-26 | [ペヴリル城, イングランド (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_JA-JP3237523322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-25 | [バレー・オブ・ファイアー州立公園, 米国 ネバダ州 (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_JA-JP3002445647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-24 | [クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_JA-JP2788584919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
