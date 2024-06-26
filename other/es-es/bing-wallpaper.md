@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-26 | [Pez cardenal Banggai joven con anémona de mar, Estrecho de Lembeh, Sulawesi Septentrional, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_ES-ES9348160649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-25 | [Parque Estatal del Valle del Fuego, Nevada, EE.UU. (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_ES-ES9125556493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-24 | [Lagos de cráteres volcánicos en Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.FloresIsland_ES-ES8971100389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
