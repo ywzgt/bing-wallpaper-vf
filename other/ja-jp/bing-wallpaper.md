@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-27 | [菖蒲, 山形県 長井市 (© gyro/Getty Images)](https://www.bing.com/th?id=OHR.Ayame2024_JA-JP3356201078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-26 | [ペヴリル城, イングランド (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_JA-JP3237523322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-25 | [バレー・オブ・ファイアー州立公園, 米国 ネバダ州 (© Clint Losee/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.FireWave_JA-JP3002445647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
