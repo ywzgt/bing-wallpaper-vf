@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_JA-JP6692662521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [菖蒲, 山形県 長井市 (© gyro/Getty Images)](https://www.bing.com/th?id=OHR.Ayame2024_JA-JP3356201078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [ペヴリル城, イングランド (© James Osmond/Alamy)](https://www.bing.com/th?id=OHR.SpringCaveDale_JA-JP3237523322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
