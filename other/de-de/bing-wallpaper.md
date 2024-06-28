@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)](https://www.bing.com/th?id=OHR.AllianzArena_DE-DE5063263728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [Dom Santa Maria del Fiore in der Abenddämmerung, Florenz, Italien (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_DE-DE5707653753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [Junger Banggai Kardinalbarsch mit Seeanemone, Lembeh Strait, Nordsulawesi, Indonesien (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_DE-DE5420606353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

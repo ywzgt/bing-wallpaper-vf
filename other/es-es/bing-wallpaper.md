@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [Brazos agitando la bandera LGBTQIA en la Plaza de Cibeles en Madrid, España (© Jose Gonzalez Buenaposada/Getty Images)](https://www.bing.com/th?id=OHR.PrideMadrid_ES-ES8204092682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [Duomo Santa Maria del Fiore al atardecer, Florencia, Italia (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_ES-ES9598633460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [Pez cardenal Banggai joven con anémona de mar, Estrecho de Lembeh, Sulawesi Septentrional, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_ES-ES9348160649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

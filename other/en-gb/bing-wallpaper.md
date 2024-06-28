@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [Pride flags at Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_EN-GB4906176732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_EN-GB0264090217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_EN-GB9934314587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

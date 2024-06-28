@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)](https://www.bing.com/th?id=OHR.ParisPrideParade_FR-FR5537567713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_FR-FR6562213181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [Poisson cardinal de Banggai et anémone de mer, détroit de Lembeh, Sulawesi du Nord, Indonésie (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_FR-FR6379434981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

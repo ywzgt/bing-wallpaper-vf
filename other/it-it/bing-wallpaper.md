@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-28 | [Bandiere dell'orgoglio al Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_IT-IT1992922645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-27 | [Duomo Santa Maria del Fiore, Firenze, Toscana, Italia (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_IT-IT5589174181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-26 | [Pesce cardinale Banggai con anemone di mare, Stretto di Lembeh, Sulawesi settentrionale, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_IT-IT5257002350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
