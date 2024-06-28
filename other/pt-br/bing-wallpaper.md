@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-29 | [Foliões enchem as ruas segurando uma bandeira gigante do arco-íris durante a parada anual do orgulho LGBT na avenida Paulista (© Nelson Antoine/Shutterstock)](https://www.bing.com/th?id=OHR.Pride2024_PT-BR0771293980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-28 | [Catedral Santa Maria del Fiore ao anoitecer, Florença, Itália (© Elena Pueyo/Getty Images)](https://www.bing.com/th?id=OHR.FlorenceDuomo_PT-BR4528036954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-27 | [Peixe Cardinal Bangai juvenil com anêmona do mar, Estreito de Lembeh, Sulawesi do Norte, Indonésia (© Constantinos Petrinos/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CardinalfishAnemone_PT-BR4236573966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
