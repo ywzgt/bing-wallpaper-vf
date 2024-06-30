@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-30 | [Sculpture sur pierre dans un temple à Ubud, Bali, Indonésie (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_FR-FR6392717738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-29 | [Cyclistes du Tour de France 2013, Corse (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_FR-FR6133264090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-28 | [Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)](https://www.bing.com/th?id=OHR.ParisPrideParade_FR-FR5537567713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

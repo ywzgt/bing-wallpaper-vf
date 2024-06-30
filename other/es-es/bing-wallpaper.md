@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-30 | [Tallado en piedra en un templo de Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_ES-ES5927593831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-29 | [Ciclistas en el Tour de Francia 2013, Córcega, Francia (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_ES-ES5232054569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-28 | [Brazos agitando la bandera LGBTQIA en la Plaza de Cibeles en Madrid, España (© Jose Gonzalez Buenaposada/Getty Images)](https://www.bing.com/th?id=OHR.PrideMadrid_ES-ES8204092682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

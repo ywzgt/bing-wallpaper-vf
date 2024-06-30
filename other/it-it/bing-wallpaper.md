@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-30 | [Mole Antonelliana, Torino, Piemonte (© Nicolò Campo/Getty Images)](https://www.bing.com/th?id=OHR.PrideItalia_IT-IT3295714060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-06-29 | [Ciclisti al Tour de France 2013, Corsica, Francia (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCorsica_IT-IT2275929155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-28 | [Bandiere dell'orgoglio al Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)](https://www.bing.com/th?id=OHR.ChristopherPark_IT-IT1992922645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
