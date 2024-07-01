@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-02 | [古代ローマの都市イタリカ, スペイン (© Moses Palermo/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ItalicaRuins_JA-JP9815947599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-01 | [フィスガード灯台, カナダ ブリティッシュコロンビア州 (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_JA-JP9618708130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-30 | [バリ島のウブド村, インドネシア (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_JA-JP9425870638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
