@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [群れで起立するミーアキャット (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_JA-JP0029401551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-02 | [古代ローマの都市イタリカ, スペイン (© Moses Palermo/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ItalicaRuins_JA-JP9815947599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-01 | [フィスガード灯台, カナダ ブリティッシュコロンビア州 (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_JA-JP9618708130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
