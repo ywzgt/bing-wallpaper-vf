@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-02 | [Ancienne ville romaine de Italica à Santiponce, Séville,  Espagne (© Moses Palermo/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ItalicaRuins_FR-FR7838371593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-01 | [Phare de Fisgard, port d'Esquimalt, Colwood, Colombie-Britannique, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_FR-FR7596685906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-30 | [Sculpture sur pierre dans un temple à Ubud, Bali, Indonésie (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_FR-FR6392717738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

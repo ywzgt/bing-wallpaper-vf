@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-02 | [The World Vision Garden at The Hampton Court Palace Flower Show 2016 (© Ellen Rooney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HamptonFestival2024_EN-GB4619911099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-01 | [Fisgard Lighthouse, Esquimalt Harbour, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-GB4370736522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-06-30 | [Stone carving at a temple in Ubud, Bali, Indonesia (© R. SchönebStone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)aum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_EN-GB2185347114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
