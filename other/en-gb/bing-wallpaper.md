@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [Meerkat family (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_EN-GB5476220606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-02 | [The World Vision Garden at The Hampton Court Palace Flower Show 2016 (© Ellen Rooney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HamptonFestival2024_EN-GB4619911099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-01 | [Fisgard Lighthouse, Esquimalt Harbour, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_EN-GB4370736522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

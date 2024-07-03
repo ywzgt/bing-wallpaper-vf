@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [Famille de suricates (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_FR-FR8114816201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-02 | [Ancienne ville romaine de Italica à Santiponce, Séville,  Espagne (© Moses Palermo/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.ItalicaRuins_FR-FR7838371593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-01 | [Phare de Fisgard, port d'Esquimalt, Colwood, Colombie-Britannique, Canada (© davemantel/Getty Images)](https://www.bing.com/th?id=OHR.FisgardLighthouse_FR-FR7596685906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
