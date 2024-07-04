@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [ノア・ビーチ, オーストラリア クイーンズランド州 (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_JA-JP0901623378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-04 | [ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_JA-JP0209668675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-03 | [群れで起立するミーアキャット (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_JA-JP0029401551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
