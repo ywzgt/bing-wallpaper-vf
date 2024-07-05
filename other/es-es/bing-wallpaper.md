@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [Playa de Noah, Selva tropical de Daintree, Queensland, Australia (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_ES-ES8857323555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-04 | [Zahara de la Sierra, Cádiz, Andalucía, España (© Francesco Carovillano/eStock Photo)](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_ES-ES8451895973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-03 | [Familia de suricatas (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_ES-ES8008983955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

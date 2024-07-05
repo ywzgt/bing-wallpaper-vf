@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [Plage de Noah, forêt tropicale de Daintree, Queensland, Australie (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_FR-FR8649402194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-04 | [Abbaye Notre-Dame de Sénanque, Gordes, Provence (© Brzozowska/Getty Images)](https://www.bing.com/th?id=OHR.SenanqueAbbey_FR-FR3993123153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-03 | [Famille de suricates (© anetapics/Shutterstock)](https://www.bing.com/th?id=OHR.MeerkatManor_FR-FR8114816201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
