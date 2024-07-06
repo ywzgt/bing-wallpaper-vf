@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-06 | [Il castello di Conwy con vista sul fiume Conwy, Galles, Regno Unito (© David Chapman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ConwyRiver_IT-IT5239937929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-05 | [Noah Beach nella foresta pluviale di Daintree, Queensland, Australia (© bjeayes/Getty Images)](https://www.bing.com/th?id=OHR.NoahBeach_IT-IT4884170767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-04 | [Zahara de la Sierra, Andalusia, Spagna (© Francesco Carovillano/eStock Photo)](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_IT-IT4545122871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
