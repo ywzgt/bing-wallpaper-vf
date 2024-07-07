@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [野生のブルーベリー (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_JA-JP1900215964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-07 | [越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)](https://www.bing.com/th?id=OHR.Tanabata2024_JA-JP1586960009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-06 | [コンウィ城, イギリス (© David Chapman/Alamy)](https://www.bing.com/th?id=OHR.ConwyRiver_JA-JP1379612776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
