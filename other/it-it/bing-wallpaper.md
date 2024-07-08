@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-08 | [Mirtilli nella natura selvaggia (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_IT-IT6071091887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-07 | [Terrazze di riso, Mù Cang Chải, Provincia di Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_IT-IT5762432409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-06 | [Il castello di Conwy con vista sul fiume Conwy, Galles, Regno Unito (© David Chapman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ConwyRiver_IT-IT5239937929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
