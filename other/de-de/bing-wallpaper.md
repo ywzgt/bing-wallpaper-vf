@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-09 | [Nationalpark Talampaya, Provinz La Rioja, Argentinien (© Gonzalo Azumendi/Getty Images)](https://www.bing.com/th?id=OHR.TalampayaNP_DE-DE3711851813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-08 | [Wilde Heidelbeeren (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_DE-DE3041672461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-07 | [Reisterrassen von Mù Cang Chải, Provinz Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_DE-DE2818118269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
