@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-10 | [Parque Nacional de Talampaya, província de La Rioja, Argentina (© Gonzalo Azumendi/Getty Images)](https://www.bing.com/th?id=OHR.TalampayaNP_PT-BR9006778184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-09 | [A bela cidade de Ouro Preto, em Minas Gerais, Brasil Getty Images (© filipefrazao/Getty Images)](https://www.bing.com/th?id=OHR.AniversarioOuroPreto_PT-BR1746358764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-08 | [Terraços de arroz de Mù Cang Chải, província de Yên Bái, Vietnã (© Kiatanan Sugsompian/Getty Images)](https://www.bing.com/th?id=OHR.YenBaiTerraces_PT-BR8757811796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
