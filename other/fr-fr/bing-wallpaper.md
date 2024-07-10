@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-10 | [Araçari à collier, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.CollaredAracari_FR-FR3432712660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-09 | [Parc national de Talampaya, province de La Rioja, Argentine (© Gonzalo Azumendi/Getty Images)](https://www.bing.com/th?id=OHR.TalampayaNP_FR-FR0885621562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-08 | [Pont de pierre, Bordeaux (© SergiyN/Getty Images)](https://www.bing.com/th?id=OHR.PontBordeaux_FR-FR0361302965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

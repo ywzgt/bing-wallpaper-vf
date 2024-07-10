@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-10 | [Scultura in pietra in un tempio di Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_IT-IT6720560821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-09 | [Parco Nazionale di Talampaya, provincia di La Rioja, Argentina (© Gonzalo Azumendi/Getty Images)](https://www.bing.com/th?id=OHR.TalampayaNP_IT-IT6470526392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-08 | [Mirtilli nella natura selvaggia (© Baac3nes/Getty Images)](https://www.bing.com/th?id=OHR.NorwayBlueberries_IT-IT6071091887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
