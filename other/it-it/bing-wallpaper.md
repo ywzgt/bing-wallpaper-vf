@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-12 | [Umbria International Jazz Festival, Perugia, Umbria, Italia (© ermess/Getty Images)](https://www.bing.com/th?id=OHR.UmbriaInternationalJazz_IT-IT2914317092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-11 | [Gangi, Sicilia, Italia (© Andrea Caruso/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.GangiSicily_IT-IT7151002440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-10 | [Scultura in pietra in un tempio di Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_IT-IT6720560821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
