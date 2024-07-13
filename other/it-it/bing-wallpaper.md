@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-13 | [Camini delle fate e abitazioni in grotta in Cappadocia, Turchia (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_IT-IT4089475911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-12 | [Umbria International Jazz Festival, Umbria, Italia (© ermess/Getty Images)](https://www.bing.com/th?id=OHR.UmbriaInternationalJazz_IT-IT2914317092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-12 | [Umbria International Jazz Festival, Perugia, Umbria, Italia (© ermess/Getty Images)](https://www.bing.com/th?id=OHR.UmbriaInternationalJazz_IT-IT2914317092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
