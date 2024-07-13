@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-14 | [ベルリンの「���物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-13 | [カッパドキア, トルコ (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_JA-JP5563518724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-12 | [マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_JA-JP5257571908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
