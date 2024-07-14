@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [立石公園, 神奈川県 (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-14 | [ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-14 | [ベルリンの「���物館島」, ドイツ (© Rudy Balasko/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumIsland_JA-JP9009131694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
