@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-14 | [Tiburón sedoso en Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_ES-ES4829919734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-13 | [Chimeneas de hadas y casas-cueva en Capadocia, Turquía (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_ES-ES4124443837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-12 | [Flores silvestres en el Parque Nacional del Monte Rainier, Washington, EE.UU. (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_ES-ES3642335933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

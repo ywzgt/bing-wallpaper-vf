@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-14 | [La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-13 | [Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_FR-FR1620184980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-12 | [Fleurs sauvages dans le parc national du Mont Rainier, Washington, États-Unis (© RomanKhomlyak/Getty Images)](https://www.bing.com/th?id=OHR.RainierWildflowers_FR-FR1422439917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
