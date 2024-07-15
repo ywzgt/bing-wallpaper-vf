@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_FR-FR2256380829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-14 | [La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)](https://www.bing.com/th?id=OHR.BastilleDayParis_FR-FR2037587707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-13 | [Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)](https://www.bing.com/th?id=OHR.CappadociaRocks_FR-FR1620184980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
