@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-17 | [提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GionFestival2024_JA-JP2391295161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-16 | [スカラ・ブレイ, スコットランド (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_JA-JP2155595314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-15 | [立石公園, 神奈川県 (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_JA-JP2045138918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
