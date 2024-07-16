@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-16 | [Die jungsteinzeitliche Siedlung von Skara Brae, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_DE-DE5345026370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-15 | [Tateishi Park, Präfektur Kanagawa, Japan (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_DE-DE4909574611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-14 | [Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.IntNatTheatreMunich_DE-DE4410278977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

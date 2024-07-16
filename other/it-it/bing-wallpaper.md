@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-16 | [L'insediamento neolitico di Skara Brae, Isole delle Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_IT-IT9302214437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-15 | [Parco Tateishi, Prefettura di Kanagawa, Giappone (© blew_s/Shutterstock)](https://www.bing.com/th?id=OHR.TateishiPark_IT-IT9039159342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-14 | [Squalo seta alle coste dell’arcipelago Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
