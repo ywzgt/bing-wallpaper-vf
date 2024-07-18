@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-19 | [Recife de coral no Oceano Índico, Mayotte, França (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_PT-BR1070255850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-18 | [Vista de um barco na Amazônia (© StreetFlash/Getty Images)](https://www.bing.com/th?id=OHR.DiadoCurupira_PT-BR5262042998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-17 | [O assentamento neolítico de Skara Brae, Orkney, Escócia (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_PT-BR0835986378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
