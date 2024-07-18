@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-18 | [Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_FR-FR3285872398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-17 | [Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_FR-FR2962331926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-16 | [Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)](https://www.bing.com/th?id=OHR.AncientOrkney_FR-FR2608784328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
