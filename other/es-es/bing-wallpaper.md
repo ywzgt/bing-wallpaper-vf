@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-19 | [Un jaguar joven en la ribera del río, Pantanal, Brasil (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_ES-ES8430300629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-18 | [Arrecife de coral en el Océano Índico, Mayotte, Francia (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_ES-ES7740312027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-17 | [Ciudad medieval de Rothenburg ob der Tauber, Alemania (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_ES-ES7422033090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
