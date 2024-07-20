@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-21 | [A lua (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_PT-BR1317802439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-20 | [Arena da Amazônia, Brasil (© PA Images/Alamy)](https://www.bing.com/th?id=OHR.DiaNacionaldoFutebol_PT-BR4614165115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-19 | [Recife de coral no Oceano Índico, Mayotte, França (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteCoral_PT-BR1070255850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
