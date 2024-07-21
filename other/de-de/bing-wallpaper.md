@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-21 | [Hölzerne Fischerboote im Dorf Kendwa, Sansibar, Tansania (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_DE-DE5749143467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-20 | [Der Mond (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_DE-DE4896248941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-19 | [Ein junger Jaguar am Flussufer, Pantanal, Brasilien (© Tambako the Jaguar/Getty Images)](https://www.bing.com/th?id=OHR.YoungJaguar_DE-DE4250993040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
