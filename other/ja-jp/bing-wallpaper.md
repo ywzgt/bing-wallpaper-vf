@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-23 | [メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_JA-JP3234736349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-22 | [ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)](https://www.bing.com/th?id=OHR.MedievalRothenburg_JA-JP3111613598_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-21 | [ザンジバル諸島のケンドワ村, タンザニア (© Lubos Paukeje/Alamy)](https://www.bing.com/th?id=OHR.ZanzibarBoats_JA-JP2984048559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
