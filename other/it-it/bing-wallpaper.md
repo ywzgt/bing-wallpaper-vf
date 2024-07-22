@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-22 | [Barche da pesca in legno nel villaggio di Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ZanzibarBoats_IT-IT2498729421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-21 | [Festa del Redentore, Isola di San Giorgio, Venezia, Veneto, Italia (© Buena Vista Images/Getty Images)](https://www.bing.com/th?id=OHR.RedentorVenezia_IT-IT2428174506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-20 | [La Luna (© Victor Blum/Getty Images)](https://www.bing.com/th?id=OHR.MineralMoon_IT-IT2334790788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
