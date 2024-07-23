@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [Castelo de Methoni, Messina, Grécia (© Andrew Mayovskyy/Shutterstock)](https://www.bing.com/th?id=OHR.MethoniCastle_PT-BR2033564506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-23 | [Acampamento com rede em um lago na Flórida Central, EUA (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HammockCamping_PT-BR1798965099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-22 | [Barcos de pesca de madeira na vila de Kendwa, Zanzibar, Tanzânia (© Lubos Paukeje/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ZanzibarBoats_PT-BR1541762225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
