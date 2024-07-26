@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Ponte Neuf sulla Senna, Parigi, Francia (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_IT-IT7027678488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-25 | [Sentiero forestale nel Parco Nazionale delle Great Smoky Mountains, Tennessee, USA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_IT-IT2739269969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-24 | [Gregge di pecore di Swaledale nel North Yorkshire, Inghilterra (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_IT-IT2624157981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

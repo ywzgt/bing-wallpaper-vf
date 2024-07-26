@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_DE-DE3491182844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-25 | [Waldweg im Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_DE-DE2050151888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-24 | [Herde von Swaledale-Schafen in North Yorkshire, England (© R A Kearton/Getty Images)](https://www.bing.com/th?id=OHR.SheepCousins_DE-DE1595160882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
