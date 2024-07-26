@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-27 | [プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_JA-JP6772337865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-26 | [セーヌ川に架かるポンヌフ橋, フランス パリ市 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_JA-JP6539297380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-25 | [グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_JA-JP3526148027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
