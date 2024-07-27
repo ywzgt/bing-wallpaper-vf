@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-28 | [Vinhedos no Vale do Mosela, Renânia-Palatinado, Alemanha (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_PT-BR7268269161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-27 | [Pont Neuf sobre o rio Sena, Paris, França (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_PT-BR6985503586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-26 | [Caminho florestal no Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_PT-BR2635483756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
