@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-27 | [Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_DE-DE4066969313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-26 | [Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_DE-DE3491182844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-25 | [Waldweg im Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_DE-DE2050151888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

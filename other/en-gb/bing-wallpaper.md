@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-27 | [Cowes Harbour, Cowes, Isle of Wight, England (© LyonesseImages/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CowesWeek2024_EN-GB1203003767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-26 | [Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_EN-GB0058066250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-25 | [Forest path in Great Smoky Mountains National Park, Tennessee, USA (© putmanphoto/Getty Images)](https://www.bing.com/th?id=OHR.SmokyMountainTrail_EN-GB9959939764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
