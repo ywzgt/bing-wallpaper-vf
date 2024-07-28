@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-28 | [Capanne da bagno sulla spiaggia della contea di Scania, Svezia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_IT-IT4512974268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-27 | [Foro Romano, Roma, Lazio, Italia (© Will Harding/Getty Images)](https://www.bing.com/th?id=OHR.EstateRomana_IT-IT9963812100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-26 | [Ponte Neuf sulla Senna, Parigi, Francia (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_IT-IT7027678488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
