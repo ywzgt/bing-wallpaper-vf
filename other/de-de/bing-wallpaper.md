@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-29 | [Tigergeschwister im Jim-Corbett-Nationalpark, Uttarakhand, Indien (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_DE-DE5462654549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-28 | [Badehütten am Strand in der Provinz Skåne Iän, Schweden (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_DE-DE4614841617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-27 | [Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_DE-DE4066969313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

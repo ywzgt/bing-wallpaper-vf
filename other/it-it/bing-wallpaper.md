@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-29 | [Fratelli di tigre nel Parco Nazionale di Jim Corbett, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_IT-IT0229464219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-28 | [Capanne da bagno sulla spiaggia della contea di Scania, Svezia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_IT-IT4512974268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-27 | [Foro Romano, Roma, Lazio, Italia (© Will Harding/Getty Images)](https://www.bing.com/th?id=OHR.EstateRomana_IT-IT9963812100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
