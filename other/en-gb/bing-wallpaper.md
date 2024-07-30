@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-30 | [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaOxpecker_EN-GB9009594859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-29 | [Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_EN-GB2931140045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-28 | [Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_EN-GB2231886770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-30 | [San Gimignano, Siena, Toscana, Italia (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_ES-ES3492198518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-29 | [Dos tigres hermanos en el Parque Nacional de Jim Corbett, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_ES-ES3406762791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-28 | [Casetas de playa en la provincia de Escania, Suecia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_ES-ES3277485240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
