@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-31 | [San Gimignano, Siena, Toscana, Itália (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_PT-BR7820946889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-30 | [Imagem aérea de uma plantação de café, Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.DiadoAgricultor_PT-BR1621260840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-29 | [Cabanas de banho na praia no condado de Escânia, Suécia (© Martin Wahlborg/Getty Images)](https://www.bing.com/th?id=OHR.BeachHutsSweden_PT-BR7531114296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
