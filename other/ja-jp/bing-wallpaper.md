@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-01 | [豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)](https://www.bing.com/th?id=OHR.Nebuta2024_JA-JP7778073736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-31 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_JA-JP7560776836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-30 | [サン・ジミニャーノ, イタリア トスカーナ州 (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_JA-JP7399834117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
