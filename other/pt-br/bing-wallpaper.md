@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-01 | [Hoodoos, Sunset Point, Parque Nacional de Bryce Canyon, Utah, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_PT-BR8116004606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-31 | [San Gimignano, Siena, Toscana, Itália (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_PT-BR7820946889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-30 | [Imagem aérea de uma plantação de café, Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.DiadoAgricultor_PT-BR1621260840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
