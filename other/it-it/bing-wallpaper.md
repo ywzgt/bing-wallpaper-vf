@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-31 | [Vigneti nella Valle della Mosella, Renania-Palatinato, Germania (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.RhinelandVineyards_IT-IT2787669199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-30 | [San Gimignano, Siena, Toscana, Italia (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_IT-IT2653150377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-29 | [Fratelli di tigre nel Parco Nazionale di Jim Corbett, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://www.bing.com/th?id=OHR.CorbettTigers_IT-IT0229464219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
