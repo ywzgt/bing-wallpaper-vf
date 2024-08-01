@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-01 | [Mercado flotante, Lago Kaptai, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.KaptaiLake_ES-ES3810492985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-07-31 | [Hoodoos Sunset Point, Parque Nacional del Cañón Bryce, Utah, EE.UU. (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_ES-ES3645985618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-07-30 | [San Gimignano, Siena, Toscana, Italia (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_ES-ES3492198518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
