@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-03 | [Baía do Tronco, Parque Nacional das Ilhas Virgens, Saint John, EUA (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_PT-BR8573788345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-02 | [Mercado flutuante, Lago Kaptai, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.KaptaiLake_PT-BR8351405372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-01 | [Hoodoos, Sunset Point, Parque Nacional de Bryce Canyon, Utah, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_PT-BR8116004606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
