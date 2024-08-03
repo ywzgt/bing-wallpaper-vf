@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-03 | [Tre Ponti Naturali, Parco Geologico Nazionale del Carso di Wulong, Cina (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_IT-IT7105962798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-02 | [Baia del Tronco, Parco Nazionale delle Isole Vergini, Saint John, USA (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_IT-IT7046604916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-01 | [Mercato galleggiante, lago Kaptai, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.KaptaiLake_IT-IT3135317683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
