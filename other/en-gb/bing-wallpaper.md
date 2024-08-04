@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_EN-GB0016765846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-03 | [The Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_EN-GB8759537408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-02 | [Trunk Bay, Virgin Islands National Park, Saint John, United States Virgin Islands (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_EN-GB8816603455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

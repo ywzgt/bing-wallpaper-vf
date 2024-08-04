@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-04 | [Romería Vikinga, Galicia (© Pablo Charlón/GettyImages)](https://www.bing.com/th?id=OHR.RomeriaVikinga_ES-ES4247544127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-03 | [Atardecer en Ribadesella, Asturias, España (© StockPhotoAstur/iStock/GettyImagesPlus)](https://www.bing.com/th?id=OHR.DescensodelSella_ES-ES4018014092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-02 | [Trunk Bay, Parque Nacional de las Islas Vírgenes, San Juan, EE. UU. (© cdwheatley/Getty Images)](https://www.bing.com/th?id=OHR.TrunkBay_ES-ES3941681202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
