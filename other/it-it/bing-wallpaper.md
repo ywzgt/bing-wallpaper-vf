@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-05 | [Campo di lavanda, Hertfordshire, Inghilterra, Regno Unito (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_IT-IT3555753109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-04 | [Impala e una bufaga beccorosso, Sudafrica (© Matrishva Vyas/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaOxpecker_IT-IT7910851982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-03 | [Tre Ponti Naturali, Parco Geologico Nazionale del Carso di Wulong, Cina (© Pav-Pro Photography Ltd/Shutterstock)](https://www.bing.com/th?id=OHR.WulongKarst_IT-IT7105962798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
