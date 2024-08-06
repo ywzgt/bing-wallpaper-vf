@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-06 | [Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_DE-DE0192501099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-05 | [Lavendelfeld, Hertfordshire, England, Großbritannien (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_DE-DE9702415169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-04 | [Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)](https://www.bing.com/th?id=OHR.SellinSeebruecke_DE-DE4280331105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-06 | [Cratère de Molokini, Maui, Hawaï, États-Unis (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_FR-FR4322144539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-05 | [Champ de lavande, Hertfordshire, Angleterre, Royaume-Uni (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_FR-FR4107363569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-04 | [San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)](https://www.bing.com/th?id=OHR.GimignanoTuscany_FR-FR0891435828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
