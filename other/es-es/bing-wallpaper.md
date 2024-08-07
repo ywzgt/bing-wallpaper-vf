@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-07 | [Luces interiores y exteriores del muelle norte de St. Joseph, Michigan, EE.UU. (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_ES-ES4793488515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-06 | [Molokini, Maui, Hawai, EE.UU. (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_ES-ES4650038553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-05 | [Campo de lavanda, Hertfordshire, Inglaterra, Reino Unido (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.HertfordshireLavender_ES-ES4413532305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
