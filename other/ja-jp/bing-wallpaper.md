@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [サクサイワマン, ペルー (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_JA-JP8602736251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-08 | [インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_JA-JP9234740493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-07 | [ミシガン湖とセントジョセフ灯台, 米国 ミシガン州 (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_JA-JP9089561371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
