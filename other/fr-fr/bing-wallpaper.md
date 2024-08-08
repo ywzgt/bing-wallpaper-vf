@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-08 | [Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_FR-FR4852852540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-07 | [Phares de Saint-Joseph, Michigan, États-Unis (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_FR-FR4479492551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-06 | [Cratère de Molokini, Maui, Hawaï, États-Unis (© Douglas Peebles/eStock Photo)](https://www.bing.com/th?id=OHR.MolokiniHawaii_FR-FR4322144539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
