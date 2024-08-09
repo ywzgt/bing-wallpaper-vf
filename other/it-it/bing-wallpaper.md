@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [Rovina Inca di Sacsayhuamán, Regione di Cusco, Perù (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_IT-IT3781329004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-08 | [Lago di Como, Lombardia, Italia (© Givaga/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.LagoComoItaly_IT-IT3865741032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-07 | [Molo St. Joseph North, Michigan, USA (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_IT-IT9647286903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

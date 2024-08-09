@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_DE-DE5129172652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-08 | [Fleckenkauz, Bangkok, Thailand (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_DE-DE2767331141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-07 | [St. Joseph Leuchttürme, Michigan, USA (© Kenneth Keifer/Getty Images)](https://www.bing.com/th?id=OHR.MichiganLighthouse_DE-DE1121606429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
