@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-10 | [Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_FR-FR7411748387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-09 | [Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_FR-FR7059028916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-08 | [Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)](https://www.bing.com/th?id=OHR.SpottedOwlet_FR-FR4852852540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
