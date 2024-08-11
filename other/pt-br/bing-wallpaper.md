@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-12 | [Garça-tigre-ruiva (Tigrisoma lineatum) adulta e filhote no ninho, Mato Grosso, Pantanal (© Ben Cranke/Minden)](https://www.bing.com/th?id=OHR.DiadosPais_PT-BR1045421907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-11 | [Parque Nacional de Joshua Tree, Califórnia, EUA (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_PT-BR8498081592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-10 | [Ruína inca de Sacsayhuamán, perto de Cusco, Peru (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_PT-BR4364071618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
