@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Sentiero di legno per il lago Kennedy, isola di Vancouver, British Columbia, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_IT-IT8944442230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-11 | [Sentiero di legno per il lago Kennedy, isola di Vancouver, British Columbia, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_IT-IT4209274959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-10 | [Monte Argentario, Toscana, Italia (© Giulio Ercolani/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SanLorenzoNight_IT-IT4055519723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
