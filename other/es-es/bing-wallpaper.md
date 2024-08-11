@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Sendero de madera al lago Kennedy, Isla de Vancouver, Columbia Británica, Canadá (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_ES-ES1346437270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-10 | [Parque Nacional Árboles de Josué, California, EE. UU. (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ES-ES0806309217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-09 | [Ruinas incas de Sacsayhuamán cerca de Cusco, Perú (© SL_Photography/Getty Images)](https://www.bing.com/th?id=OHR.IncaRuinPeru_ES-ES0427536842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

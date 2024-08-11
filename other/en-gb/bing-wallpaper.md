@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_EN-GB3629180467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-10 | [Joshua Tree National Park, California, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_EN-GB1169305265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-09 | [Clifton Suspension Bridge during the Bristol Balloon Fiesta, Bristol (© robertharding/Adobe Stock)](https://www.bing.com/th?id=OHR.BristolBalloonFiesta2024_EN-GB5744730173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
