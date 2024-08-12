@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-12 | [Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_FR-FR7826915061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-11 | [Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TofinoVancouver_FR-FR7602637860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-10 | [Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.JoshuaTreeNP_FR-FR7411748387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
