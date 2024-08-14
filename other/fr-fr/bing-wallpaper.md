@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-14 | [Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_FR-FR2192982199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-13 | [Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)](https://www.bing.com/th?id=OHR.LorientCelticFestival_FR-FR2950316084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-12 | [Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_FR-FR7826915061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

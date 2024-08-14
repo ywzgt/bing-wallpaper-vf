@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-14 | [Diavolo spinoso, Parco Nazionale di Watarrka, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_IT-IT4767936784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-13 | [Scogliere del Parco Naturale di Telašćica, Isola di Dugi Otok, Croazia (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_IT-IT0800672865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-12 | [Elefanti africani, Parco Nazionale di Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://www.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT6102111870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
