@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-16 | [Caverna Hang Sơn Đoòng, Parque Nacional Phong Nha-Kẻ Bàng, Vietnã (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_PT-BR4594901649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-15 | [Diabo-espinhoso, Parque Nacional de Watarrka, Austrália (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_PT-BR4397893741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-14 | [Penhascos do Parque Natural Telašćica, Ilha Dugi Otok, Croácia (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_PT-BR3949170501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
