@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-15 | [Hang Sơn Đoòng-Höhle, Nationalpark Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_DE-DE9528025476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-14 | [Dornteufel, Watarrka-Nationalpark, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_DE-DE9933808585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-13 | [Klippen des Naturparks Telašćica, Insel Dugi Otok, Kroatien (© Ilija Ascic/Shutterstock)](https://www.bing.com/th?id=OHR.DugiOtokCroatia_DE-DE7505074249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
