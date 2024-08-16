@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-16 | [Grotta di Hang Sơn Đoòng, Parco Nazionale di Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_IT-IT4945788331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-15 | [Capo Vaticano, Calabria, Italia (© Nikita Birzhakov/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.Ferragosto_IT-IT4867237057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-14 | [Diavolo spinoso, Parco Nazionale di Watarrka, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://www.bing.com/th?id=OHR.WatarrkaLizard_IT-IT4767936784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
