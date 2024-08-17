@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Farol de Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_PT-BR6712020565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Montanha-russa no Nagashima Spa Land, província de Mie, Japão (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_PT-BR6472241100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Caverna Hang Sơn Đoòng, Parque Nacional Phong Nha-Kẻ Bàng, Vietnã (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_PT-BR4594901649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
