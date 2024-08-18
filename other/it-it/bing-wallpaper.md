@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Molo di Huntington Beach al tramonto, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_IT-IT5196436677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Faro di Alfanzina, Algarve, Portogallo (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_IT-IT5068594687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Grotta di Hang Sơn Đoòng, Parco Nazionale di Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)](https://www.bing.com/th?id=OHR.HangCave_IT-IT4945788331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

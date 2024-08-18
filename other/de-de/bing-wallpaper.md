@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ExternsteineTeutoburg_DE-DE6454962619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Leuchtturm Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_DE-DE1525391215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Achterbahn im Nagashima Spa Land, Präfektur Mie, Japan (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_DE-DE2240435851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

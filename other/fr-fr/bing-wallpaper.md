@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Quai de Huntington Beach, Californie, États-Unis (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_FR-FR9728078384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_FR-FR9974749595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyFlower_FR-FR4834672236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

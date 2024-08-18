@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Fresh garlic bulbs for sale at the garlic farm on the Isle of Wight, England (© Steve Hawkins Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GarlicFestival2024_EN-GB7313189944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-17 | [Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-GB7045122942_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-16 | [Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_EN-GB6456877241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
