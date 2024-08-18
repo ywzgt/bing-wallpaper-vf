@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [ナガシマスパーランド, 三重県 桑名市 (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_JA-JP5324856123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-18 | [ハンティントンビーチピア, 米国 カリフォルニア州 (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_JA-JP5169837017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-17 | [アルファンジーナ灯台, ポルトガル (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_JA-JP5005128092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
