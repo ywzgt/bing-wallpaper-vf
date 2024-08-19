@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [Bufadero de la Garita, Gran Canaria, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_ES-ES7871203072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-18 | [Atardecer desde el Muelle de Huntington Beach, California, EE. UU. (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_ES-ES7631067128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-17 | [Anochecer en el Museo Guggenheim, Bilbao, País Vasco (© Dleiva/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.SemanaGrandeBilbao_ES-ES1226526692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

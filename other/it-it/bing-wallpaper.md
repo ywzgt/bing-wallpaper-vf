@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [Bufadero de la Garita, Gran Canaria, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_IT-IT5321961611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-18 | [Molo di Huntington Beach al tramonto, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_IT-IT5196436677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-17 | [Faro di Alfanzina, Algarve, Portogallo (© Andreas Kunz/Getty Images)](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_IT-IT5068594687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
