@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-20 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_DE-DE4508190035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-19 | [Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_DE-DE4289172038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-18 | [Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ExternsteineTeutoburg_DE-DE6454962619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

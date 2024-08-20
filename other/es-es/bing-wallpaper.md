@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-20 | [Amanecer en el Parque Nacional de Grand Teton, Wyoming, EE. UU. (© Kurt Budliger/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_ES-ES8184610803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-19 | [Bufadero de la Garita, Gran Canaria, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.RegataSanGines_ES-ES7871203072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-18 | [Atardecer desde el Muelle de Huntington Beach, California, EE. UU. (© Stan Moniz Photography/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_ES-ES7631067128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
