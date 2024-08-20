@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [ガラパゴス諸島のウォルフ島, エクアドル (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_JA-JP5706861733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-20 | [グランドティトン国立公園, 米国 ワイオミング州 (© Kurt Budliger/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_JA-JP5515131695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-19 | [ナガシマスパーランド, 三重県 桑名市 (© Japanese amateur photographer/Getty Images)](https://www.bing.com/th?id=OHR.JapanRollerCoaster_JA-JP5324856123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
