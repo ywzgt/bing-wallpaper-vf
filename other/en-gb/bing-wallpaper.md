@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_EN-GB8876355438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-20 | [Grand Teton National Park, Wyoming, USA (© Kurt Budliger/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_EN-GB8561222784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-19 | [Huntington Beach Pier at sunset, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HuntingtonBeach_EN-GB8055727268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
