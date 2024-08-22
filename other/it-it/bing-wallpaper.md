@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-22 | [Vista aerea di Ocean City all'alba, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_IT-IT8362993245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-21 | [Sula di Nazca, Isole di Wolf, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_IT-IT8043395751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-20 | [Parco Nazionale del Grand Teton, Wyoming, USA (© Kurt Budliger/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_IT-IT6014287082_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

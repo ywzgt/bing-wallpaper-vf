@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-22 | [Vista aérea de Ocean City al amanecer, Maryland, EE. UU. (© Kevin Olson/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.OceanCityMD_ES-ES9167700401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-21 | [El piquero de Nazca, Isla Wolf, Islas Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_ES-ES8963082511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-20 | [Amanecer en el Parque Nacional de Grand Teton, Wyoming, EE. UU. (© Kurt Budliger/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TetonSunrise_ES-ES8184610803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
