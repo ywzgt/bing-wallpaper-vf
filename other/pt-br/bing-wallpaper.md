@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-24 | [Ruínas do templo de Prasat Phanom Rung, província de Buriram, Tailândia (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_PT-BR0925050083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-23 | [Artesanato indígena brasileiro exposto para venda em feira ao ar livre (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.DiadoFolclore_PT-BR9451693617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-22 | [Atobá-de-pé-vermelho, Ilha Wolf, Ilhas Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.NazcaBooby_PT-BR5782154593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
