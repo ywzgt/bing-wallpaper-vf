@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_JA-JP7854639610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-24 | [三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)](https://www.bing.com/th?id=OHR.JizoFestival2024_JA-JP8040094666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-23 | [厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)](https://www.bing.com/th?id=OHR.Fireworks2024_JA-JP2308803408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
