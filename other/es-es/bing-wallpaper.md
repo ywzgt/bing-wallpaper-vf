@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-25 | [Sitges, Barcelona, Cataluña, España (© Pol Albarrán/Moment/GettyImages)](https://www.bing.com/th?id=OHR.VelaAmericaCupBarcelona_ES-ES7829816830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-24 | [Monumento Nacional de los Bosques y Aguas de Katahdin, Condado de Penobscot, Maine, EE. UU. (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.KatahdinWoods_ES-ES2494481024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-23 | [Ruinas del templo de Prasat Phanom Rung, provincia de Buri Ram, Tailandia (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_ES-ES2130106694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
