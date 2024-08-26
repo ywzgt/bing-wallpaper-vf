@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-27 | [パノムルン遺跡, タイ (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_JA-JP7500129821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-26 | [パルミラ環礁, 米国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_JA-JP7657576901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-25 | [グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_JA-JP7854639610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
