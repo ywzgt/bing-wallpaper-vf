@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-28 | [サクレ・クール寺院, フランス パリ (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_JA-JP5348404269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-27 | [パノムルン遺跡, タイ (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_JA-JP7500129821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-26 | [パルミラ環礁, 米国 (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_JA-JP7657576901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
