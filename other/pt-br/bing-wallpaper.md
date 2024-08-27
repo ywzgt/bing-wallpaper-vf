@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-28 | [Jacaré-açu, Reserva Nacional de Tambopata, Peru (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_PT-BR3430658396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-27 | [Refúgio Nacional de Vida Selvagem do Atol de Palmyra, Oceano Pacífico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-26 | [Amanhecer sobre o Lago Swiftcurrent, Parque Nacional Glacier, Montana, EUA (© Jason Savage/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SwiftcurrentLake_PT-BR2467952516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
