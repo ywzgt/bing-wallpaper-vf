@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-28 | [Montmartre e Sacro Cuore, Parigi, Francia (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_IT-IT4851305254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-27 | [Lago Misurina, Auronzo di Cadore, Belluno, Veneto (© Andrew_Mayovskyy/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.LagoMisurina_IT-IT4702658331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-26 | [Rifugio nazionale dell'atollo di Palmyra, Oceano Pacifico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
