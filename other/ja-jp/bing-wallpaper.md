@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-29 | [カステルフォリット・デ・ラ・ロカ, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_JA-JP7179605635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-28 | [サクレ・クール寺院, フランス パリ (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_JA-JP5348404269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-27 | [パノムルン遺跡, タイ (© Banjongseal324/Getty Images)](https://www.bing.com/th?id=OHR.PrasatPhanom_JA-JP7500129821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
