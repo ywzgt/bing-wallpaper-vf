@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-29 | [Castellfollit de la Roca, Cataluña (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_ES-ES3608395320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-28 | [Montmartre y Basílica del Sagrado Corazón, París, Francia (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_ES-ES7310525546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-27 | [Caimán negro, Reserva Nacional Tambopata, Perú (© Maxime Aliaga/Minden Pictures)](https://www.bing.com/th?id=OHR.YoungCaiman_ES-ES2920526153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
