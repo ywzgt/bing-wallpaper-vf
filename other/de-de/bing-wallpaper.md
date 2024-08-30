@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-30 | [Walhai in der Cenderawasih-Bucht, West Papua, Indonesien (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_DE-DE9045925984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-29 | [Castellfollit de la Roca, Katalonien, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_DE-DE7979269591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-28 | [Montmartre und Sacre Cœur, Paris, Frankreich (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_DE-DE3278467124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

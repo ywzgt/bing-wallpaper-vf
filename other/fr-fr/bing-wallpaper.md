@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-30 | [Requin-baleine dans la baie de Cenderawasih, Papouasie occidentale, Indonésie (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_FR-FR7922497271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-29 | [Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_FR-FR5347167823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-28 | [Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.PontNeuf_FR-FR7590326569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

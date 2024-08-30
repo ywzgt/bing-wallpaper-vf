@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-30 | [Uno squalo balena nella baia di Cenderawasih, Papua occidentale, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_IT-IT0919967624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-29 | [Castellfollit de la Roca, Catalogna, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_IT-IT5915189187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-28 | [Montmartre e Sacro Cuore, Parigi, Francia (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.ParalympicsParis_IT-IT4851305254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
