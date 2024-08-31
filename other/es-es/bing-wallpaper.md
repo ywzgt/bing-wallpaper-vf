@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-31 | [Formaciones rocosas y dunas en el Sáhara, Djanet, Argelia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_ES-ES4121297619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-30 | [Un tiburón ballena en la bahía de Cenderawasih, Papúa Occidental, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_ES-ES3843560533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-29 | [Castellfollit de la Roca, Cataluña (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.CastellfollitSpain_ES-ES3608395320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
