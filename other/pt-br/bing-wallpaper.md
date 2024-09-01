@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-02 | [Rio Tâmisa, Londres, Inglaterra (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_PT-BR5304149458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-01 | [Formações rochosas e dunas de areia no Saara, Djanet, Argélia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_PT-BR4680900903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-31 | [Um tubarão-baleia na Baía de Cenderawasih, Papua Ocidental, Indonésia (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_PT-BR4441364252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
