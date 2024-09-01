@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-01 | [Tamise, Londres, Angleterre (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_FR-FR8520495131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-31 | [Formations rocheuses et dunes de sable dans le Sahara, Djanet, Algérie (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_FR-FR8225562823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-30 | [Requin-baleine dans la baie de Cenderawasih, Papouasie occidentale, Indonésie (© Andy Lerner/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WhaleSharkDay_FR-FR7922497271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
