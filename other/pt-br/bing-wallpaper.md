@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-03 | [Araras-vermelhas, Mato Grosso do Sul, Brasil (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_PT-BR5512338223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-02 | [Rio Tâmisa, Londres, Inglaterra (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_PT-BR5304149458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-01 | [Formações rochosas e dunas de areia no Saara, Djanet, Argélia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_PT-BR4680900903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
