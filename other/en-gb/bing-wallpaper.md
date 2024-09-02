@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-02 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine, USA (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-GB6027367272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-01 | [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_EN-GB5554427883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-31 | [Rock formations and sand dunes in the Sahara, Djanet, Algeria (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_EN-GB4963001163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

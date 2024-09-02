@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-02 | [Guacamayo aliverde, Mato Grosso do Sul, Brasil (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_ES-ES4509423904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-01 | [Río Támesis, Londres, Inglaterra (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.ThamesLondon_ES-ES4307363719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-31 | [Formaciones rocosas y dunas en el Sáhara, Djanet, Argelia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_ES-ES4121297619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
