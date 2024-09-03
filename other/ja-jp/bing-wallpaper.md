@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-04 | [ウスグロワシミミズク, パキスタン (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_JA-JP6308123307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-03 | [エンチャントメンツ地域にある高山湖,米国 ワシントン州 (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_JA-JP6421290140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-02 | [ベニコンゴウインコ, ブラジル マットグロッソ・ド・スル州 (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_JA-JP6532536495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
