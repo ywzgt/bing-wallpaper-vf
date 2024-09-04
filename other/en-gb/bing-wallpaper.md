@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-04 | [Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_EN-GB7904137343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-03 | [Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington, USA (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_EN-GB6796431877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-02 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine, USA (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.KatahdinWoods_EN-GB6027367272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
