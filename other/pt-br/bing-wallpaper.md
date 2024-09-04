@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-05 | [Bufos-sombrios, Paquistão (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_PT-BR7151379971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-04 | [Crystal Lake nos Enchantments, Região selvagem dos lagos alpinos, Washington, EUA (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_PT-BR5855305419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-03 | [Araras-vermelhas, Mato Grosso do Sul, Brasil (© Ellen Goff/Danita Delimont)](https://www.bing.com/th?id=OHR.BuracodasAraras_PT-BR5512338223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
