@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-06 | [郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-05 | [湖越しに見えるトロントの高層ビル, カナダ オンタリオ州 (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_JA-JP6140620870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-04 | [ウスグロワシミミズク, パキスタン (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_JA-JP6308123307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
