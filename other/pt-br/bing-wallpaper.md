@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-06 | [Confluência do Rio Negro e do Amazonas, Manaus, estado do Amazonas (© robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.RioNegroSolimoes_PT-BR3787535047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-05 | [Bufos-sombrios, Paquistão (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_PT-BR7151379971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-04 | [Crystal Lake nos Enchantments, Região selvagem dos lagos alpinos, Washington, EUA (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_PT-BR5855305419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
