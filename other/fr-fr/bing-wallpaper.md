@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-05 | [Vue de la ville de Toronto depuis le lac Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_FR-FR7898842904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-04 | [Grand-duc de Coromandel, Pakistan (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_FR-FR0673543438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-03 | [Lac Crystal dans les Enchantments, Alpine Lakes Wilderness, Washington, États-Unis (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_FR-FR5224136914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

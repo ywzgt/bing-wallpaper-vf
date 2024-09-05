@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-05 | [Lo skyline di Toronto visto dal lago Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_IT-IT6965030073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-04 | [Gufo reale bruno, Pakistan (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_IT-IT6847895557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-03 | [Lago Crystal, Alpine Lakes Wilderness, Washington, USA (© Mitch Pittman/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AlpineLakes_IT-IT6756138209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
