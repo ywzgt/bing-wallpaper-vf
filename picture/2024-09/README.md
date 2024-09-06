@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-09)
-![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&w=1000)Today: [古老山毛榉树，格莱纳里夫森林公园���安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&w=1000)Today: [古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-06 [download 4k](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-06 [download 4k](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-05 [download 4k](https://www.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
