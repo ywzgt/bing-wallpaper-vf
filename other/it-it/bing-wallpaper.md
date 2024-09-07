@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-07 | [Vista di Firenze dal Duomo, Toscana, Italia (© Martin M303/Adobe Stock)](https://www.bing.com/th?id=OHR.FestaRificolona_IT-IT8489654769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-06 | [Antico faggio, Parco Forestale di Glenariff, Contea di Antrim, Irlanda del Nord (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_IT-IT4424875545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-05 | [Lo skyline di Toronto visto dal lago Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_IT-IT6965030073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-07 | [Colibrí de Ana, Santa Cruz, California, EE. UU. (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_ES-ES5411382953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-06 | [Haya centenaria, Parque Forestal de Glenariff, Condado de Antrim, Irlanda del Norte, Reino Unido (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_ES-ES4997383293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-05 | [Búho de Coromandel, Pakistán (© zahoor salmi/Getty Images)](https://www.bing.com/th?id=OHR.DuskyOwls_ES-ES4835891419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

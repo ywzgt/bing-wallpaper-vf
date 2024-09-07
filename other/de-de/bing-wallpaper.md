@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-07 | [Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_DE-DE2867503109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-06 | [Alte Buche, Glenariff Forest Park, Grafschaft Antrim, Nordirland (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_DE-DE2551024301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-05 | [Skyline der Stadt Toronto am Ontariosee, Kanada (© Roberto Machado Noa/Getty Images)](https://www.bing.com/th?id=OHR.TIFF2024_DE-DE1559469948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
