@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [Parque da Independência, São Paulo (© Thiago Leitey/Shutterstock)](https://www.bing.com/th?id=OHR.IndependenciaBrasil_PT-BR0488632296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [Faia antiga, Parque Florestal de Glenariff, Condado de Antrim, Irlanda do Norte (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_PT-BR3219733810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [Confluência do Rio Negro e do Amazonas, Manaus, estado do Amazonas (© robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.RioNegroSolimoes_PT-BR3787535047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
