@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_JA-JP1538658617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [アンナハチドリ, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_JA-JP9857439185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_JA-JP9477689405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
