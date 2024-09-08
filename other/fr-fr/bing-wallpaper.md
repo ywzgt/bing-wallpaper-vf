@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [Intérieur de la bibliothèque publique de Stockholm, Suède (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_FR-FR9141421030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [Colibri d'Anna, Santa Cruz, Californie, États-Unis (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_FR-FR8767186794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [Cabines de plage à Deauville, France (© Skayamauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AmericanDeauvilleFestival_FR-FR8608848742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

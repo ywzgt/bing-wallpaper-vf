@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [Innenraum der Stadtbibliothek Stockholm, Schweden (© Andrei Hrabun/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.StockholmLibrary_DE-DE3864288273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.SantaCruzHummer_DE-DE2867503109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [Alte Buche, Glenariff Forest Park, Grafschaft Antrim, Nordirland (© Dawid K Photography/Shutterstock)](https://www.bing.com/th?id=OHR.GlenariffPark_DE-DE2551024301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
