@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-10 | [ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_JA-JP2119516419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-09 | [イグアスの滝, ブラジルとアルゼンチン (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_JA-JP1767821337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-08 | [ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_JA-JP1538658617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
