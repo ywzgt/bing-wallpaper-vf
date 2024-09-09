@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-10 | [Cataratas do Iguaçu na fronteira do Brasil com a Argentina (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_PT-BR7775661290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-09 | [Interior da Biblioteca Pública de Estocolmo, Suécia (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_PT-BR3203792144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-08 | [Parque da Independência, São Paulo (© Thiago Leitey/Shutterstock)](https://www.bing.com/th?id=OHR.IndependenciaBrasil_PT-BR0488632296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
