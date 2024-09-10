@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-10 | [Pont Vasco de Gama, Lisbonne, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_FR-FR9704936027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-09 | [Chutes d'Iguazu à la frontière entre l'Argentine et le Brésil (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_FR-FR9313574193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-08 | [Intérieur de la bibliothèque publique de Stockholm, Suède (© Andrei Hrabun/Alamy)](https://www.bing.com/th?id=OHR.StockholmLibrary_FR-FR9141421030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
