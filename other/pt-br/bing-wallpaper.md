@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-12 | [Castelo de Eltz, Alemanha (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_PT-BR6770414719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-11 | [Ponte Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-10 | [Cataratas do Iguaçu na fronteira do Brasil com a Argentina (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.IguazuRainbow_PT-BR7775661290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
