@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [Grupo de golfinhos perto da Ilha da Reunião, Oceano Índico, Departamento Ultramarino Francês (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_PT-BR8025622682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [Castelo de Eltz, Alemanha (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_PT-BR6770414719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [Ponte Vasco da Gama, Lisboa, Portugal (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_PT-BR7212632262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
