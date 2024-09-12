@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-12 | [Baccello di delfini vicino alle coste dell’isola della Riunione, Oceano Indiano (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_IT-IT1645140668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-11 | [Arco Magno, San Nicola Arcella, Calabria, Italia (© Alessio de Cicco/Moment/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_IT-IT5208415155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-10 | [Ponte Vasco da Gama, Lisbona, Portogallo (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_IT-IT5048654702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
