@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [ポイント・レイズ国定公園, 米国 カリフォルニア州 (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_JA-JP3284759959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [レユニオン島付近のイルカの群れ, フランス (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_JA-JP2887031776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.BridgeLisbon_JA-JP2510109081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
