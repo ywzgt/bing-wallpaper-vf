@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [Ualabí al amanecer, río Adelaida, Territorio del Norte, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_ES-ES9650921909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [Manada de delfines cerca de la isla de la Reunión, Océano Índico, departamento francés de ultramar (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_ES-ES7087981116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [Balcón del Palau de la Música, Barcelona, Cataluña (© Jacek Sopotnicki/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BarcelonaCataloniaDay_ES-ES6860997474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

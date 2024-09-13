@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [Phare de l’aire côtière protégée de Point Reyes, Californie, États-Unis (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_FR-FR0377202822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [Pod de dauphins près de l'île de la Réunion, océan Indien (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_FR-FR0184396607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [Château d'Eltz, Allemagne (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_FR-FR9929668826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
