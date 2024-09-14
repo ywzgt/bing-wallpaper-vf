@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-15 | [Amanhecer em Ahu Tongariki, Parque Nacional Rapa Nui, Ilha de Páscoa, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_PT-BR6063530742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-14 | [Point Reyes National Seashore Lighthouse, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://www.bing.com/th?id=OHR.PointReyes_PT-BR8277913386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-13 | [Grupo de golfinhos perto da Ilha da Reunião, Oceano Índico, Departamento Ultramarino Francês (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_PT-BR8025622682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
