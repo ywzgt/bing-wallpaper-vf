@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-14 | [Sonnenaufgang am Ahu Tongariki, Nationalpark Rapa Nui, Osterinsel, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_DE-DE1697921573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-13 | [Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)](https://www.bing.com/th?id=OHR.SanssouciPalace_DE-DE1364639804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-12 | [Delfine in der Nähe der Insel Réunion, Indischer Ozean, französisches Überseegebiet (© Joost van Uffelen/Shutterstock)](https://www.bing.com/th?id=OHR.DolphinReunion_DE-DE0331198216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
