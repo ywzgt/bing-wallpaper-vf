@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-16 | [枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)](https://www.bing.com/th?id=OHR.OwlNew2024_JA-JP4084004440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-15 | [ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-14 | [国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)](https://www.bing.com/th?id=OHR.CosmosDay2024_JA-JP3703662081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
