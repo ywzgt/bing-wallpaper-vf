@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-15 | [Playa de Arcomagno, Calabria, Italia (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-14 | [Amanecer en Ahu Tongariki, Parque Nacional Rapa Nui, Isla de Pascua, Chile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ES-ES7347678695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-13 | [Ualabí al amanecer, río Adelaida, Territorio del Norte, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_ES-ES9650921909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
