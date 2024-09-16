@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-17 | [ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_JA-JP4830170317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-16 | [枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)](https://www.bing.com/th?id=OHR.OwlNew2024_JA-JP4084004440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-15 | [ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_JA-JP3900865129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
