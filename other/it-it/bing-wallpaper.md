@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-16 | [Wallaby all'alba, fiume Adelaide, Territorio del Nord, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_IT-IT9509274340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-15 | [Castello di Eltz, Renania-Palatinato, Germania (© Allard Schager/Alamy)](https://www.bing.com/th?id=OHR.EltzCastle_IT-IT5701748731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-14 | [Alba ad Ahu Tongariki, Parco Nazionale Rapa Nui, Isola di Pasqua, Cile (© Piriya Photography/Getty Images)](https://www.bing.com/th?id=OHR.RapaNuiSunrise_IT-IT0245342035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

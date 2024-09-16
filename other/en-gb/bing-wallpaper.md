@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-16 | [Wallabies, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_EN-GB4531988184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-15 | [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.StockholmLibrary_EN-GB4478334058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-14 | [Royal Albert Hall, Kensington, London (© Katherine Young/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LastNightOfTheProms2024_EN-GB2327761214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
