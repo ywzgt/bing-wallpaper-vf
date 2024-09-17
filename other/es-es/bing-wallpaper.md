@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-17 | [Festival del Medio Otoño en los Jardines de la Bahía, Singapur (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_ES-ES8766898553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-16 | [Atardecer en la Costa de la Muerte, Galicia (© Brian Maudsley/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WindsurferWorldChampionships_ES-ES7763895554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-15 | [Playa de Arcomagno, Calabria, Italia (© Alessio de Cicco/Getty Images)](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ES-ES7527352353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
