@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-18 | [Castello di Gujō Hachiman, Prefettura di Gifu, Giappone (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_IT-IT6052956461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-17 | [Festa di metà autunno a Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_IT-IT4809811002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-16 | [Wallaby all'alba, fiume Adelaide, Territorio del Nord, Australia (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_IT-IT9509274340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

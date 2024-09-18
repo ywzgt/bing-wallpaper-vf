@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-18 | [Burg Gujō Hachiman, Präfektur Gifu, Japan (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_DE-DE4199645559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-17 | [Mondfest in den Gardens by the Bay, Singapur (© Victor Y. Zhuo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_DE-DE3783759874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-16 | [Wallabys bei Sonnenaufgang, Adelaide River, Nordterritorium, Australien (© Jeremy Woodhouse/Getty Images)](https://www.bing.com/th?id=OHR.SunriseWallabies_DE-DE3495794966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
