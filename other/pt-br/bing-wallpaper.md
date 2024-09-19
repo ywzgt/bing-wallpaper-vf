@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-20 | [Interior do Teatro Amazonas em Manaus, Amazonas (© Altrendo Images/Shutterstock)](https://www.bing.com/th?id=OHR.DiaNacionaldoTeatro_PT-BR7232325945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-19 | [Castelo Gujō Hachiman, Prefeitura de Gifu, Japão (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_PT-BR3323033809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-18 | [Festival de Meio do Outono em Jardins da Baía, Singapura (© Victor Y. Zhuo/Alamy)](https://www.bing.com/th?id=OHR.MidAutumnSingapore_PT-BR5635809883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
