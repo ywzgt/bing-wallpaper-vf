@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-19 | [Parque infantil en el faro de Obereversand en Dorum-Neufeld, Alemania (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_ES-ES2294231857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-19 | [Parque infantil en el faro de Obereversand en Dorum-Neufeld, Alemania (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_ES-ES9238970412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-18 | [Castillo de Gujō Hachiman, prefectura de Gifu, Japón (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_ES-ES8969263083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
