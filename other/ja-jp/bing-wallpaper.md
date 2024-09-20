@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [夕暮れのテレージエンヴィーゼ, ドイツ バイエルン州 (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_JA-JP0799044795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [オクラコーク島,  米国 ノースカロライナ州 (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_JA-JP0600038027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_JA-JP8924583087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
