@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [Faro de Ocracoke na ilha de Ocracoke, Carolina do Norte, EUA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_PT-BR0175808147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [Interior do Teatro Amazonas em Manaus, Amazonas (© Altrendo Images/Shutterstock)](https://www.bing.com/th?id=OHR.DiaNacionaldoTeatro_PT-BR7232325945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [Castelo Gujō Hachiman, Prefeitura de Gifu, Japão (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_PT-BR3323033809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
