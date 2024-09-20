@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-20 | [Ocracoke-Leuchtturm auf Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_DE-DE4329523097_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-19 | [Spielplatz am Leuchtturm Obereversand in Dorum-Neufeld, Deutschland (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_DE-DE1271475836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-18 | [Burg Gujō Hachiman, Präfektur Gifu, Japan (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_DE-DE4199645559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-20 | [Phare de l’île d'Ocracoke, Caroline du Nord, États-Unis (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_FR-FR4610560475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-19 | [Aire de jeux du phare d'Obereversand à Dorum-Neufeld, Allemagne (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_FR-FR1786944453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-18 | [Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)](https://www.bing.com/th?id=OHR.GujoHachiman_FR-FR1605630102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
