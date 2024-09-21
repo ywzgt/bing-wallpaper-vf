@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [Oktoberfest a Monaco di Baviera, Germania (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [Faro di Ocracoke sull'isola di Ocracoke, Carolina del Nord, USA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_IT-IT0714167310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [Parco giochi presso il faro di Obereversand a Dorum-Neufeld, Germania (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_IT-IT1371008895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

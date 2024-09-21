@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_EN-GB0671591824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_EN-GB0317471752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_EN-GB4703060204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

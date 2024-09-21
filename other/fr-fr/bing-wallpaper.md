@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [Panorama sur l’Oktoberfest au coucher du soleil, Munich, Allemagne (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_FR-FR4864726596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [Phare de l’île d'Ocracoke, Caroline du Nord, États-Unis (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_FR-FR4610560475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [Aire de jeux du phare d'Obereversand à Dorum-Neufeld, Allemagne (© INGO WAGNER/DPA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.PiratePlayground_FR-FR1786944453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
