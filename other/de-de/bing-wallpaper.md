@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-22 | [Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_DE-DE9036257746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-21 | [Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)](https://www.bing.com/th?id=OHR.SpatenBeerTent_DE-DE4425745255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-20 | [Ocracoke-Leuchtturm auf Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_DE-DE4329523097_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

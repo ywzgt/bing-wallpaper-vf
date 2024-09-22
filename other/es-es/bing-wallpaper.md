@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-22 | [Equinoccio de otoño en la Pradera de Ordesa, Huesca (© Susana Guzman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AragonAutumnLandscape_ES-ES5440172345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-21 | [Oktoberfest en Múnich desde lo alto al atardecer (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_ES-ES5226807539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-20 | [Faro de Ocracoke en la isla de Ocracoke, Carolina del Norte, EE.UU. (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.OcracokeLight_ES-ES5015251723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
