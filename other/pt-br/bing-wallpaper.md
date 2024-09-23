@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-24 | [Lontra marinha, Prince William Sound, Alasca, EUA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_PT-BR0553443956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-23 | [Arara-azul em um ipê-rosa durante a estação de floração, Pantanal, Mato Grosso (© Luiz Claudio Marigo/Minden PIctures)](https://www.bing.com/th?id=OHR.Primavera_PT-BR5788355112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-22 | [Vista de baixo ângulo de uma árvore com flores cor-de-rosa contra o céu, Distrito Federal (© Bruno Couto via 500px/GettyImages)](https://www.bing.com/th?id=OHR.DiadaArvore_PT-BR9942268995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
