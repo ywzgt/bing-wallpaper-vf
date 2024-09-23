@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-23 | [Lontra marina, Prince William Sound, Alaska, USA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_IT-IT1022264475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-22 | [Buttermere, Parco Nazionale del Lake District, Inghilterra, Regno Unito (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_IT-IT4193827391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-21 | [Oktoberfest a Monaco di Baviera, Germania (© AllesSuper21/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MunichBeerfest_IT-IT3943225360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
