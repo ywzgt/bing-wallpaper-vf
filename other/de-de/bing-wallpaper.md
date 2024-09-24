@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-24 | [Wasserfall in Skaftafell, Vatnajökull-Nationalpark, Island (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_DE-DE5014328523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-23 | [Seeotter, Prince-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_DE-DE4856944180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-22 | [Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AutumnCumbria_DE-DE9036257746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
