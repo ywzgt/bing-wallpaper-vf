@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-25 | [セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_JA-JP1712203970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-24 | [ヴァトナヨークトル国立公園, アイスランド (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_JA-JP1502759780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-23 | [プリンス・ウィリアム湾のラッコ,  米国 アラスカ州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_JA-JP1353399604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

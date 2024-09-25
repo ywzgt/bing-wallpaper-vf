@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-25 | [Montone, Umbria, Italia (© Davide Seddio/Gettz Images)](https://www.bing.com/th?id=OHR.FestivalMedioevo_IT-IT1145169158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-24 | [Cascata a Skaftafell, Parco Nazionale del Vatnajökull, Islanda (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_IT-IT8228006063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-23 | [Lontra marina, Prince William Sound, Alaska, USA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IcebergOtter_IT-IT1022264475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
