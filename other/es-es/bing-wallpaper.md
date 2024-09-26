@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-26 | [Tucanete gorjiazul, Parque Nacional Los Quetzales, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_ES-ES6890080970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-25 | [Secuoyas gigantes, Parque Nacional Sequoia, California, EE.UU. (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_ES-ES6715324180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-24 | [Cascada de Skaftafell, Parque Nacional de Vatnajökull, Islandia (© Nopasorn Kowathanakul/Getty Images)](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_ES-ES6245666975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
