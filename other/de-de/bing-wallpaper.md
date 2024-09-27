@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-27 | [Luftaufnahme des Canale Grande und der Basilica di Santa Maria della Salute, Venedig, Italien (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_DE-DE9588219063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-26 | [Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_DE-DE5120779662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-25 | [Riesenmammutbäume, Sequoia-Nationalpark, Kalifornien, USA (© Galyna Andrushko/Shutterstock)](https://www.bing.com/th?id=OHR.GiantSequoias_DE-DE0297473056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
