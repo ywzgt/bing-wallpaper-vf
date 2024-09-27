@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [サンタ・マリア・デッラ・サルーテ聖堂, イタリア ヴェネツィア (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_JA-JP2627608079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YokohamaBridge2024_JA-JP2381649830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [ロス・ケツァーレス国立公園, コスタリカ (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_JA-JP2193126707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
