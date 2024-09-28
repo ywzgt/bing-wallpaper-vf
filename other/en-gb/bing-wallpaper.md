@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_EN-GB6507271647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_EN-GB6264202474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_EN-GB5921731705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

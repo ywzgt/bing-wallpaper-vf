@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Calanques_FR-FR0746554630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [Vue aérienne du Grand Canal et de la Basilique de Santa Maria della Salute, Venise, Italie (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_FR-FR6953765883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [Toucanet à gorge bleue, parc national de Los Quetzales, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_FR-FR6494819106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

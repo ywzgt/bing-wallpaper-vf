@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [Atardecer en la Playa de Zurriola, San Sebastián, País Vasco (© Poliki/iStock/Gettyimages)](https://www.bing.com/th?id=OHR.SanSebastianFilmFestivalkicksoff_ES-ES7999513077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [Vista aérea del Gran Canal y la Basílica de Santa Maria della Salute, Venecia, Italia (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_ES-ES7915043762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [Tucanete gorjiazul, Parque Nacional Los Quetzales, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LittleToucanet_ES-ES6890080970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

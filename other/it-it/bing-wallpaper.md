@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [Spiaggia di Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_IT-IT3615650453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [Canal Grande e della Basilica di Santa Maria della Salute, Venezia (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_IT-IT9053737522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [Fiume Wind, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_IT-IT8914553087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
