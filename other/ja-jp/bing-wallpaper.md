@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-30 | [スヴァールバル諸島, ノルウェー (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_JA-JP3040663299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-29 | [コーンウォール, 米国 コネチカット州 (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_JA-JP2803321025_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-28 | [サンタ・マリア・デッラ・サルーテ聖堂, イタリア ヴェネツィア (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceAerial_JA-JP2627608079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
