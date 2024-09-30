@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-30 | [Walrossherde im nördlichen Spitzbergen, Svalbard-Archipel, Norwegen (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_DE-DE5538217072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-29 | [West Cornwall Covered Bridge über den Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_DE-DE5467033007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-28 | [Strand bei Sonnenaufgang, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_DE-DE5371597914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

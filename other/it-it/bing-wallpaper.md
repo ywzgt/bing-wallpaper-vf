@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-30 | [Trichechi nel nord di Spitsbergen, arcipelago delle Svalbard, Norvegia (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_IT-IT2593695501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-29 | [Ponte coperto di West Cornwall sul fiume Housatonic, Connecticut, USA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_IT-IT2485348656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-28 | [Spiaggia di Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_IT-IT3615650453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

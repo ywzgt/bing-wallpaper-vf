@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-30 | [Troupeau de morses dans le nord du Spitzberg, archipel du Svalbard, Norvège (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_FR-FR7720633586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-29 | [Pont couvert de West Cornwall, Connecticut, États-Unis (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_FR-FR7429205429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-28 | [Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Calanques_FR-FR0746554630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
