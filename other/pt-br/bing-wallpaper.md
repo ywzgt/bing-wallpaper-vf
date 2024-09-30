@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-01 | [Colônia de morsas no norte de Spitsbergen, arquipélago de Svalbard, Noruega (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_PT-BR4604487839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-30 | [Ponte Coberta de West Cornwall sobre o rio Housatonic, Connecticut, EUA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_PT-BR4352188943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-29 | [Praia ao nascer do sol, Costa Nacional das Ilhas do Golfo, Flórida, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.FloridaSeashore_PT-BR4145108998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
