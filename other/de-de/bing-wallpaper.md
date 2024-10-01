@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-01 | [Half Dome, Yosemite-Nationalpark, Kalifornien, USA (© Adam Burton/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_DE-DE5765529355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-30 | [Walrossherde im nördlichen Spitzbergen, Svalbard-Archipel, Norwegen (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_DE-DE5538217072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-29 | [West Cornwall Covered Bridge über den Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_DE-DE5467033007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

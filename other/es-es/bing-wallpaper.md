@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-01 | [Half Dome, Parque Nacional de Yosemite, California, EE. UU. (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_ES-ES8574128580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-30 | [Manada de morsas en el norte de Spitsbergen, archipiélago de Svalbard, Noruega (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_ES-ES8405668641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-29 | [El Puente Cubierto de West Cornwall sobre el río Housatonic, Connecticut, EE.UU. (© pabradyphoto/Getty Images)](https://www.bing.com/th?id=OHR.ConnecticutBridge_ES-ES8203018344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
