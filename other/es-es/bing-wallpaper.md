@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-02 | [Río Wind, cordillera de Brooks, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ES-ES8759556156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-01 | [Half Dome, Parque Nacional de Yosemite, California, EE. UU. (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_ES-ES8574128580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-30 | [Manada de morsas en el norte de Spitsbergen, archipiélago de Svalbard, Noruega (© AWL Images/Danita Delimont)](https://www.bing.com/th?id=OHR.WalrusNorway_ES-ES8405668641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

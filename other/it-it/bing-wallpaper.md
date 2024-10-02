@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-02 | [Lago di Braies, Trentino-Aldo Adige, Italia (© pidjoe/Getty Images)](https://www.bing.com/th?id=OHR.LakeInItalianNonni_IT-IT2833873964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-01 | [Half Dome, Parco Nazionale di Yosemite, California, USA (© Adam Burton/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_IT-IT2723116418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-30 | [Trichechi nel nord di Spitsbergen, arcipelago delle Svalbard, Norvegia (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_IT-IT2593695501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

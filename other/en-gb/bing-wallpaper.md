@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-02 | [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-GB7636614285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-01 | [Statue of Mary Seacole, London, England (© Charles Bowman/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BlackHistoryMonth2024_EN-GB1865178312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-30 | [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)](https://www.bing.com/th?id=OHR.WalrusNorway_EN-GB0459877191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
