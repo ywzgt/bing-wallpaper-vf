@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [Taj Mahal em Agra, Uttar Pradesh, Índia (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_PT-BR5120942939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-03 | [Wind River, Brooks Range, Refúgio Nacional de Vida Selvagem do Ártico, Alasca, EUA (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_PT-BR4944339151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-02 | [Half Dome, Parque Nacional de Yosemite, Califórnia, EUA (© Adam Burton/Alamy)](https://www.bing.com/th?id=OHR.HalfDomeYosemite_PT-BR4764561878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
