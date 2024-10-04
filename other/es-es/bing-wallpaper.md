@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [Europa, la luna helada de Júpiter (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_ES-ES3412713189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-03 | [Taj Mahal, Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_ES-ES8913986837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-02 | [Río Wind, cordillera de Brooks, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Design Pics/Danita Delimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_ES-ES8759556156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

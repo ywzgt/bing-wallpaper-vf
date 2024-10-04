@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [Jupiters Eismond Europa (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_DE-DE7966877532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-03 | [Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)](https://www.bing.com/th?id=OHR.BerlinWallBlueHands_DE-DE6022715375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-02 | [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_DE-DE4243955227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

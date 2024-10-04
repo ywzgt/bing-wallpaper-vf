@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_EN-GB4032019865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-03 | [Loch Morlich, Cairngorms National Park, Scotland (© Arterra/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.NationalPoetryDay2024_EN-GB3553292629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-02 | [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)](https://www.bing.com/th?id=OHR.WindRiverAlaska_EN-GB7636614285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

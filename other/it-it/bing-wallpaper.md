@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-04 | [Europa, la Luna ghiacciata di Giove (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_IT-IT5266996752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-03 | [Taj Mahal ad Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_IT-IT1242921978_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-02 | [Lago di Braies, Trentino-Aldo Adige, Italia (© pidjoe/Getty Images)](https://www.bing.com/th?id=OHR.LakeInItalianNonni_IT-IT2833873964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
