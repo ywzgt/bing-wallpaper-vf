@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-05 | [ツァボイースト国立公園のアフリカゾウ, ケニア (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_JA-JP4940024317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-04 | [木星の衛星エウロパ (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_JA-JP4639297209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-03 | [タージ・マハル, インド (© Tanarch/Getty Images)](https://www.bing.com/th?id=OHR.TajMahalReflection_JA-JP3640388334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
