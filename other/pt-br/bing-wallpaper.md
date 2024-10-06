@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-07 | [Algodoeiros em um arco em Coyote Gulch, Área de Recreação de Glen Canyon, Utah, EUA (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_PT-BR8564618055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-06 | [Grande migração de gnus no rio Mara, Quênia (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_PT-BR7440860691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-05 | [Europa, a lua gelada de Júpiter (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_PT-BR6260569357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
