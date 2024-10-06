@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-06 | [Festival of Lights, Berlin (© JOHN MACDOUGALL/Getty Images)](https://www.bing.com/th?id=OHR.BerlinConcertHallFestivalofLights_DE-DE1090691492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-05 | [Afrikanische Elefanten im Tsavo-East-Nationalpark, Kenia (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_DE-DE8807070034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-04 | [Jupiters Eismond Europa (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_DE-DE7966877532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

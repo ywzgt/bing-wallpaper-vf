@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-06 | [Paesaggio autunnale, Parco Nazionale del Gran Paradiso, Italia (© Ondrej Prosicky/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ValleAostaGranParadiso_IT-IT5881740566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-05 | [Elefanti africani nel Parco Nazionale dello Tsavo Est, Kenya (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_IT-IT9988351261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-04 | [Europa, la Luna ghiacciata di Giove (© NASA/JPL-Caltech/SETI Institute)](https://www.bing.com/th?id=OHR.EuropaMoon_IT-IT5266996752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
