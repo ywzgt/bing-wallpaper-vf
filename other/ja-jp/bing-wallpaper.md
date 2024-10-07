@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-08 | [秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)](https://www.bing.com/th?id=OHR.Kanro2024_JA-JP5787966494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-07 | [エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_JA-JP5541486306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-06 | [国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_JA-JP5196113182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
