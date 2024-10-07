@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-07 | [Die Elbphilharmonie in Hamburg (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_DE-DE0654455444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-06 | [Festival of Lights, Berlin (© JOHN MACDOUGALL/Getty Images)](https://www.bing.com/th?id=OHR.BerlinConcertHallFestivalofLights_DE-DE1090691492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-05 | [Afrikanische Elefanten im Tsavo-East-Nationalpark, Kenia (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_DE-DE8807070034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

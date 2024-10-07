@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-07 | [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_EN-GB8668543385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-06 | [Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_EN-GB6471507229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-05 | [African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_EN-GB5187585413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
