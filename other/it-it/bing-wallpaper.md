@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-08 | [Polpo ocellato, Stretto di Lembeh, Indonesia (© Howard Chew/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MototiOctopus_IT-IT6416760928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-07 | [La sala concerti Elbphilharmonie di Amburgo, Germania (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_IT-IT4294250253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-06 | [Paesaggio autunnale, Parco Nazionale del Gran Paradiso, Italia (© Ondrej Prosicky/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ValleAostaGranParadiso_IT-IT5881740566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

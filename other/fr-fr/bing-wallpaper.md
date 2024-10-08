@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-08 | [Amphioctopus, Lembeh Strait, Indonésie (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_FR-FR0598222042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-07 | [Philharmonie de l'Elbe, Hambourg, Allemagne (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_FR-FR0231525332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-06 | [Peuplier deltoïdes, sentier de Coyote Gulch, Glen Canyon Recreation Area, Utah, États-Unis (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_FR-FR9860829479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
