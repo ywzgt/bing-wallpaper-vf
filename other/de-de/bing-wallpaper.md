@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-09 | [Potsdamer Platz in Berlin (© franckreporter/Getty Images)](https://www.bing.com/th?id=OHR.PotsdamerPlatzBerlin_DE-DE6566333403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-08 | [Mototi-Oktopus, Lembeh Strait, Indonesien (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_DE-DE2317582998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-07 | [Die Elbphilharmonie in Hamburg (© Canetti/Shutterstock)](https://www.bing.com/th?id=OHR.ElbePhilharmonic_DE-DE0654455444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
