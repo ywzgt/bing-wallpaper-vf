@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-10 | [Sorano, Toscana, Italia (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_ES-ES4580008999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-09 | [Peñíscola, Castellón, Valencia, España (© MEDITERRANEAN/E+/Getty Images)](https://www.bing.com/th?id=OHR.ValencianCommunityDay_ES-ES3800849139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-08 | [Pulpo Mototi, Estrecho de Lembeh, Indonesia (© Howard Chew/Alamy)](https://www.bing.com/th?id=OHR.MototiOctopus_ES-ES5895237621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
