@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-11 | [ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_JA-JP6953032126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-10 | [ソラーノ, イタリア トスカーナ州 (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_JA-JP6459075522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-09 | [マーブル近郊に自生するアスペン, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.AspensColorado_JA-JP6244858068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
