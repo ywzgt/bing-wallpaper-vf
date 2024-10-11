@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-11 | [Cape Breton Highlands, Nova Scotia, Kanada (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_DE-DE5682241306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-10 | [Sorano, Toskana, Italien (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_DE-DE6035116338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-09 | [Potsdamer Platz in Berlin (© franckreporter/Getty Images)](https://www.bing.com/th?id=OHR.PotsdamerPlatzBerlin_DE-DE6566333403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
