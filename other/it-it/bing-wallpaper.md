@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-12 | [Anatra sposa, Québec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_IT-IT4692189372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-11 | [Highlands di Cape Breton, Nuova Scozia, Canada (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CelticColours_IT-IT4571823616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-10 | [Sorano, Toscana, Italia (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_IT-IT6958617726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
