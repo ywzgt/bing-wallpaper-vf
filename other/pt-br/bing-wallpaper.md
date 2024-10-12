@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-13 | [Brinquedos tradicionais feitos com a fibra da palmeira Miriti, Belém (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.FelizDiadasCriancas_PT-BR6983342881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-12 | [Cape Breton Highlands, Nova Escócia, Canadá (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_PT-BR9042410710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-11 | [Sorano, Toscana, Itália (© Luigi Vaccarella/eStock Photo)](https://www.bing.com/th?id=OHR.SoranoItaly_PT-BR8638738713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
