@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-13 | [Patio de las Doncellas, Alcázar de Sevilla (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_ES-ES5812845635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-12 | [El Equipo Nacional de Vuelo Acrobático, Madrid, España (© Carlos Alvarez/Fotógrafo autónomo/Getty Images Entertainment/Getty Images)](https://www.bing.com/th?id=OHR.NationalDaySpain_ES-ES5367780660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-11 | [Tierras Altas de la Isla del Cabo Bretón, Nueva Escocia, Canadá (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.CelticColours_ES-ES5079462677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

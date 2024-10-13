@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-13 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-GB0411908636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-12 | [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_EN-GB1003424458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-11 | [Grasmere, Lake District, Cumbria, England (© joe daniel price/Moment/Getty Images)](https://www.bing.com/th?id=OHR.GrasmereAutumn2024_EN-GB0406171005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
