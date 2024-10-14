@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-15 | [Barcos de pesca na Praia de Coco em Goa, Índia (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_PT-BR0695922930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-14 | [Pátio das Donzelas, Alcázar de Sevilha, Espanha (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_PT-BR9775263782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-13 | [Brinquedos tradicionais feitos com a fibra da palmeira Miriti, Belém (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.FelizDiadasCriancas_PT-BR6983342881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
