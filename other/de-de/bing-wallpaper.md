@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-14 | [Fischerboote am Coco Beach in Goa, Indien (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_DE-DE0655517413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-13 | [Innenhof der Jungfrauen, Alcázar von Sevilla, Spanien (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_DE-DE3041524458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-12 | [Brautente, Quebec, Kanada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_DE-DE2140613391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

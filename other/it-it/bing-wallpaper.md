@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-14 | [Baia di Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-13 | [Patio de las Doncellas, Alcázar di Siviglia, Spagna (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_IT-IT0712843452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-12 | [Anatra sposa, Québec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_IT-IT4692189372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

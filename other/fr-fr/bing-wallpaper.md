@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-14 | [Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-13 | [Patio de las Doncellas, Alcazar de Séville, Espagne (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_FR-FR4993322229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-12 | [Canard branchu, Québec, Canada (© Maxime Riendeau/Getty Images)](https://www.bing.com/th?id=OHR.QuebecDuck_FR-FR4323551846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
