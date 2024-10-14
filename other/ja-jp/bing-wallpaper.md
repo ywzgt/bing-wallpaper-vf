@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-15 | [ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_JA-JP8513856980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-14 | [東京駅, 東京都 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.RailwaysDayNew_JA-JP8050699925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-13 | [アルカサル, スペイン アンダルシア州 (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_JA-JP7812179664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
