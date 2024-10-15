@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-15 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_EN-GB1778078516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-14 | [Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_EN-GB1307746805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-13 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_EN-GB0411908636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

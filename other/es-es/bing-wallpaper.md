@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-15 | [Gran migración de ñus en el río Mara, Kenia (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_ES-ES6687824832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-14 | [Barcos de pesca en la playa de Coco en Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_ES-ES6296595662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-13 | [Patio de las Doncellas, Alcázar de Sevilla (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_ES-ES5812845635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-15 | [Fossili di belemniti e ammoniti, Jurassic Coast, Dorset, Regno Unito (© Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FossilsDorset_IT-IT8161903804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-14 | [Baia di Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_IT-IT3512339679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-13 | [Patio de las Doncellas, Alcázar di Siviglia, Spagna (© Danny Lehman/Getty Images)](https://www.bing.com/th?id=OHR.AlcazarSeville_IT-IT0712843452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
