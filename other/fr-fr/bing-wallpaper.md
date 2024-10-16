@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-16 | [Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_FR-FR6425876617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-15 | [Grande migration des gnous à la rivière Mara, Kenya (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_FR-FR6009612679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-14 | [Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)](https://www.bing.com/th?id=OHR.MarigotBay_FR-FR5579307214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
