@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-17 | [Fósseis de belemnites e amonites, Costa Jurássica, Dorset, Reino Unido (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_PT-BR5587878603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-16 | [Elefantes africanos no Parque Nacional Tsavo East, Quênia (© Neil Bowman/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantTeacher_PT-BR6921941046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-15 | [Barcos de pesca na Praia de Coco em Goa, Índia (© Abhinav Sah/Shutterstock)](https://www.bing.com/th?id=OHR.CocoBeach_PT-BR0695922930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
