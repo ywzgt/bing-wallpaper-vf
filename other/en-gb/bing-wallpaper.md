@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-17 | [Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_EN-GB2766046591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-16 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FossilsDorset_EN-GB3896931228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-15 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_EN-GB1778078516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

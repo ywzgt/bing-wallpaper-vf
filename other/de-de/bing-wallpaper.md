@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-17 | [Sommerzypressen, Präfektur Ibaraki, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_DE-DE4546575583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-16 | [Fossilien von Belemniten und Ammoniten, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_DE-DE5527314579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-15 | [Große Gnuwanderung am Mara-Fluss, Kenia (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_DE-DE2892375339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
