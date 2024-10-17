@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-18 | [セントラルパーク, 米国 ニューヨーク州 (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_JA-JP4069662350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-17 | [グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CoyoteGulch_JA-JP8998470067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-16 | [マラ川を渡るヌーの群れ, ケニア (© Ayzenstayn/Getty Images)](https://www.bing.com/th?id=OHR.MaraMigration_JA-JP8727709922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
