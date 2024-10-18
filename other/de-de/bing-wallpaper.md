@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-18 | [Herbst im Central Park, Manhattan, New York City, USA (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_DE-DE9416328448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-17 | [Sommerzypressen, Präfektur Ibaraki, Japan (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_DE-DE4546575583_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-16 | [Fossilien von Belemniten und Ammoniten, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_DE-DE5527314579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

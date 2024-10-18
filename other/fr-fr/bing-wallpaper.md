@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-18 | [Automne à Central Park, Manhattan, New York, États-Unis (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_FR-FR5749913554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-17 | [Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PitonFournaise_FR-FR7028055947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-16 | [Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.FossilsDorset_FR-FR6425876617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
