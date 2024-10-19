@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-19 | [Templo de Hathor, Complejo del Templo de Dendera, Quena, Egipto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_ES-ES2992345983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-18 | [Otoño en Central Park, Manhattan, Nueva York, EE. UU. (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_ES-ES2052483366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-17 | [Kochia, Prefectura de Ibaraki, Japón (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.KochiaJapan_ES-ES7555433683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
