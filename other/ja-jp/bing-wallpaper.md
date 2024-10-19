@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-20 | [木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_JA-JP4479144213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-19 | [ハトホル神殿, エジプト ケナ県 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_JA-JP4353072440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-18 | [セントラルパーク, 米国 ニューヨーク州 (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_JA-JP4069662350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
