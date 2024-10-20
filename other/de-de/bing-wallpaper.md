@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-20 | [Dreizehenfaultier in Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_DE-DE3423910925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-19 | [Hathortempel, Dendera-Tempelkomplex, Qena, Ägypten (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_DE-DE9209425729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-18 | [Herbst im Central Park, Manhattan, New York City, USA (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_DE-DE9416328448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

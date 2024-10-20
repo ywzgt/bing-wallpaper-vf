@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-20 | [Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)](https://www.bing.com/th?id=OHR.NuitsChampagne_FR-FR1213854382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-19 | [Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_FR-FR5972566058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-18 | [Automne à Central Park, Manhattan, New York, États-Unis (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_FR-FR5749913554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
