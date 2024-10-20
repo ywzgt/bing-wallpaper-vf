@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-21 | [ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-20 | [木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_JA-JP4479144213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-19 | [ハトホル神殿, エジプト ケナ県 (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_JA-JP4353072440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
