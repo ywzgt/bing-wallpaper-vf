@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-21 | [Bicho-preguiça de três dedos na Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-20 | [Templo de Hathor, Complexo do Templo de Dendera, Quena, Egito (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_PT-BR6539845196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-19 | [Outono no Central Park, Manhattan, Nova York, EUA (© mapman/Shutterstock)](https://www.bing.com/th?id=OHR.CentralParkAutumn_PT-BR6612852455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
