@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-21 | [Cipreses en el Parque Estatal George L. Smith, Georgia, EE. UU. (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_ES-ES3786999040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-20 | [Puesta de sol en Almuñécar, Granada (© E.J. Baumeister Jr./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SpanishBMXRacingChampionship_ES-ES3255025375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-19 | [Templo de Hathor, Complejo del Templo de Dendera, Quena, Egipto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_ES-ES2992345983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

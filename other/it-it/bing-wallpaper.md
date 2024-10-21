@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-21 | [Cipressi nel Parco George L. Smith, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_IT-IT8653466792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-20 | [Bradipo a tre dita, Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_IT-IT8557895163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-19 | [Tempio di Hathor, complesso del Tempio di Dendera, Qena, Egitto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.DenderaTemple_IT-IT8470650196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
