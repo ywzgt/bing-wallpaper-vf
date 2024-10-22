@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-22 | [Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_FR-FR1619086814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-21 | [Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_FR-FR1425004503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-20 | [Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)](https://www.bing.com/th?id=OHR.NuitsChampagne_FR-FR1213854382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

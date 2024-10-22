@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-22 | [Palazzo Zuccari, Rom, Italien (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_DE-DE5408236104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-21 | [Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GermanyBaldeneyseeFall_DE-DE3538373815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-20 | [Dreizehenfaultier in Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_DE-DE3423910925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
