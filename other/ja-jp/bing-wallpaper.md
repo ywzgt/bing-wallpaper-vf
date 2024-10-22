@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-23 | [紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)](https://www.bing.com/th?id=OHR.HottaiFalls2024_JA-JP5036595123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-22 | [平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HeianJingu2024_JA-JP4866409141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-21 | [ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_JA-JP4647054612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
