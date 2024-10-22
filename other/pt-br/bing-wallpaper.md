@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-23 | [Palazzo Zuccari, Roma, Itália (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_PT-BR8050114747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-22 | [Ciprestes no Parque Estadual George L. Smith, Geórgia, EUA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_PT-BR6434540619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-21 | [Bicho-preguiça de três dedos na Costa Rica (© Harry Collins/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSloth_PT-BR6480806367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
