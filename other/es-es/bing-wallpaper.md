@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-23 | [Bosque Madame Sherri y restos de un castillo antiguo, Nuevo Hampshire, EE. UU. (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_ES-ES5465850896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-22 | [Palacio Zuccari, Roma, Italia (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_ES-ES5024924639_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-21 | [Cipreses en el Parque Estatal George L. Smith, Georgia, EE. UU. (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnCypress_ES-ES3786999040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
