@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-25 | [Coruja-de-chifre Grande (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_PT-BR6294923796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-24 | [Floresta Madame Sherri e o que restou de um antigo castelo, New Hampshire, EUA (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_PT-BR6347507629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-23 | [Palazzo Zuccari, Roma, Itália (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_PT-BR8050114747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
