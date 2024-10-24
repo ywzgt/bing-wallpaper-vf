@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-24 | [Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BodieCalifornia_EN-GB1752364687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-23 | [Madame Sherri Forest and the remnant of an old castle, New Hampshire, USA (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_EN-GB1499930962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-22 | [Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_EN-GB1067723555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

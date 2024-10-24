@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-24 | [Foresta fantasma, Nienhagen, Meclemburgo-Pomerania Occidentale, Germania (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GhostForest_IT-IT8926574914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-23 | [Foresta di Madame Sherri e i resti di un antico castello, New Hampshire, USA (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_IT-IT9899044856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-22 | [Palazzo Zuccari, Roma, Italia (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_IT-IT8784390686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

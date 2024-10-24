@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-24 | [Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HumboldtUniversityLibrary_DE-DE9129729075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-23 | [Madame Sherri Forest und die Überreste einer alten Burg, New Hampshire, USA (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_DE-DE5744863677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-22 | [Palazzo Zuccari, Rom, Italien (© Photon-Photos/Getty Images)](https://www.bing.com/th?id=OHR.MonsterDoor_DE-DE5408236104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
