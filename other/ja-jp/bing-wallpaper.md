@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-26 | [ニーンハーゲンのゴーストフォレスト, ドイツ メクレンブルク ＝ フォアポンメルン州 (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.GhostForest_JA-JP5609597853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-25 | [シャモニー, フランス (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_JA-JP5454742573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-24 | [ボディ州立歴史公園, 米国 カリフォルニア州 (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_JA-JP5239125800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
