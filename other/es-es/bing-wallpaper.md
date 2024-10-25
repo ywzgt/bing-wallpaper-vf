@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-25 | [Mont Blanc en Chamonix, Francia (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_ES-ES6175226361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-24 | [Parque Histórico Estatal de Bodie, Condado de Mono, California, EE. UU. (© Julien McRoberts/Tetra Images, LLC/Alamy)](https://www.bing.com/th?id=OHR.BodieCalifornia_ES-ES5750296287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-23 | [Bosque Madame Sherri y restos de un castillo antiguo, Nuevo Hampshire, EE. UU. (© yggdrasill/Shutterstock)](https://www.bing.com/th?id=OHR.MadameSherriCastle_ES-ES5465850896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
