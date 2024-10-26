@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-27 | [Floresta Fantasma, Nienhagen, Alemanha (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.GhostForest_PT-BR6077995597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-26 | [Mont Blanc em Chamonix, França (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_PT-BR6216119824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-25 | [Coruja-de-chifre Grande (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_PT-BR6294923796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
