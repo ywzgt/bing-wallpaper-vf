@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-26 | [Gespensterwald, Nienhagen, Mecklenburg-Vorpommern (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GhostForest_DE-DE7650231907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-25 | [Mont Blanc in Chamonix, Frankreich (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_DE-DE0416304565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-24 | [Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HumboldtUniversityLibrary_DE-DE9129729075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
