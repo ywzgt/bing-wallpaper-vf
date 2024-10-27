@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-28 | [ビクトリアのパンプキン畑, カナダ ブリティッシュコロンビア州 (© Shaun Cunningham/Alamy)](https://www.bing.com/th?id=OHR.PumpkinMist_JA-JP6129439723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-27 | [寄り添うホッキョクグマの親子, カナダ マニトバ州 (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_JA-JP5883977862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-26 | [ニーンハーゲンのゴーストフォレスト, ドイツ メクレンブルク ＝ フォアポンメルン州 (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.GhostForest_JA-JP5609597853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
