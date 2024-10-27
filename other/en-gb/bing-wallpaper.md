@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-28 | [The Balmoral Clocktower, Edinburgh (© Puthipong Worasaran/Moment/Getty Images)](https://www.bing.com/th?id=OHR.DSTEnds2024_EN-GB1274642468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-26 | [Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GhostForest_EN-GB6546865643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-25 | [Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_EN-GB2071333210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

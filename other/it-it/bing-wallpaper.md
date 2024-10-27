@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-27 | [Orso polare con cucciolo, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_IT-IT9173503702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-26 | [Parco delle Chiese Rupestri, Matera, Basilicata, Italia (© Vincenzo Mazza - www.afterglow.it/Getty Images)](https://www.bing.com/th?id=OHR.MateraFolklore_IT-IT9091648904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-25 | [Isola di Procida, Golfo di Napoli, Campania, Italia (© RolfSt/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.GiornataMondialeDellaPasta_IT-IT9004534121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-27 | [Oso polar con osezno, Churchill, Manitoba, Canadá (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_ES-ES2869289417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-26 | [Bosque fantasma, Nienhagen, Mecklemburgo-Pomerania Occidental, Alemania (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.GhostForest_ES-ES2765501989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-25 | [Mont Blanc en Chamonix, Francia (© Simon Schöpf/Getty Images)](https://www.bing.com/th?id=OHR.MontBlancMassif_ES-ES6175226361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
