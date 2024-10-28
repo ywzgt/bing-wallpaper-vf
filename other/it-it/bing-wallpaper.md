@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-28 | [Campo di zucche, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PumpkinMist_IT-IT9256406866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-27 | [Orso polare con cucciolo, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_IT-IT9173503702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-26 | [Parco delle Chiese Rupestri, Matera, Basilicata, Italia (© Vincenzo Mazza - www.afterglow.it/Getty Images)](https://www.bing.com/th?id=OHR.MateraFolklore_IT-IT9091648904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

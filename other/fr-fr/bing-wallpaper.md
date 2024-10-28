@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-28 | [Champ de citrouilles, Victoria, Colombie-Britannique, Canada (© Shaun Cunningham/Alamy)](https://www.bing.com/th?id=OHR.PumpkinMist_FR-FR4008635206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-27 | [Ourse polaire avec son ourson, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_FR-FR4269390170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-26 | [Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DaylightOrsay_FR-FR6504936679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
