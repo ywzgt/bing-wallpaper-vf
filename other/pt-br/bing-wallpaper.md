@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-30 | [Gabinete Real de Leitura, Rio de Janeiro Real Gabinete Português de Leitura (© Lorena Samponi/Shutterstock)](https://www.bing.com/th?id=OHR.DiadoLivroRJ_PT-BR5813515082_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-29 | [Campo de abóboras, Victoria, Colúmbia Britânica, Canadá (© Shaun Cunningham/Alamy)](https://www.bing.com/th?id=OHR.PumpkinMist_PT-BR5900196998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-28 | [Urso polar com filhote, Churchill, Manitoba, Canadá (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_PT-BR5987210106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
