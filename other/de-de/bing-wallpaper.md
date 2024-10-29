@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-29 | [Virginia-Uhu (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_DE-DE5072344548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-28 | [Kürbisfeld, Victoria, British Columbia, Kanada (© Shaun Cunningham/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PumpkinMist_DE-DE2695575540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-27 | [Eisbär mit Jungtier, Churchill, Manitoba, Kanada (© Design Pics/plainpicture)](https://www.bing.com/th?id=OHR.PolarBearHug_DE-DE3605401727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
