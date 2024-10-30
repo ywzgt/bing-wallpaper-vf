@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-30 | [Vista del Castillo de Edimburgo desde un cementerio en Escocia, Reino Unido (© Chris Dorney/Alamy)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ES-ES3286905259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-29 | [Búho americano (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_ES-ES3211989343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-28 | [Gernika-Lumo, País Vasco (© Andrea Pistolesi/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.GernikaAgriculturalFair_ES-ES3036304498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
