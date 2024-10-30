@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-31 | [草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)](https://www.bing.com/th?id=OHR.Halloween2024_JA-JP6692896772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-30 | [エディンバラ城, イギリス (© Chris Dorney/Alamy)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_JA-JP6454143527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-29 | [アメリカワシミミズク (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_JA-JP6299309375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
