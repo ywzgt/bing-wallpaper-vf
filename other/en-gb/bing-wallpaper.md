@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-01 | [Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_EN-GB4271245524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-31 | [View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_EN-GB3981139829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-30 | [Great horned owl (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_EN-GB3714691619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-31 | [Chimères de la cathédrale Notre-Dame de Paris (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_FR-FR6298643080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-30 | [Vue du château d'Édimbourg depuis un cimetière en Écosse, Royaume-Uni (© Chris Dorney/Alamy)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_FR-FR5789637805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-29 | [Grand-duc d’Amérique (© Mark Newman/Getty Images)](https://www.bing.com/th?id=OHR.GreatOwl_FR-FR5138937408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
