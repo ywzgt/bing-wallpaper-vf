@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-02 | [Visão aérea dos vinhedos no outono, Varnhalt, Floresta Negra, Alemanha (© Sabine Gerold/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VineyardsBlackForestFall_PT-BR1234639247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-01 | [Pinheiros de araucária em um amanhecer enevoado, paisagem próxima a Gramado, Rio Grande do Sul (© iStock/Getty Images Plus/Getty Images)](https://www.bing.com/th?id=OHR.DiadoSaci_PT-BR3042315379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-31 | [Vista do Castelo de Edimburgo a partir de um pátio de igreja na Escócia (© Chris Dorney/Alamy)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_PT-BR5740528750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
