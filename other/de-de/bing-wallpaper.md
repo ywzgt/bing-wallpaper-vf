@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-01 | [Luftaufnahme von Weinbergen im Herbst, Varnhalt, Schwarzwald, Baden-Württemberg (© Sabine Gerold/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VineyardsBlackForestFall_DE-DE2832375252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-31 | [Chimäre von Notre-Dame de Paris, Frankreich (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_DE-DE9566321250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-30 | [Blick auf Edinburgh Castle von einem Kirchhof in Schottland, Vereinigtes Königreich (© Chris Dorney/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HauntedEdinburgh_DE-DE5335021616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
