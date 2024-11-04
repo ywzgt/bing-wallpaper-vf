@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-05 | [Pôr do sol no Parque Nacional dos Lençóis Maranhenses, Maranhão, Brasil (© thanosquest/Shutterstock)](https://www.bing.com/th?id=OHR.LencoisMaranhao_PT-BR0859804056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-04 | [Ovo de flamingo caribenho no ninho, Reserva da Biosfera Ría Lagartos, Yucatán, México (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanBiosphere_PT-BR0460941860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-03 | [Bisões americanos no Parque Nacional de Yellowstone, em Wyoming, EUA (© Ian Shive/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BisonYellowstone_PT-BR0601244596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
