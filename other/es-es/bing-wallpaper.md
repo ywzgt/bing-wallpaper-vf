@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-04 | [Grasmere, Distrito de los Lagos, Cumbria, Reino Unido (© Thomas Molyneux/Getty Images)](https://www.bing.com/th?id=OHR.CumbriaAutumn_ES-ES0346174499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-03 | [Huevo de flamenco caribeño en nido, Reserva de la Biósfera Ría Lagartos, Yucatán, México (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanBiosphere_ES-ES9709656302_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-02 | [Bisonte americano en el Parque Nacional de Yellowstone, Wyoming, EE. UU. (© Ian Shive/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BisonYellowstone_ES-ES2207390444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
