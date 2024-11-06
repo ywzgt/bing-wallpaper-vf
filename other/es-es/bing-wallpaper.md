@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-06 | [Playa Shi Shi en el Parque Nacional Olympic, Washington, EE. UU. (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_ES-ES1047893586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-05 | [Amanecer en Barcelona, España (© Noppasin Wongchum/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SmartCityExpoBarcelona_ES-ES0874398191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-04 | [Grasmere, Distrito de los Lagos, Cumbria, Reino Unido (© Thomas Molyneux/Getty Images)](https://www.bing.com/th?id=OHR.CumbriaAutumn_ES-ES0346174499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

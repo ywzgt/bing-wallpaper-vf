@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-07 | [Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_EN-GB4724156220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-06 | [Fireworks at Bolton Priory, North Yorkshire on Guy Fawkes Night 2015 (© Thomas Holmes/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GuyFawkes2024_EN-GB5116542164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-05 | [Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)](https://www.bing.com/th?id=OHR.CumbriaAutumn_EN-GB1543365213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
