@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-08 | [Lobos Costeiros de Vancouver na Floresta Tropical Great Bear, Columbia Britânica, Canadá (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_PT-BR2357751401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-07 | [Praia de Shi Shi no Parque Nacional Olímpico, Washington, EUA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_PT-BR2103643981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-06 | [Vista de livros antigos na Biblioteca Nacional Brasileira no Rio de Janeiro (© CHRISTOPHE SIMON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DiadaLinguaPortuguesa_PT-BR1619682232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
