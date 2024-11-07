@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-07 | [Lupi di mare costieri di Vancouver nella Grande Foresta Pluviale dell'Orso, Columbia Britannica, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_IT-IT3917855917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-06 | [Shi Shi Beach nel Parco Nazionale Olimpico, Washington, Stati Uniti (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_IT-IT3649802386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-05 | [Tramonto nel Parco Nazionale dei Lençóis Maranhenses, Maranhão, Brasile (© thanosquest/Shutterstock)](https://www.bing.com/th?id=OHR.LencoisMaranhao_IT-IT2693599851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-07 | [Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_FR-FR6675938333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-06 | [Shi Shi Beach, Parc national Olympique, Washington, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_FR-FR6500831097_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-05 | [Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_FR-FR7541144444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
