@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-09 | [アイト・ベン・ハドゥの集落, モロッコ (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_JA-JP1854707696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-08 | [氷河河川システムの航空写真, アイスランド (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_JA-JP1694776093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-07 | [マガンの群れ (© feathercollector/Shutterstock)](https://www.bing.com/th?id=OHR.AnserAlbifrons2024_JA-JP4172907824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
