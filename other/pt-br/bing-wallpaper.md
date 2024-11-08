@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-09 | [Vista aérea de rios glaciais na Islândia (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_PT-BR2577171994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-08 | [Lobos Costeiros de Vancouver na Floresta Tropical Great Bear, Columbia Britânica, Canadá (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_PT-BR2357751401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-07 | [Praia de Shi Shi no Parque Nacional Olímpico, Washington, EUA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.ShiShiBeach_PT-BR2103643981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
