@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-09 | [Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_FR-FR7350408140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-08 | [Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_FR-FR7112624449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-07 | [Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_FR-FR6675938333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
