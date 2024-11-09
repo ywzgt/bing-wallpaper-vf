@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-10 | [Via Láctea, Aït Benhaddou, Marrocos (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_PT-BR2736576550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-09 | [Vista aérea de rios glaciais na Islândia (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_PT-BR2577171994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-08 | [Lobos Costeiros de Vancouver na Floresta Tropical Great Bear, Columbia Britânica, Canadá (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.CanadaWolves_PT-BR2357751401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
