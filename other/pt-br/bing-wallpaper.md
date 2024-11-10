@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-11 | [Flamingos caribenhos, Península Yucatán, México (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_PT-BR2968915702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-10 | [Via Láctea, Aït Benhaddou, Marrocos (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_PT-BR2736576550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-09 | [Vista aérea de rios glaciais na Islândia (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_PT-BR2577171994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
