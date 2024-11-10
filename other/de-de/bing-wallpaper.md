@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-10 | [Kubaflamingos, Halbinsel Yucatán, Mexiko (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_DE-DE2009828774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-09 | [Milchstraße, Aït-Ben-Haddou, Marokko (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_DE-DE1390989732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-08 | [Luftaufnahme von Gletscherflüssen in Island (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_DE-DE4755000150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

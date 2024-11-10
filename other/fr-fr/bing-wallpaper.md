@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-10 | [Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.VendeeGlobe_FR-FR8019139667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-09 | [Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_FR-FR7350408140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-08 | [Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)](https://www.bing.com/th?id=OHR.GlacialRivers_FR-FR7112624449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

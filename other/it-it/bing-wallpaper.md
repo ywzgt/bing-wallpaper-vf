@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-10 | [Fenicotteri caraibici, Penisola dello Yucatán, Messico (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_IT-IT6590871746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-09 | [Via Lattea, Ait-Ben-Haddou, Marocco (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_IT-IT3578962903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-08 | [LUMEN - Museo della fotografia di montagna, Brunico, Trentino-Alto Adige, Italia (© Giorgio Filippini/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.TrentinoAltoBolzanoMerano_IT-IT4259043530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
