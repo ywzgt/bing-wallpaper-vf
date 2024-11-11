@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-12 | [Pôr do sol no Parque Nacional Banff, Alberta, Canadá (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_PT-BR3167336781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [Pôr do sol no Parque Nacional Banff, Alberta, Canadá (© fywPhoto ��卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_PT-BR3167336781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [Flamingos caribenhos, Península Yucatán, México (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_PT-BR2968915702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
