@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-11 | [Tramonto al Parco Nazionale Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_IT-IT4414822450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-10 | [Fenicotteri caraibici, Penisola dello Yucatán, Messico (© Claudio Contreras/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.YucatanFlamingos_IT-IT6590871746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-09 | [Via Lattea, Ait-Ben-Haddou, Marocco (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_IT-IT3578962903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
