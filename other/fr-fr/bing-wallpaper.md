@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-12 | [Coraux et lagon de Moorea, Polynésie française (© bru_greg/Getty Images)](https://www.bing.com/th?id=OHR.Moorea_FR-FR8377929183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-11 | [Parc national de Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_FR-FR8236269164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-10 | [Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.VendeeGlobe_FR-FR8019139667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

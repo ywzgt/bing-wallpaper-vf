@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-13 | [Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_EN-GB6800987516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_EN-GB6552811708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [Aberystwyth war memorial, Wales (© ffotocymru/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.RemembranceSunday2024_EN-GB5545006303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
