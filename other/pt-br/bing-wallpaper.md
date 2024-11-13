@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-14 | [Leão-marinho-da-califórnia em uma floresta de algas gigantes, Baja California, México (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_PT-BR4486917005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-13 | [Double Arch visto através do Cove Arch, Parque Nacional dos Arcos, Utah, EUA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_PT-BR3365210428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-12 | [Pôr do sol no Parque Nacional Banff, Alberta, Canadá (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_PT-BR3167336781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
