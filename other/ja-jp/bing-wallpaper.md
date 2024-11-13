@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-14 | [マナローラ,  イタリア リグーリア州 (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_JA-JP2558854780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-13 | [海の中にある森, メキシコ バハ・カリフォルニア州  (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_JA-JP2433405735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-12 | [アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_JA-JP2301146228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
