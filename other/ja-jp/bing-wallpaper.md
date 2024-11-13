@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-13 | [海の中にある森, メキシコ バハ・カリフォルニア州  (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_JA-JP2433405735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_JA-JP2301146228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [バンフ国立公園,カナダ アルバータ州 (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_JA-JP2138489803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

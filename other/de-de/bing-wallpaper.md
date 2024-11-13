@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-13 | [Kalifornischer Seelöwe in einem Wald aus Riesentang, Baja California, Mexiko (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_DE-DE3474015808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)](https://www.bing.com/th?id=OHR.MoselleValleyChurchTowerFall_DE-DE0272111000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [Sonnenuntergang im Banff-Nationalpark, Alberta, Kanada (© fywPhoto 云卷云舒/Getty Images)](https://www.bing.com/th?id=OHR.Banff24_DE-DE3210390625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
