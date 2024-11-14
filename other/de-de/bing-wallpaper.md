@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-14 | [Manarola, Nationalpark Cinque Terre, Ligurien, Italien (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_DE-DE4688511663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-13 | [Kalifornischer Seelöwe in einem Wald aus Riesentang, Baja California, Mexiko (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_DE-DE3474015808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-12 | [Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)](https://www.bing.com/th?id=OHR.MoselleValleyChurchTowerFall_DE-DE0272111000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

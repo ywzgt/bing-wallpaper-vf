@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-15 | [Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_EN-GB7223949605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-14 | [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_EN-GB7031468488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-13 | [Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)](https://www.bing.com/th?id=OHR.CoveArch_EN-GB6800987516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
