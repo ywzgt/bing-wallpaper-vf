@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-16 | [Palácio da Ilha Fiscal e Pão de Açúcar, Rio de Janeiro (© Rolf Richardson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.RepublicaBR_PT-BR7751607802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-15 | [Manarola, Parque Nacional Cinque Terre, Ligúria, Itália (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_PT-BR4966210433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-14 | [Leão-marinho-da-califórnia em uma floresta de algas gigantes, Baja California, México (© Claudio Contreras/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpForest_PT-BR4486917005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
