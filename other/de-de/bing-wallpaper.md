@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-15 | [Yi Peng-Laternenfest, Chiang Mai, Thailand (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_DE-DE2623141634_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-15 | [Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_DE-DE1312879989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-14 | [Manarola, Nationalpark Cinque Terre, Ligurien, Italien (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_DE-DE4688511663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
