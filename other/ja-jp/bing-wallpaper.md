@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-17 | [アフリック峡谷のアカシカ, スコットランド ハイランド地方 (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_JA-JP3676294833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-16 | [ワッデン海, オランダ フリースラント州 (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_JA-JP3280523442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-15 | [夜空に浮かぶ無数の灯籠, タイ (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_JA-JP3002354354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
