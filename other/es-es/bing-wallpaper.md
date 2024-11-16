@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-16 | [Baile flamenco en Sevilla, Andalucía, España (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FlamencoDay2024_ES-ES0805815742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-15 | [Festival de los faroles de Yi Peng, Chiang Mai, Tailandia (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_ES-ES0717973586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-14 | [Manarola, Parque Nacional de Cinque Terre, Liguria, Italia (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_ES-ES4041010969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

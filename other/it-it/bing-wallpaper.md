@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-16 | [Costa del Mare dei Wadden, vicino a Moddergat, Frisia, Paesi Bassi (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_IT-IT6096912016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-15 | [Festival delle lanterne di Yi Peng, Chiang Mai, Thailandia (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_IT-IT3348534532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-14 | [Manarola, Parco Nazionale delle Cinque Terre, Liguria, Italia (© John_Silver/Shutterstock)](https://www.bing.com/th?id=OHR.ManarolaItaly_IT-IT6200614457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
