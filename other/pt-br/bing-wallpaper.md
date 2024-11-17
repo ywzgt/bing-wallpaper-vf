@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-18 | [Veado-vermelho na Floresta Caledoniana, Glen Affric, Terras Altas da Escócia (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_PT-BR8362159412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-17 | [Costa do Mar Frísio, perto de Moddergat, Friesland, Países Baixos (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_PT-BR8090828736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-16 | [Palácio da Ilha Fiscal e Pão de Açúcar, Rio de Janeiro (© Rolf Richardson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.RepublicaBR_PT-BR7751607802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
