@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-17 | [Cerf élaphe dans la forêt calédonienne, Glen Affric, Highlands, Écosse (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_FR-FR3460398465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-16 | [Le littoral de la mer des Wadden, Frise, Pays-Bas (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_FR-FR3199784151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-15 | [Festival des lanternes de Yi Peng, Chiang Mai, Thaïlande (© tampatra/Getty Images)](https://www.bing.com/th?id=OHR.YiPengLanterns_FR-FR2863208745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
