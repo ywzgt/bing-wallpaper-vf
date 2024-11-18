@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-18 | [Porthcawl Lighthouse, Südwales, UK (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_DE-DE2845400826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-17 | [Rothirsch im Caledonian Forest, Glen Affric, Schottische Highlands (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_DE-DE2144943138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-16 | [Wattenmeerküste bei Moddergat, Friesland, Niederlande (© Ron ter Burg/Minden Pictures)](https://www.bing.com/th?id=OHR.FrieslandNetherlands_DE-DE2101104356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
