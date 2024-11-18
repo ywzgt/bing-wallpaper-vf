@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-19 | [タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-18 | [ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_JA-JP3933854148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-17 | [アフリック峡谷のアカシカ, スコットランド ハイランド地方 (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_JA-JP3676294833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
