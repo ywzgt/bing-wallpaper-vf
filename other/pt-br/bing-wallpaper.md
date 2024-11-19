@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-20 | [Arco de Tasman, Tasmânia, Austrália (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_PT-BR8823523988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-19 | [Farol de Porthcawl, Sul do País de Gales, Reino Unido (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_PT-BR8599692510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-18 | [Veado-vermelho na Floresta Caledoniana, Glen Affric, Terras Altas da Escócia (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_PT-BR8362159412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
