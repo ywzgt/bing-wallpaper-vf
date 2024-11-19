@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-20 | [Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_JA-JP4402963918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-19 | [タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_JA-JP4122919606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-18 | [ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_JA-JP3933854148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
