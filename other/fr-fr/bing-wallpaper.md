@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-19 | [Arche de Tasmans Tasmanie, Australie (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_FR-FR3887612340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-18 | [Phare de Porthcawl, Pays de Galles, Royaume-Uni (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_FR-FR3687906997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-17 | [Cerf élaphe dans la forêt calédonienne, Glen Affric, Highlands, Écosse (© Terry Whittaker/Alamy)](https://www.bing.com/th?id=OHR.RedStag_FR-FR3460398465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
