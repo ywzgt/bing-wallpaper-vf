@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-20 | [Pintura gigantesca land art «Más allá de la crisis» de Saype, Leysin, Suiza (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_ES-ES2146271758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-19 | [Arco de Tasman, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_ES-ES1772649926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-18 | [Faro de Porthcawl, Gales del Sur, Reino Unido (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ES-ES1528982827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

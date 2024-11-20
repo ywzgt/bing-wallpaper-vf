@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-20 | [Riesiges Land-Art-Gemälde „Beyond Crisis“ von Saype, Leysin, Schweiz (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_DE-DE4165904776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-19 | [Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)](https://www.bing.com/th?id=OHR.GermanyEuropeanWhiteBirchAutumn_DE-DE4170358667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-18 | [Porthcawl Lighthouse, Südwales, UK (© Leighton Collins/Alamy)](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_DE-DE2845400826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
