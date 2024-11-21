@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-22 | [Dois filhotes de leão ao nascer do sol, África do Sul (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_PT-BR9649632612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-21 | [Detalhe das pétalas de uma camélia branca (© ASO FUJITA/amanaimagesRF)](https://www.bing.com/th?id=OHR.ConscienciaNegraCamelia_PT-BR9267638631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-20 | [Arco de Tasman, Tasmânia, Austrália (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_PT-BR8823523988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
