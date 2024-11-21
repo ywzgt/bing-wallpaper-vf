@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-21 | [Sella di Razzo e Sella di Rioda, Alpi Carniche, Friuli-Venezia Giulia, Italia (© phbcz/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.NationalTreeDay_IT-IT7236455581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-20 | [Dipinto gigante di land art “Beyond Crisis” di Saype, Leysin, Svizzera (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_IT-IT7130879307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-19 | [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_IT-IT6908661148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

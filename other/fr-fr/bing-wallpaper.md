@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-21 | [Lionceaux au lever du soleil, Afrique du Sud (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_FR-FR2539679303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-20 | [Fresque géante « Beyond Crisis » de Saype, Leysin, Suisse (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_FR-FR1795905140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-19 | [Arche de Tasmans Tasmanie, Australie (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_FR-FR3887612340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

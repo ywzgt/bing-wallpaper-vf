@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-22 | [Two lion cubs, South Africa (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_EN-GB7386144841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-21 | [Mount Assiniboine Provincial Park, British Columbia, Canada (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AssiniboineTS_EN-GB3913113807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-20 | [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.TasmansArch_EN-GB6702107567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
