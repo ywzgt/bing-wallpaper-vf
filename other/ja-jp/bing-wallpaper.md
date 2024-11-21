@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-22 | [白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Xiaoxue2024_JA-JP4930643570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-21 | [寄り添う 2 頭の子ライオン, 南アフリカ (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_JA-JP4693137175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-20 | [Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_JA-JP4402963918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
