@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-22 | [Burg Zafra, Provinz Guadalajara, Spanien (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_DE-DE3961546434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-21 | [Zwei Löwenjunge bei Sonnenaufgang, Südafrika (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_DE-DE4457487465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-20 | [Riesiges Land-Art-Gemälde „Beyond Crisis“ von Saype, Leysin, Schweiz (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.BeyondSaype_DE-DE4165904776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
