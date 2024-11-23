@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-24 | [Babosa-espiral, Ilha dos Cangurus, Austrália (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_PT-BR0422432793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-23 | [Castelo de Zafra, província de Guadalajara, Espanha (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_PT-BR0233064740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-22 | [Dois filhotes de leão ao nascer do sol, África do Sul (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_PT-BR9649632612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
