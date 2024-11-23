@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-24 | [ソノマコースト州立公園, 米国 カリフォルニア州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_JA-JP5834035051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-23 | [カンガルー島のスパイラルアロエ, オーストラリア (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_JA-JP5597690966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-22 | [白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Xiaoxue2024_JA-JP4930643570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
