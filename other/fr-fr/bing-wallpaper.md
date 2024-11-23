@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-23 | [Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_FR-FR2896003531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-22 | [Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_FR-FR2717876307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-21 | [Lionceaux au lever du soleil, Afrique du Sud (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_FR-FR2539679303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

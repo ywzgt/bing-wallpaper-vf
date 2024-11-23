@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-23 | [Aloe espiral, Isla Canguro, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_ES-ES2796098950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-22 | [Castillo de Zafra, Provincia de Guadalajara (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_ES-ES2585214053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-21 | [Dos cachorros de león al amanecer, Sudáfrica (© Ruan Springorum/Getty Images)](https://www.bing.com/th?id=OHR.LionCubs_ES-ES2358814300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
