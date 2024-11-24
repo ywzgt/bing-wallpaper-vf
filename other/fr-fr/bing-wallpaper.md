@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-24 | [Paris aux couleurs de l’automne (© encrier/Getty Images)](https://www.bing.com/th?id=OHR.ParisAutumn_FR-FR3278291664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-23 | [Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_FR-FR2896003531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-22 | [Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_FR-FR2717876307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

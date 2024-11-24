@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-24 | [Parco statale della Costa di Sonoma, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_IT-IT7979490899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-23 | [Aloe a spirale, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_IT-IT7618166733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-22 | [Castello di Zafra, provincia di Guadalajara, Spagna (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_IT-IT7473974060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
