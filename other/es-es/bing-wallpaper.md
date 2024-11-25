@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-25 | [Jirafas masai, Parque Nacional de Amboseli, Kenia (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ES-ES5878697343_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-24 | [Atardecer en Málaga, Andalucía, España (© SJ Travel Photo and Video/Shutterstock)](https://www.bing.com/th?id=OHR.DavisCupFinalsMalaga_ES-ES2847450969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-23 | [Aloe espiral, Isla Canguro, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_ES-ES2796098950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

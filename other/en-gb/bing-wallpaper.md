@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-26 | [Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_EN-GB4842022174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-25 | [Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_EN-GB8716025465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-24 | [Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_EN-GB8183049694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-25 | [Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.RegensburgChristmasMarket_DE-DE8576246094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-24 | [Sonoma Coast State Park, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_DE-DE6907667505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-23 | [Spiralförmige Aloe, Kangaroo Island, Australien (© Michael Melford/Alamy)](https://www.bing.com/th?id=OHR.FibonacciAloe_DE-DE3602004497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
