@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-26 | [金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)](https://www.bing.com/th?id=OHR.HotBathDay2024_JA-JP6338825094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-25 | [アンボセリ国立公園, ケニア (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_JA-JP2992203136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-24 | [ソノマコースト州立公園, 米国 カリフォルニア州 (© Rachid Dahnoun/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SonomaCoast_JA-JP5834035051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
