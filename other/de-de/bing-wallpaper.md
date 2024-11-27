@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-27 | [Tombeau du Géant im Herbst, Bouillon, Belgien (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_DE-DE8856578235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-26 | [Olivenhain, Valle d'Itria, Apulien, Italien (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_DE-DE7362573819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-25 | [Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)](https://www.bing.com/th?id=OHR.RegensburgChristmasMarket_DE-DE8576246094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

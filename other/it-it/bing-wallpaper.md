@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-27 | [La Tomba del Gigante, Buglione, Vallonia, Belgio (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_IT-IT8667394728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-26 | [Oliveto, Valle d'Itria, Puglia (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_IT-IT8430253171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-25 | [Mucche in una valle alpina a Santa Maddalena, Val di Funes, Dolomiti, Italia (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.CowsInAlpineValley_IT-IT8150386866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-27 | [Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.RaidAlyzees_FR-FR4119370811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-26 | [Oliveraie, vallée d'Itria, Pouilles, Italie (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_FR-FR3683617209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-25 | [Girafes Masai, parc national d'Amboseli, Kenya (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_FR-FR8363811171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
