@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-28 | [Tumba do Gigante durante o outono, Bulhão, Bélgica (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_PT-BR1104311841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-27 | [Olival, Vale d'Itria, Puglia, Itália (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_PT-BR0953922642_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-26 | [Girafas Masai no Parque Nacional Amboseli, Quênia (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.AmboseliGiraffes_PT-BR7213408743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
