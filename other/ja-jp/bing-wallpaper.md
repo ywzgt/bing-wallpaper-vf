@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [モンサンミッシェル, フランス (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_JA-JP4975687728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [ザフラ城, スペイン グアダラハラ県 (© Eduard Gene/Getty Images)](https://www.bing.com/th?id=OHR.ZafraCastle_JA-JP6761146829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [セモワ川が作り出した壮大な蛇行地形, ベルギー (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_JA-JP6578585711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
