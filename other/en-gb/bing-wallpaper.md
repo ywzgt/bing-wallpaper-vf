@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [City Hall, London, England (© coldsnowstorm/iStock/Getty Images)](https://www.bing.com/th?id=OHR.CityHall2024_EN-GB2172832238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_EN-GB2054770035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://www.bing.com/th?id=OHR.TrulliGrove_EN-GB1770402436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
