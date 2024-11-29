@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [Mont Saint-Michel, Normandia, Francia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_IT-IT5961115578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [Tempesta di schiarite al tramonto, Parco Provinciale del Monte Assiniboine, Canada (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AssiniboineTS_IT-IT8882599718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [La Tomba del Gigante, Buglione, Vallonia, Belgio (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_IT-IT8667394728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

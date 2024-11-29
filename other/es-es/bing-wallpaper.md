@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [Monte Saint-Michel, Normandía, Francia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_ES-ES3063344602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [Parque Provincial Monte Assiniboine, Columbia Británica, Canadá (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AssiniboineTS_ES-ES3697439529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [La Tumba del Gigante en otoño, Bouillon, Bélgica (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_ES-ES3444393596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

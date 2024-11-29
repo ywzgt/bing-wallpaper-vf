@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-29 | [Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_FR-FR7113909915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-28 | [Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_FR-FR4323889306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-27 | [Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.RaidAlyzees_FR-FR4119370811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
