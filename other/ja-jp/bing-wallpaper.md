@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-01 | [南極大陸の氷山 (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_JA-JP7385959905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-30 | [水面に映るキルチャーン城, スコットランド (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_JA-JP5172394807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-29 | [モンサンミッシェル, フランス (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_JA-JP4975687728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
