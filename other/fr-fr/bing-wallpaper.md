@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-30 | [Reflet du château de Kilchurn à Loch Awe, Argyll et Bute, Écosse (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_FR-FR7304840775_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-29 | [Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_FR-FR7113909915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-28 | [Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)](https://www.bing.com/th?id=OHR.SemoisRiver_FR-FR4323889306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
