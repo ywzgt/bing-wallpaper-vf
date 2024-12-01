@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-01 | [Icebergs, Antártida (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ES-ES3608779732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-30 | [Reflejo del castillo de Kilchurn en Loch Awe, Argyll y Bute, Escocia (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_ES-ES3399855267_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-29 | [Monte Saint-Michel, Normandía, Francia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.MtStMichel_ES-ES3063344602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
