@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-02 | [Femelle élan, parc national de Denali, Alaska, États-Unis (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_FR-FR5886438114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-01 | [Icebergs, Antarctique (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_FR-FR7491065799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-30 | [Reflet du château de Kilchurn à Loch Awe, Argyll et Bute, Écosse (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_FR-FR7304840775_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

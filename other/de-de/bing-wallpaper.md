@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-02 | [Weiblicher Elch, Denali-Nationalpark, Alaska, USA (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_DE-DE0618096568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-01 | [Verschneite Fachwerkhäuser in Freudenberg bei Siegen, Nordrhein-Westfalen (© Thorsten Frisch/Shutterstock)](https://www.bing.com/th?id=OHR.FreudenbergHistoricHouses_DE-DE3863423728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-30 | [Kilchurn Castle spiegelt sich im Loch Awe, Argyll und Bute, Schottland (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_DE-DE0282904512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
