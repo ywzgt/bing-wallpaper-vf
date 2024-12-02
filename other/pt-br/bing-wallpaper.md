@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-03 | [Wilson Dias da Costa Neto como Rei Momo durante o Carnaval de 2016 no Rio de Janeiro (© Leo Correa/AP Photo)](https://www.bing.com/th?id=OHR.DiadoSamba_PT-BR6499916889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-02 | [Icebergs, Antártida (© Art Wolfe/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.IcebergsAntarctica_PT-BR8796328683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-01 | [Castelo Kilchurn refletido no Lago Awe, Argyll e Bute, Escócia (© Tom Mackie/plainpicture)](https://www.bing.com/th?id=OHR.KilchurnAutumn_PT-BR7553426712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
