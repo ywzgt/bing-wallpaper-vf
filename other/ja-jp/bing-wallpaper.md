@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-04 | [シロサイの顔合わせ, ケニア (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_JA-JP7911615612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-03 | [花火と豪華な山車,埼玉県 秩父市 (© ASSOCIATED PRESS/AP)](https://www.bing.com/th?id=OHR.ChichibuFestival2024_JA-JP7708851590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-02 | [デナリ国立公園のヘラジカ, 米国 アラスカ州  (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_JA-JP7555569429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
