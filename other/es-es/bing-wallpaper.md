@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-04 | [Rinocerontes blancos machos, Lago Nakuru, Kenia (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_ES-ES5145114880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-03 | [Sattais Katcheri (patio de los 27 pilares), Fuerte Amber, Rajastán, India (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_ES-ES4985021277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-02 | [Alce hembra, Parque Nacional Denali, Alaska, EE.UU. (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.SnowMoose_ES-ES4746792183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

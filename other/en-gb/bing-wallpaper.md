@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-05 | [Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_EN-GB8677567554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-04 | [Sattais Katcheri (Court of 27 pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_EN-GB1927902015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-03 | [Female moose, Denali National Park, Alaska, USA (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SnowMoose_EN-GB9676288027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
