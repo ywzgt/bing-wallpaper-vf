@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-05 | [Rinocerontes-brancos machos, Lago Nakuru, Quênia (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_PT-BR7836238197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-04 | [Sattais Katcheri, Forte de Amber, Rajastão, Índia (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_PT-BR6821987206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-03 | [Wilson Dias da Costa Neto como Rei Momo durante o Carnaval de 2016 no Rio de Janeiro (© Leo Correa/AP Photo)](https://www.bing.com/th?id=OHR.DiadoSamba_PT-BR6499916889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
