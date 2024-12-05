@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-06 | [ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)](https://www.bing.com/th?id=OHR.HelsinkiDusk_JA-JP8216541034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-05 | [モノ湖, 米国 カリフォルニア州 (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_JA-JP8066767108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-04 | [シロサイの顔合わせ, ケニア (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_JA-JP7911615612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
