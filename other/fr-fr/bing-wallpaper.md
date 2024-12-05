@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-05 | [Cheminées de fées sur le lac Mono, Californie, États-Unis (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_FR-FR7760480527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-04 | [Rhinocéros blancs mâles, lac Nakuru, Kenya (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_FR-FR8206885022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-03 | [Sattais Katcheri, Fort d'Amber, Amer, Jaipur, Rajasthan, Inde (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_FR-FR7682390069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-05 | [Kalktuff-Formationen am Mono Lake, Kalifornien, USA (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_DE-DE3076493863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-04 | [Männliche Breitmaulnashörner, Lake Nakuru, Kenia (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_DE-DE1969801233_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-03 | [Sattais Katcheri (Halle der 27 Säulen), Fort Amber, Rajasthan, Indien (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_DE-DE4173517386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
