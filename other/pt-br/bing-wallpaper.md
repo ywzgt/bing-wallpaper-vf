@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-06 | [Formação de tufa no Lago Mono, Califórnia, EUA (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_PT-BR8311694912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-05 | [Rinocerontes-brancos machos, Lago Nakuru, Quênia (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_PT-BR7836238197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-04 | [Sattais Katcheri, Forte de Amber, Rajastão, Índia (© Yury Taranik/Shutterstock)](https://www.bing.com/th?id=OHR.JaipurFort_PT-BR6821987206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
