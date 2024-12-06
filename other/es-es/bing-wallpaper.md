@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-06 | [Congreso de los Diputados, Madrid, España (© Leonid Andronov/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SpainConstitutionDay2024_ES-ES5831471578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-05 | [Formación de toba en el lago Mono, California, EE. UU. (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_ES-ES5680037517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-04 | [Rinocerontes blancos machos, Lago Nakuru, Kenia (© Ingo Arndt/Minden Pictures)](https://www.bing.com/th?id=OHR.RhinosKenya_ES-ES5145114880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
