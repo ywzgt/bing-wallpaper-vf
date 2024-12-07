@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [ノートルダム大聖堂, フランス パリ (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_JA-JP8512031523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)](https://www.bing.com/th?id=OHR.Daxue2024_JA-JP8353318760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)](https://www.bing.com/th?id=OHR.HelsinkiDusk_JA-JP8216541034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
