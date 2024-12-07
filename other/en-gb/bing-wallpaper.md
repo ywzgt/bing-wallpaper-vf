@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Stonehenge, Wiltshire, England (© Gavin Hellier/robertharding/Subjects/Getty Images)](https://www.bing.com/th?id=OHR.Stonehenge2024_EN-GB3942393785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)](https://www.bing.com/th?id=OHR.HelsinkiDusk_EN-GB3167240327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MonoTufa_EN-GB2751110672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
