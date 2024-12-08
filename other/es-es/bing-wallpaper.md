@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Catedral de Notre-Dame, París, Francia (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ES-ES6883823963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Pontal do Atalaia en Arraial do Cabo, Río de Janeiro, Brasil (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_ES-ES6181405360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Congreso de los Diputados, Madrid, España (© Leonid Andronov/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SpainConstitutionDay2024_ES-ES5831471578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

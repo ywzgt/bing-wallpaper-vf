@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Santa Lucia, Belluno, Veneto (© Moreno Geremetta/Mauritius images GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PonteDeellImmacolata_IT-IT7974246156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Arraial do Cabo, Stato di Rio de Janeiro, Brasile (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_IT-IT6186077330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Città vecchia di Helsinki, Finlandia (© Oleksiy Mark/Shutterstock)](https://www.bing.com/th?id=OHR.HelsinkiDusk_IT-IT6690670335_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

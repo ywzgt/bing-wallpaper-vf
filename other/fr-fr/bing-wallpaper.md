@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Cathédral Notre-Dame de Paris (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_FR-FR5165801809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Arraial do Cabo dans l'État de Rio de Janeiro, Brésil (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_FR-FR2062864559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Maisons traditionnelles alsaciennes à colombages et rivière Lauch Colmar, Alsace (© KavalenkavaVolha/Getty Images)](https://www.bing.com/th?id=OHR.ColmarHoliday_FR-FR1755218249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
