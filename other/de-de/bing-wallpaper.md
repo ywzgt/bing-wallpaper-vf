@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-09 | [Zwei Guanakos, Nationalpark Torres del Paine, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_DE-DE1043903141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-08 | [Kathedrale Notre-Dame, Paris, Frankreich (© Julien Fromentin/Getty Images)](https://www.bing.com/th?id=OHR.ReopeningNotreDame_DE-DE4961652428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-07 | [Arraial do Cabo im Bundesstaat Rio de Janeiro, Brasilien (© Derson Santana/Shutterstock)](https://www.bing.com/th?id=OHR.ArraialdoCabo_DE-DE6486743484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
