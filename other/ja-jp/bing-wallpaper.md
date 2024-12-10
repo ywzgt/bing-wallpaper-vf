@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-11 | [トレ・チーメ・ディ・ラヴァレード, イタリア (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_JA-JP9035342357_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-10 | [ランズ・エンド, イギリス コーンウォール州 (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_JA-JP8878820207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-09 | [トーレス・デル・パイネ国立公園のグアナコ, チリ (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_JA-JP8670867516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
