@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-11 | [Las Tres Cimas de Lavaredo, Italia (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_ES-ES7667848541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-10 | [Lagos de Covadonga, Asturias, España (© Carlos Fernandez/Moment/Getty Images)](https://www.bing.com/th?id=OHR.CovadongaWinter_ES-ES7227856759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-09 | [Dos guanacos, Parque Nacional Torres del Paine, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.GuanacosChile_ES-ES7160765444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

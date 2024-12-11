@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-11 | [Tre Cime di Lavaredo, Italia (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_IT-IT8572597126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-10 | [Sentiero costiero della Cornovaglia coperto di neve, Land's End, Cornovaglia, Inghilterra (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_IT-IT1356760467_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-10 | [Sentiero costiero della Cornovaglia coperto di neve, Land's End, Cornovaglia, Inghilterra (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_IT-IT8232493820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
