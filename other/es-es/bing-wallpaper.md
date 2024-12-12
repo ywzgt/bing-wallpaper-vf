@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-12 | [Flor de Pascua o Flor de Navidad (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_ES-ES7928941818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-11 | [Las Tres Cimas de Lavaredo, Italia (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_ES-ES7667848541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-10 | [Lagos de Covadonga, Asturias, España (© Carlos Fernandez/Moment/Getty Images)](https://www.bing.com/th?id=OHR.CovadongaWinter_ES-ES7227856759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
