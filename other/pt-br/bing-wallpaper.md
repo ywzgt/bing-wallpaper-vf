@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-13 | [Poinsétia ou Flor de Natal (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_PT-BR3322413388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-12 | [Tre Cime di Lavaredo, Itália (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_PT-BR2904816987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-11 | [Caminho da Costa da Cornualha coberto de neve, Land's End, Cornualha, Inglaterra (© Josef FitzGerald-Patrick/Getty Images)](https://www.bing.com/th?id=OHR.CornwallSnow_PT-BR2427033237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
