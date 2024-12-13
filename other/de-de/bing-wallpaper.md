@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-13 | [Weihnachtsmarkt, St. Stephans Basilika, Budapest, Ungarn (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_DE-DE0464258749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-12 | [Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)](https://www.bing.com/th?id=OHR.FrozenLakebyWintrySunrise_DE-DE6146213126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-11 | [Drei Zinnen, Italien (© Daniel Maran/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesSky_DE-DE3083933099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
