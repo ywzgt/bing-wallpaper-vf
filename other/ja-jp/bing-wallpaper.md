@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-14 | [オナガフクロウ, カナダ (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_JA-JP7268842450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-13 | [聖イシュトヴァーン大聖堂, ハンガリー (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_JA-JP6583292404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-12 | [クリスマスを象徴する美しい植物 (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_JA-JP9224856071_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
