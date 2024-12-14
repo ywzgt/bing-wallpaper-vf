@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-14 | [Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)](https://www.bing.com/th?id=OHR.LynxTree_FR-FR1855644774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-13 | [Marché de Noël, basilique Saint-Étienne, Budapest, Hongrie (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_FR-FR0838567901_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-12 | [Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_FR-FR2758700807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

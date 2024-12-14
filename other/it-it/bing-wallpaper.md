@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-14 | [Surnia ulula, Canada (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_IT-IT6682562006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-13 | [Mercatino di Natale, Basilica di Santo Stefano, Budapest, Ungheria (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_IT-IT6393045785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-12 | [Stella di Natale o fiore natalizio (© David Hosking/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.WildPoinsettia_IT-IT8938739079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
