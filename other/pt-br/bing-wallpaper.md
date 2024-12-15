@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-16 | [Lago Misurina, Dolomitas, Itália (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_PT-BR2880479849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-15 | [Coruja-gavião-do-norte, Canadá (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_PT-BR0335958870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-14 | [Festival no nordeste do Brasil (Bahia) (© Franz Tagore Photographer/Getty Images)](https://www.bing.com/th?id=OHR.DiaNacionaldoForro_PT-BR8634835181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
