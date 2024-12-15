@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-15 | [Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_DE-DE0931532016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-14 | [Sperbereule, Kanada (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_DE-DE0106015482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-13 | [Weihnachtsmarkt, St. Stephans Basilika, Budapest, Ungarn (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasBudapest_DE-DE0464258749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
