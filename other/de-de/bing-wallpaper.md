@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-16 | [Salzburg, Österreich (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_DE-DE5352398270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-15 | [Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_DE-DE0931532016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-14 | [Sperbereule, Kanada (© pchoui/Getty Images)](https://www.bing.com/th?id=OHR.NorthernHawkOwl_DE-DE0106015482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
