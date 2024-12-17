@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-17 | [Traditionelle rote Fischerhütten am Ufer des Reinefjords, Norwegen (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_DE-DE5744534611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-16 | [Salzburg, Österreich (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_DE-DE5352398270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-15 | [Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_DE-DE0931532016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

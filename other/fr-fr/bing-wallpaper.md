@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-17 | [Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_FR-FR9231276610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-16 | [Salzbourg, Autriche (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_FR-FR2498324626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-15 | [Lac Misurina, Dolomites, Italie (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaLake_FR-FR7558311472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
