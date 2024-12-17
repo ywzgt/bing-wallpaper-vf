@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-18 | [くるみ割り人形 (© Caroline Holden/Alamy)](https://www.bing.com/th?id=OHR.NutcrackerBallet_JA-JP8484350110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-17 | [美しい村レーヌ, ノルウェー (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_JA-JP8145740016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-16 | [ザルツブルク, オーストリア (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_JA-JP7845943575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
