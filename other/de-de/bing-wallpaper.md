@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-18 | [English National Ballet bei der Aufführung von „Der Nussknacker“ (© Caroline Holden/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NutcrackerBallet_DE-DE4788718607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-17 | [Traditionelle rote Fischerhütten am Ufer des Reinefjords, Norwegen (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_DE-DE5744534611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-16 | [Salzburg, Österreich (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_DE-DE5352398270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

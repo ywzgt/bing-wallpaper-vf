@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-18 | [Représentation de Casse-Noisette par l’English National Ballet (© Caroline Holden/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NutcrackerBallet_FR-FR0747265079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-17 | [Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_FR-FR9231276610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-16 | [Salzbourg, Autriche (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SalzburgSnow_FR-FR2498324626_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
