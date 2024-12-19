@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-20 | [ロヴァニエミ近郊のサンタクロース村, フィンランド (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_JA-JP9442890850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-19 | [歴史的な都市シビウ, ルーマニア (© Calin Stan/Alamy)](https://www.bing.com/th?id=OHR.SibiuRomania_JA-JP9171991249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-18 | [くるみ割り人形 (© Caroline Holden/Alamy)](https://www.bing.com/th?id=OHR.NutcrackerBallet_JA-JP8484350110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
