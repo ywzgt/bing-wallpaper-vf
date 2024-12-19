@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-19 | [Mercatino di Natale di Sibiu, Romania (© Calin Stan/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SibiuRomania_IT-IT8074363725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-18 | [Il Balletto Nazionale Inglese esegue “Lo Schiaccianoci” (© Caroline Holden/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NutcrackerBallet_IT-IT7796108656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-17 | [Tradizionali casette rosse dei pescatori sulle rive del Reinefjorden, Norvegia (© Pilat666/Getty Images)](https://www.bing.com/th?id=OHR.ReinefjordenNorway_IT-IT7180371144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
