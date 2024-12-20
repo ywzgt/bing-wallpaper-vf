@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-21 | [Vila do Papai Noel em Rovaniemi, Lapônia, Finlândia (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_PT-BR7713817885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-20 | [Mercado de Natal de Sibiu, Romênia (© Calin Stan/Alamy)](https://www.bing.com/th?id=OHR.SibiuRomania_PT-BR7281120144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-19 | [English National Ballet apresentando "O Quebra-Nozes" (© Caroline Holden/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NutcrackerBallet_PT-BR8706469865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
