@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-20 | [Village du Père Noël à Rovaniemi, Laponie, Finlande (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_FR-FR1605218480_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-19 | [Marché de Noël de Sibiu, Roumanie  (© Calin Stan/Alamy)](https://www.bing.com/th?id=OHR.SibiuRomania_FR-FR5904755818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-18 | [Représentation de Casse-Noisette par l’English National Ballet (© Caroline Holden/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NutcrackerBallet_FR-FR0747265079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
