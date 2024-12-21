@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-21 | [Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.SolsticeHalo_DE-DE6991258679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-20 | [Weihnachtsmanndorf in Rovaniemi, Lappland, Finnland (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_DE-DE6517743209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-19 | [Weihnachtsmarkt in Hermannstadt (Sibiu), Rumänien (© Calin Stan/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SibiuRomania_DE-DE6226513054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
