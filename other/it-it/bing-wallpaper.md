@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-22 | [Albero di Natale al Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_IT-IT3144209474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-21 | [Un alone intorno al Sole, Monti Metalliferi, Sassonia, Germania (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.SolsticeHalo_IT-IT8535598523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-20 | [Villaggio di Babbo Natale a Rovaniemi, Lapponia, Finlandia (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_IT-IT8309910661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
