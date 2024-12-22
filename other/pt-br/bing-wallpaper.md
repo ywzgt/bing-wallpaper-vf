@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-23 | [Árvore de Natal no Crystal Pier, Pacific Beach, San Diego, Califórnia, EUA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_PT-BR2585040756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-22 | [Vista aérea da Ilha Cataguás em Angra dos Reis, Rio de Janeiro (© R.M. Nunes/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.InicioVerao2024_PT-BR9499376932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-21 | [Vila do Papai Noel em Rovaniemi, Lapônia, Finlândia (© Smelov/Shutterstock)](https://www.bing.com/th?id=OHR.SantaClausVillage_PT-BR7713817885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
