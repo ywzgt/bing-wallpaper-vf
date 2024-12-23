@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-24 | [Dois grous-da-manchúria em Kushiro, Hokkaido, Japão (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_PT-BR2027410391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-23 | [Árvore de Natal no Crystal Pier, Pacific Beach, San Diego, Califórnia, EUA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_PT-BR2585040756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-22 | [Vista aérea da Ilha Cataguás em Angra dos Reis, Rio de Janeiro (© R.M. Nunes/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.InicioVerao2024_PT-BR9499376932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
