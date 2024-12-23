@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-24 | [クリスマスマーケットの工芸品, ドイツ (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_JA-JP0084831582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-23 | [けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)](https://www.bing.com/th?id=OHR.TokyoTower2024_JA-JP2762394000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-22 | [釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_JA-JP9750730538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
