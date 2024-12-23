@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-23 | [Grus japonesis a Kushiro, Hokkaido, Giappone (© Wirestock, Inc./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FestivusCranes_IT-IT8994526236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-22 | [Albero di Natale al Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_IT-IT3144209474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-21 | [Un alone intorno al Sole, Monti Metalliferi, Sassonia, Germania (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.SolsticeHalo_IT-IT8535598523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-23 | [Dos grullas de Manchuria en Kushiro, Hokkaido, Japón (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_ES-ES2012612015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-22 | [Árbol de Navidad en Crystal Pier, Pacific Beach, San Diego, California, EE.UU. (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_ES-ES1740304198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-21 | [Halo alrededor del sol, Montes Metálicos, Sajonia, Alemania (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.SolsticeHalo_ES-ES1500540396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

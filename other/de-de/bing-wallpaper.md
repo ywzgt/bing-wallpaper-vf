@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-23 | [Mandschurenkraniche in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_DE-DE1009786321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-22 | [Adventskranz, 4. Advent (© Asvolas/Getty Images)](https://www.bing.com/th?id=OHR.GermanyAdventWreath_DE-DE0507962655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-21 | [Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.SolsticeHalo_DE-DE6991258679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
