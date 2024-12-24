@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-25 | [Cena de um mercado de Natal na Alemanha (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_PT-BR1618485340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-24 | [Dois grous-da-manchúria em Kushiro, Hokkaido, Japão (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_PT-BR2027410391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-23 | [Árvore de Natal no Crystal Pier, Pacific Beach, San Diego, Califórnia, EUA (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_PT-BR2585040756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
