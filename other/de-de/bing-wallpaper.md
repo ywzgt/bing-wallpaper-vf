@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-24 | [Schneekugel mit dem Weihnachtsmann (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_DE-DE7632109173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-23 | [Mandschurenkraniche in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_DE-DE1009786321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-22 | [Adventskranz, 4. Advent (© Asvolas/Getty Images)](https://www.bing.com/th?id=OHR.GermanyAdventWreath_DE-DE0507962655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

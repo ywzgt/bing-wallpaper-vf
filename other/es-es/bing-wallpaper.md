@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-24 | [Mercadillo navideño en Alemania (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_ES-ES2272443187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-23 | [Dos grullas de Manchuria en Kushiro, Hokkaido, Japón (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_ES-ES2012612015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-22 | [Árbol de Navidad en Crystal Pier, Pacific Beach, San Diego, California, EE.UU. (© SamAntonioPhotography/Getty Images)](https://www.bing.com/th?id=OHR.CrystalPier_ES-ES1740304198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
