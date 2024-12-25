@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-26 | [Renas no Parque Nacional Van Mijenfjorden, Noruega (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_PT-BR1240066422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-25 | [Cena de um mercado de Natal na Alemanha (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_PT-BR1618485340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-24 | [Dois grous-da-manchúria em Kushiro, Hokkaido, Japão (© Wirestock, Inc./Alamy)](https://www.bing.com/th?id=OHR.FestivusCranes_PT-BR2027410391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
