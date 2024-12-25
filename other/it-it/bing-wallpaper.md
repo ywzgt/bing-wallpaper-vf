@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-25 | [Renne delle Svalbard nel Van Mijenfjorden NP, Norvegia (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_IT-IT1609765217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-24 | [Galleria Vittorio Emanuele II, Milano, Lombardia (© Stefan Huwiler/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GalleriaVittiorioEmanuele_IT-IT9220244159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-23 | [Grus japonesis a Kushiro, Hokkaido, Giappone (© Wirestock, Inc./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FestivusCranes_IT-IT8994526236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
