@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-26 | [Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PointeDiable_FR-FR3649413809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-25 | [Rennes du Svalbard, parc national de Van Mijenfjorden, Norvège (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_FR-FR3852495223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-24 | [Marché de Noël en Allemagne (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_FR-FR4108706539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

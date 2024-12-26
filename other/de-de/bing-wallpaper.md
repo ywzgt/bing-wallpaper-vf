@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-26 | [Weihnachtsbeleuchtung im Hafen von Mousehole, Cornwall, England (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_DE-DE8175245850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-25 | [Spitzbergen-Rentiere im Van Mijenfjord NP, Norwegen (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_DE-DE1704555391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-24 | [Schneekugel mit dem Weihnachtsmann (© Cyril Gosselin/Getty Images)](https://www.bing.com/th?id=OHR.SantaSnowglobe_DE-DE7632109173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
