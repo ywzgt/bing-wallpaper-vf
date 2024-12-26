@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-27 | [ブレッド湖, スロベニア (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_JA-JP5075131023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-26 | [マウゼル, イングランド (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_JA-JP0779815955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-25 | [スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_JA-JP0425560339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
