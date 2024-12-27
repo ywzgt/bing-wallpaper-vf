@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-27 | [Lago Bled, Eslovenia (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_ES-ES1245773741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-26 | [Cala Comte al atardecer, Ibiza, Islas Baleares, España (© Vicente Soler Marmaneu Vicenfoto/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SaintStephensDay_ES-ES9179048163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-25 | [Renos de Svalbard en el Van Mijenfjorden NP, Noruega (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://www.bing.com/th?id=OHR.ReindeerTrio_ES-ES2505457663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
