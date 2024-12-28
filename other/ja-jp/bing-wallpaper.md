@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-29 | [ボロブドゥール遺跡, インドネシア (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_JA-JP5888220367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-28 | [アオウミガメ, フランス (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_JA-JP5618879842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-27 | [ブレッド湖, スロベニア (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_JA-JP5075131023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
