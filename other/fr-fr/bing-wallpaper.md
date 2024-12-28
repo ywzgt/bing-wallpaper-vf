@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-28 | [Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_FR-FR9548465819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-27 | [Lac de Bled, Slovénie (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_FR-FR5167708906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-26 | [Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PointeDiable_FR-FR3649413809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

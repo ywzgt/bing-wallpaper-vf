@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-28 | [Eine Grüne Meeresschildkröte schwimmt im Pazifischen Ozean in der Nähe des französischen Überseegebiets Neukaledonien (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_DE-DE1141048085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-27 | [Bleder See, Slowenien (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_DE-DE0780577347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-26 | [Weihnachtsbeleuchtung im Hafen von Mousehole, Cornwall, England (© ianwool/Getty Images)](https://www.bing.com/th?id=OHR.MouseholeXmas_DE-DE8175245850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

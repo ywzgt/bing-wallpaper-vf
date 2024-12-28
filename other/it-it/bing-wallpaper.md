@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-28 | [Tartaruga marina verde, Oceano Pacifico vicino al territorio francese d'oltremare della Nuova Caledonia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_IT-IT2494528336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-27 | [Lago di Bled, Slovenia (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_IT-IT5595802346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-26 | [Albero di Natale, Portofino, Liguria (© Alberto Ialongo/Adobe Stock)](https://www.bing.com/th?id=OHR.ChristmasSeason_IT-IT9715464696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
