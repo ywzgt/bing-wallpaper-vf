@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-30 | [Templo de Borobudur, Java, Indonésia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_PT-BR9535309352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-29 | [Tartaruga-verde nadando no Oceano Pacífico, perto do território francês da Nova Caledônia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_PT-BR9135680807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-28 | [Lago Bled, Eslovênia (© Kesu01/Getty Images)](https://www.bing.com/th?id=OHR.LakeBledSnow_PT-BR8619122225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
