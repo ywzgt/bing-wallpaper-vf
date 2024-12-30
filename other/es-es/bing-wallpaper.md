@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-30 | [Eucalipto de nieve de Tasmania y pandani de Tasmania cerca del lago Dobson, Parque Nacional Mount Field, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_ES-ES3508020804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-29 | [Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_ES-ES2132252212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-28 | [Tortuga marina verde nadando en el Océano Pacífico cerca del territorio francés de ultramar de Nueva Caledonia (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_ES-ES1601437701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

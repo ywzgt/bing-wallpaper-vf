@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-30 | [Tasmanischer Schnee-Eukalyptus und Pandani-Pflanzen in der Nähe des Lake Dobson, Mount-Field-Nationalpark, Tasmanien, Australien (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_DE-DE4643713603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-29 | [Borobudur TeBorobudur-Tempel, Java, Indonesien (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_DE-DE1793437311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-28 | [Eine Grüne Meeresschildkröte schwimmt im Pazifischen Ozean in der Nähe des französischen Überseegebiets Neukaledonien (© Damsea/Shutterstock)](https://www.bing.com/th?id=OHR.CoralTurtle_DE-DE1141048085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
