@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-01 | [朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ShirahigeSunrise2024_JA-JP6695296609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-31 | [平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Omisoka2024_JA-JP6408751475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-30 | [マウントフィールド国立公園, オーストラリア (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_JA-JP6160592179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
