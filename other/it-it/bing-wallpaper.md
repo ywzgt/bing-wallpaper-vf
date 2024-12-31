@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-31 | [Fuochi d'artificio di Capodanno a Firenze, Toscana (© Marti Bug Catcher/Shutterstock)](https://www.bing.com/th?id=OHR.CapodannoFirenze_IT-IT8277886621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-30 | [Piante di gomma delle nevi e pandani, Parco Nazionale di Mount Field, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_IT-IT7967272422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-29 | [Tempio di Borobudur, Giava, Indonesia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_IT-IT2966743478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
