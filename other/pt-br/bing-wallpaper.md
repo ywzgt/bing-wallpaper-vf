@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-01 | [Queima de fogos de Ano-Novo na Praia de Copacabana, Rio de Janeiro, Brasil (© Wagner Meier/Getty Images)](https://www.bing.com/th?id=OHR.RioNewYear_PT-BR1238586029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-31 | [Vista aérea da Avenida Paulista na cidade de São Paulo (© cifotart/Getty Images)](https://www.bing.com/th?id=OHR.CorridadeSaoSilvestre_PT-BR4824975840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-30 | [Templo de Borobudur, Java, Indonésia (© Robertharding/Shutterstock)](https://www.bing.com/th?id=OHR.BorobudurBells_PT-BR9535309352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
