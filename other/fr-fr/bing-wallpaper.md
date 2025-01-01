@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-01 | [Ours polaires, Arctique (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_FR-FR0276887378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-31 | [Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)](https://www.bing.com/th?id=OHR.ParisNewYearEve_FR-FR3084713180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-30 | [Eucalyptus coccifera et pandanus, parc national de Mount Field, Tasmanie, Australie (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_FR-FR0048358623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

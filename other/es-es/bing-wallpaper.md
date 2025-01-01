@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-01 | [Osos polares jugando en el Ártico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_ES-ES4132318898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-31 | [Nochevieja en la Puerta del Sol, Madrid, España (© Mario Montero Arroyo/iStock/Getty Images)](https://www.bing.com/th?id=OHR.NewYearSpain24_ES-ES3801149904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-30 | [Eucalipto de nieve de Tasmania y pandani de Tasmania cerca del lago Dobson, Parque Nacional Mount Field, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_ES-ES3508020804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

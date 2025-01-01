@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-02 | [Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-GB6400149613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-01 | [Fireworks in Edinburgh, Scotland (© Jane Barlow/PA Images via Getty Images)](https://www.bing.com/th?id=OHR.Hogmanay2024_EN-GB1967612260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-31 | [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://www.bing.com/th?id=OHR.MountFieldNP_EN-GB1514220907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
