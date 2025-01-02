@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-02 | [Sternspuren über Ardez, Graubünden, Schweiz (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_DE-DE7533597545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-01 | [Eisbären beim Spielen in der Arktis (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_DE-DE5203449776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-31 | [Silvesterfeuerwerk über der Stadt Garmisch-Partenkirchen mit Blick auf die Zugspitzgruppe, Bayern (© Marc Hohenleitner/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.BavariaNewYearsEveFireworks_DE-DE4504129944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
