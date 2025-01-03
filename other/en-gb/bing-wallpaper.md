@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-04 | [Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienOxford_EN-GB2804398313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-03 | [Star trails over Ardez village, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_EN-GB7554817854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-02 | [Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_EN-GB6400149613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
