@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-05 | [アルデッツ村, スイス (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_JA-JP7833129331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-04 | [丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_JA-JP7494581439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-03 | [オックスフォード大学の図書館, イギリス (© atiger/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienOxford_JA-JP7219183666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
