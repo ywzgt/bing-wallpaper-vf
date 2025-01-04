@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-05 | [Cataratas de Bản Giốc-Detian no Rio Quây Sơn, Vietnã (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_PT-BR3430655242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-04 | [Radcliffe Camera e All Souls College, Universidade de Oxford, Inglaterra (© atiger/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienOxford_PT-BR2782448271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-03 | [Trilhas de estrelas sobre a vila de Ardez, Cantão dos Grisões, Suíça (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ArdezSwitzerland_PT-BR2038942515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
