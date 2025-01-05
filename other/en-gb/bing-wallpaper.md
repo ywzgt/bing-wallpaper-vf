@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-06 | [Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PlumParakeet_EN-GB3398674878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-05 | [Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_EN-GB3020680221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-04 | [Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienOxford_EN-GB2804398313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-05 | [Árboles escarchados en la Sierra de Aralar, Navarra, España (© Iñaki Tejerina/Moment/Getty Images)](https://www.bing.com/th?id=OHR.GeneralWinterNavarre_ES-ES5527142777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-04 | [Cataratas Ban Gioc - Detian en el río Quây Sơn, en la frontera entre China y Vietnam (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_ES-ES5222423755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-03 | [La Cámara Radcliffe y el All Souls College, Universidad de Oxford, Inglaterra (© atiger/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienOxford_ES-ES4772799027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
