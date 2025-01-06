@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-06 | [Cripta allagata, Basilica di San Francesco, Ravenna, Italia (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_IT-IT9888465442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-05 | [Massi di Moeraki al tramonto, Isola del Sud, Nuova Zelanda (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_IT-IT9574087004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-04 | [Cascate di Bản Giốc sul fiume Quây Sơn, Vietnam (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_IT-IT3525554686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

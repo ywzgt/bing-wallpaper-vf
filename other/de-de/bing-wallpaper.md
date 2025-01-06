@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-06 | [Überschwemmte Krypta, Basilika von San Francesco, Ravenna, Italien (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_DE-DE6763936064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-05 | [Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)](https://www.bing.com/th?id=OHR.WinterLandscapeBavaria_DE-DE6496709723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-04 | [Bản-Giốc-Detian-Wasserfälle am Quây Sơn Fluss, Vietnam (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_DE-DE6165029954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
