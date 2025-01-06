@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-07 | [Cripta inundada, Basílica de São Francisco, Ravena, Itália (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_PT-BR5657717935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-06 | [Periquito-cabeça-de-ameixa em Shimoga, Karnataka, Índia (© Hira Punjabi/Alamy)](https://www.bing.com/th?id=OHR.PlumParakeet_PT-BR4715109832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-05 | [Cataratas de Bản Giốc-Detian no Rio Quây Sơn, Vietnã (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_PT-BR3430655242_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
