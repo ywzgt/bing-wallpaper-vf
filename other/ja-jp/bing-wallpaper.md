@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-08 | [雪化粧した万里の長城, 中国 (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_JA-JP2827072518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-07 | [バンゾック滝, ベトナム (© Shane P. White/Minden Pictures)](https://www.bing.com/th?id=OHR.VietnamFalls_JA-JP8519812125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-06 | [サン・フランチェスコ聖堂, イタリア (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_JA-JP8188667597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
