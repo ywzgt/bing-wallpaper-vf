@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-07 | [Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_FR-FR2503535078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-06 | [Crypte sous l’eau, Basilique Saint-François de Ravenne, Italie (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_FR-FR1984355211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-05 | [Perruche à tête de prune, Shimoga, Karnataka, Inde (© Hira Punjabi/Alamy)](https://www.bing.com/th?id=OHR.PlumParakeet_FR-FR1766885015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
