@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-09 | [Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-GB9518457526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-08 | [Moeraki Boulders, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_EN-GB9218282319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-07 | [Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_EN-GB7069955288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
