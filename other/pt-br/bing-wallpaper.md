@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-09 | [Jacaré (Caiman yacare) bebê visto de baixo (© Luciano Candisani/Minden Pictures)](https://www.bing.com/th?id=OHR.DiaNacionaldoFotografo_PT-BR5093198767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-08 | [Seixos gigantes de Moeraki ao pôr do sol, Ilha do Sul, Nova Zelândia (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_PT-BR5423530847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-07 | [Cripta inundada, Basílica de São Francisco, Ravena, Itália (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_PT-BR5657717935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
