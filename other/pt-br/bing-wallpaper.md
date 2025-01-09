@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-10 | [Dunas de areia de Sossusvlei, deserto do Namibe, Namíbia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_PT-BR5749717911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-09 | [Jacaré (Caiman yacare) bebê visto de baixo (© Luciano Candisani/Minden Pictures)](https://www.bing.com/th?id=OHR.DiaNacionaldoFotografo_PT-BR5093198767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-08 | [Seixos gigantes de Moeraki ao pôr do sol, Ilha do Sul, Nova Zelândia (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_PT-BR5423530847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
