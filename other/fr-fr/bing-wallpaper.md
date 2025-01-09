@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-09 | [Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_FR-FR3454752206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-08 | [La Grande Muraille enneigée, Chine (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_FR-FR2831168051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-07 | [Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_FR-FR2503535078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

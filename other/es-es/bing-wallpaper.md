@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-09 | [Cripta inundada, Basílica de San Francisco, Rávena, Italia (© Andrea Pucci/Getty Images)](https://www.bing.com/th?id=OHR.RavennaBasilica_ES-ES6729761925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-08 | [Nieve en la Gran Muralla, China (© View Stock/Alamy)](https://www.bing.com/th?id=OHR.GreatWallStairs_ES-ES6386971861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-07 | [Moeraki Boulders al atardecer, Isla Sur, Nueva Zelanda (© Douglas Pearson/eStock Photo)](https://www.bing.com/th?id=OHR.BouldersNZ_ES-ES6118203530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
