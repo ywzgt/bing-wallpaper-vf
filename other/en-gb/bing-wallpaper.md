@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-11 | [Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_EN-GB9269932898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_EN-GB9795419612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-09 | [Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GreatWallStairs_EN-GB9518457526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

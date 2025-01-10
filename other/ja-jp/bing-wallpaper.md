@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-10 | [アブラハム湖, カナダ アルバータ州 (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_JA-JP3345547738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [アブラハム湖, カナダ アルバ���タ州 (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_JA-JP3345547738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-09 | [ナミブ砂漠, ナミビア (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_JA-JP9057669220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
