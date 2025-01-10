@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-10 | [Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DayTintin_FR-FR9740389196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DayTintin_FR-FR0911497926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-09 | [Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_FR-FR3454752206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
