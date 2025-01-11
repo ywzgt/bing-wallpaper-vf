@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-11 | [Monument de Hri souani, Meknès, Maroc (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_FR-FR1385030402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DayTintin_FR-FR9740389196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-10 | [Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DayTintin_FR-FR0911497926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

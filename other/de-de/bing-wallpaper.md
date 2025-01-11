@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-11 | [Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.GermanyAppleOnWinterTree_DE-DE6727700722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-10 | [Abraham Lake, Alberta, Kanada (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_DE-DE3603764208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-09 | [Sossusvlei-Sanddünen, Namib-Wüste, Namibia (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.NamibiaDunes_DE-DE7496419422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
