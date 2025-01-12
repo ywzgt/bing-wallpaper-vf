@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-12 | [Pez catalufa espejuelo en la Gran Barrera de Coral, Australia (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_ES-ES9658344168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-11 | [Heri es-Swani en Meknes, Marruecos (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_ES-ES8743532455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-10 | [Lago Abraham, Alberta, Canadá (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_ES-ES9230701084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
