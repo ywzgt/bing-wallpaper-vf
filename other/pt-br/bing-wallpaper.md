@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-13 | [Cidade de Belém, capital do estado do Pará (© luoman/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AniversarioBelem_PT-BR6953225578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-12 | [Heri es-Swani em Mequinez, Marrocos (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_PT-BR7456607348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-11 | [Lago Abraham, Alberta, Canadá (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_PT-BR9346398938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
