@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-13 | [Cottage e faro di Tŵr Mawr, Ynys Llanddwyn, Galles, Regno Unito (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_IT-IT6663007380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-12 | [Priacanthus hamrur, Grande Barriera Corallina, Australia (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_IT-IT6327285395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-11 | [Heri es-Swani a Mèknes, Morocco (© Calin Stan/Shutterstock)](https://www.bing.com/th?id=OHR.MeknesMorocco_IT-IT5907061739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

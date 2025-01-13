@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-13 | [Cottage und Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Wales, UK (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_DE-DE5918144653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-12 | [Riff-Großaugenbarsch im Great Barrier Reef, Australien (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_DE-DE3317267643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-11 | [Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.GermanyAppleOnWinterTree_DE-DE6727700722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
