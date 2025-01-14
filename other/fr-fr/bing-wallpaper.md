@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-14 | [Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_FR-FR2616000691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-13 | [Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_FR-FR2215820217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-12 | [Poisson Gros-Yeux, Grande Barrière de Corail, Australie (© Fred Bavendam/Minden Pictures)](https://www.bing.com/th?id=OHR.CrescentTail_FR-FR1748387679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
