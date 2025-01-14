@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-15 | [Vila de Zahara de la Sierra, Cádiz, Espanha (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_PT-BR3104311078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-14 | [Casa de campo e farol Tŵr Mawr, Ynys Llanddwyn, País de Gales, Reino Unido (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_PT-BR5316082485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-13 | [Cidade de Belém, capital do estado do Pará (© luoman/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AniversarioBelem_PT-BR6953225578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
