@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-15 | [Grande Cour Élisabeth II, British Museum, Londres, Angleterre (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_FR-FR4239916080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-14 | [Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_FR-FR2616000691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-13 | [Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_FR-FR2215820217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

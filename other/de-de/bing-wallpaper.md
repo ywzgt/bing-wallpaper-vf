@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-15 | [Der Große Hof des British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_DE-DE6557412428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-14 | [Zahara de la Sierra, Cádiz, Spanien (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_DE-DE6446198457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-13 | [Cottage und Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Wales, UK (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_DE-DE5918144653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
