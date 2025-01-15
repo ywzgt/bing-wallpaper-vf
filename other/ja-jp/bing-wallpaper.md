@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [ピナクルズ国立公園, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_JA-JP8554679211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-15 | [カラフルな餅花, 愛知県 豊田市 (© Photo taken by Bong Grit/Getty Images)](https://www.bing.com/th?id=OHR.Mochibana2025_JA-JP8291657654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-14 | [大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_JA-JP4665250059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
