@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [Praia dos Nativos vista de Quadrado, Trancoso, Porto Seguro, Bahia (© Samuel Ericksen/Shutterstock)](https://www.bing.com/th?id=OHR.TrancosoPraia_PT-BR2050297915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-15 | [Vila de Zahara de la Sierra, Cádiz, Espanha (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_PT-BR3104311078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-14 | [Casa de campo e farol Tŵr Mawr, Ynys Llanddwyn, País de Gales, Reino Unido (© Westend61 on Offset/Shutterstock)](https://www.bing.com/th?id=OHR.CoastalWales_PT-BR5316082485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
