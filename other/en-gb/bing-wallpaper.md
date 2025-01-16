@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-17 | [High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_EN-GB7443732895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-16 | [The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_EN-GB7712861262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-15 | [Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_EN-GB7941823974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

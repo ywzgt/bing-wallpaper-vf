@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BeardedTitsInSnowyReeds_DE-DE6963696045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-15 | [Der Große Hof des British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_DE-DE6557412428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-14 | [Zahara de la Sierra, Cádiz, Spanien (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_DE-DE6446198457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
