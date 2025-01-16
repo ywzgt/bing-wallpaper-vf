@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [Sentiero degli alti picchi nel Parco Nazionale dei Pinnacoli, Contea di San Benito, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_IT-IT6858792304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-16 | [Sentiero degli alti picchi nel Parco Nazionale dei Pinnacoli, Contea di San Benito, California, USA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_IT-IT7170476013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-15 | [La Grande Corte del British Museum, Londra, Inghilterra (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_IT-IT0217909528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

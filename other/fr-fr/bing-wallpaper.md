@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-16 | [Parc national des Pinnacles, comté de San Benito, Californie, États-Unis (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_FR-FR7488915800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-16 | [Parc national des Pinnacles, comté de San Benito, Californie, États-Unis (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_FR-FR5164595445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-15 | [Grande Cour Élisabeth II, British Museum, Londres, Angleterre (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumCourt_FR-FR4239916080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
