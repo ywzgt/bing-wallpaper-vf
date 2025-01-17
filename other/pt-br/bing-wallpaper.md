@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-18 | [Pelicano-pardo, San Diego, Califórnia, EUA (© Arthur Morris/BIRDS AS ART/Getty Images)](https://www.bing.com/th?id=OHR.PelicanPortrait_PT-BR0622364718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-17 | [Trilha High Peaks no Parque Nacional Pinnacles, condado de San Benito, Califórnia, EUA (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_PT-BR1043285861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-16 | [Praia dos Nativos vista de Quadrado, Trancoso, Porto Seguro, Bahia (© Samuel Ericksen/Shutterstock)](https://www.bing.com/th?id=OHR.TrancosoPraia_PT-BR2050297915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
