@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-18 | [ホワイトサンズ国立公園, 米国 ニューメキシコ州  (© Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.WhiteSandsNP_JA-JP9246270172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-17 | [マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AssiniboineTS_JA-JP8766031351_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-16 | [ピナクルズ国立公園, 米国 カリフォルニア州 (© yhelfman/Getty Images)](https://www.bing.com/th?id=OHR.PinnaclesPeaks_JA-JP8554679211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
