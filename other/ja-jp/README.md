@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&w=1000)Today: [���プチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&w=1000)Today: [ネプチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-19 [download 4k](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-19 [download 4k](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.WhiteSandsNP_JA-JP9246270172_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-18 [download 4k](https://www.bing.com/th?id=OHR.WhiteSandsNP_JA-JP9246270172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|

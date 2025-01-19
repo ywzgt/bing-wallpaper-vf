@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-20 | [Gruta de Netuno, Sardenha, Itália (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_PT-BR9754491184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-19 | [Pôr do sol no Parque Nacional de White Sands, Novo México, EUA (© Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.WhiteSandsNP_PT-BR5756772005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-18 | [Pelicano-pardo, San Diego, Califórnia, EUA (© Arthur Morris/BIRDS AS ART/Getty Images)](https://www.bing.com/th?id=OHR.PelicanPortrait_PT-BR0622364718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
