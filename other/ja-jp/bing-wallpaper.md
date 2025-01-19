@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-20 | [コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)](https://www.bing.com/th?id=OHR.Daikan2025_JA-JP9667984098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-19 | [ネプチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-19 | [���プチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_JA-JP9457027054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
