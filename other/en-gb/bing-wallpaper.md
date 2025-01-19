@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-20 | [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-GB6545750765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-19 | [Ashdown Forest, East Sussex, England (© Mark Holme photo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PoohDay2025_EN-GB6799275517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-18 | [Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)](https://www.bing.com/th?id=OHR.PelicanPortrait_EN-GB7053317345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
