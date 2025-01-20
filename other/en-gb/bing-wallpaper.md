@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-21 | [White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.WhiteSandsNP_EN-GB6124824986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-20 | [Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_EN-GB6545750765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-19 | [Ashdown Forest, East Sussex, England (© Mark Holme photo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PoohDay2025_EN-GB6799275517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
