@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-21 | [Ardilla roja euroasiática junto a una seta, Países Bajos (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_ES-ES3993162395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-20 | [Real Monasterio de Santa María de Guadalupe, Cáceres, Extremadura, España (© Rudolf Ernst/iStock/Getty Images)](https://www.bing.com/th?id=OHR.LasCarantonas_ES-ES8729775352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-19 | [Gruta de Neptuno, Cerdeña, Italia (© Carlo Murenu/Getty Images)](https://www.bing.com/th?id=OHR.NeptunesGrotto_ES-ES8086917702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
