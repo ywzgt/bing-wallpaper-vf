@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-22 | [ペトラ, ヨルダン (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_JA-JP0333984762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-21 | [キタリスとキノコ, オランダ (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_JA-JP6210839377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-20 | [コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)](https://www.bing.com/th?id=OHR.Daikan2025_JA-JP9667984098_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
