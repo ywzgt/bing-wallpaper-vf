@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-23 | [Ad-Deir, Petra, Jordânia (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_PT-BR6925888778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-22 | [Esquilo-vermelho-eurasiático com cogumelo (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_PT-BR7430673566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-21 | [Vista do Golfo de Nápoles rumo ao Monte Vesúvio, Itália (© ezypix/Getty Images)](https://www.bing.com/th?id=OHR.NapoliPizza_PT-BR8534903906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
