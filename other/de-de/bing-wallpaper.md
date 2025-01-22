@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-22 | [Ad-Deir, Petra, Jordanien (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_DE-DE5253716041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-21 | [Eurasisches Eichhörnchen mit Fliegenpilz (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_DE-DE9795930868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-20 | [Braunpelikan, San Diego, Kalifornien, USA (© Arthur Morris/BIRDS AS ART/Getty Images)](https://www.bing.com/th?id=OHR.PelicanPortrait_DE-DE4317425167_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-22 | [Ad-Deir, Petra, Giordania (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_IT-IT8921152499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-21 | [Scoiattolo rosso (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_IT-IT0079565716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-20 | [Zahara de la Sierra, Cadice, Spagna (© SEN LI/Getty Images)](https://www.bing.com/th?id=OHR.CadizSpain_IT-IT4747642623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

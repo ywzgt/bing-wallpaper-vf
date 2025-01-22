@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-22 | [Ad-Deir, Pétra, Jordanie (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_FR-FR1072501086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-21 | [Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)](https://www.bing.com/th?id=OHR.ColourfulBlueMonday_FR-FR0873171314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-20 | [Lac Abraham, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://www.bing.com/th?id=OHR.BubbleLake_FR-FR0545944347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
