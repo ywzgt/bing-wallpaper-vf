@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-23 | [雪化粧したパークシティ, 米国 ユタ州 (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.DeerValley_JA-JP0604255662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-22 | [ペトラ, ヨルダン (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_JA-JP0333984762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-21 | [キタリスとキノコ, オランダ (© Edwin Giesbers/Minden Pictures)](https://www.bing.com/th?id=OHR.DutchSquirrel_JA-JP6210839377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
