@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-23 | [Deer Valley au crépuscule, Park City, Utah, États-Unis (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.DeerValley_FR-FR5592642570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-22 | [Ad-Deir, Pétra, Jordanie (© Punnawit Suwuttananun/Getty Images)](https://www.bing.com/th?id=OHR.PetraMonastery_FR-FR1072501086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-21 | [Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)](https://www.bing.com/th?id=OHR.ColourfulBlueMonday_FR-FR0873171314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
