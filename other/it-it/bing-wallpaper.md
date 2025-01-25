@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-25 | [Porto, Portogallo (© Starcevic/Getty Images)](https://www.bing.com/th?id=OHR.PortoSunset_IT-IT1632622830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-24 | [Geyser Strokkur, Islanda (© John and Tina Reid/Getty Images)](https://www.bing.com/th?id=OHR.IcelandGeyser_IT-IT1394965765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-23 | [Deer Valley al tramonto, Park City, Utah, USA (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.DeerValley_IT-IT9318398790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
