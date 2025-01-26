@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-27 | [Floresta de faia-europeia na Bélgica (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_PT-BR2068604489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-26 | [Amanhecer no Rio de Janeiro (© Stanley Chen Xi, landscape and architecture photographer/Getty Images)](https://www.bing.com/th?id=OHR.DiaBossaNova_PT-BR0445068072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-25 | [Gêiser Strokkur na Islândia (© John and Tina Reid/Getty Images)](https://www.bing.com/th?id=OHR.IcelandGeyser_PT-BR7544029151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
