@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-27 | [La tour Eiffel sous la neige, Paris (© Orbon Alija/Getty Images)](https://www.bing.com/th?id=OHR.ParisSnow_FR-FR5265906192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-26 | [Forêt de hêtres, Belgique (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_FR-FR8535589917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-25 | [Porto, Portugal (© Starcevic/Getty Images)](https://www.bing.com/th?id=OHR.PortoSunset_FR-FR7243507947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
