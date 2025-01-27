@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-28 | [吹雪の中を飛ぶコミミズク (© Dilshan Muthalib/Getty Images)](https://www.bing.com/th?id=OHR.FlyingOwl_JA-JP5099744024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-27 | [グランド・キャニオン国立公園, 米国 アリゾナ州 (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_JA-JP4445810449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-26 | [霧氷のブナ林, ベルギー (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_JA-JP4239876315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
