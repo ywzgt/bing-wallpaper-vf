@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-28 | [Templo de Zoroastro, Parque Nacional do Grand Canyon, Arizona, EUA (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_PT-BR4095354589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-27 | [Floresta de faia-europeia na Bélgica (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_PT-BR2068604489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-26 | [Amanhecer no Rio de Janeiro (© Stanley Chen Xi, landscape and architecture photographer/Getty Images)](https://www.bing.com/th?id=OHR.DiaBossaNova_PT-BR0445068072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
