@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-28 | [Paesaggio alpino con laghi nel Parco Nazionale del Gran Paradiso, Piemonte – Valle d’Aosta, Italia (© Stefano Zaccaria/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Piedmont_IT-IT1689633679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-27 | [Zoroaster Temple, Parco Nazionale del Grand Canyon, Arizona, USA (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_IT-IT1813827101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-26 | [Foresta di faggi, Belgio (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_IT-IT1757566579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

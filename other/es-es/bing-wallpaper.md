@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-28 | [Búho campestre cazando en la nieve (© Dilshan Muthalib/Getty Images)](https://www.bing.com/th?id=OHR.FlyingOwl_ES-ES3769864994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-27 | [Templo de Zoroastro, Parque Nacional del Gran Cañón, Arizona, EE. UU. (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_ES-ES3550411981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-26 | [Bosque de hayas en Bélgica (© Philippe Moes/Minden Pictures)](https://www.bing.com/th?id=OHR.FrostedBeech_ES-ES3324166189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
