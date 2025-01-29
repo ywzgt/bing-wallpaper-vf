@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-30 | [Dança do dragão, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://www.bing.com/th?id=OHR.LunarDragon_PT-BR5484555441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-29 | [Coruja-do-nabal caçando na neve (© Dilshan Muthalib/Getty Images)](https://www.bing.com/th?id=OHR.FlyingOwl_PT-BR5034009033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-28 | [Templo de Zoroastro, Parque Nacional do Grand Canyon, Arizona, EUA (© Nick Lake/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.CanyonSnow_PT-BR4095354589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
