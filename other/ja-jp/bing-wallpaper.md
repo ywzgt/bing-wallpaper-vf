@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-01 | [ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_JA-JP5870058784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-31 | [モカラ国立公園, 南アフリカ (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_JA-JP5699662720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-30 | [オルデサ・イ・モンテ・ペルディード国立公園, スペイン (© Inaki Relanzon/Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.OrdesaSpain_JA-JP5528658967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
