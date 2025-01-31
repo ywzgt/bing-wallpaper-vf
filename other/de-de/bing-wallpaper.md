@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-31 | [Steppenzebras bei Sonnenaufgang, Mokala-Nationalpark, Südafrika (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_DE-DE9982406079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-30 | [Rolandsbresche, Nationalpark Ordesa y Monte Perdido, Spanien (© Inaki Relanzon/Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.OrdesaSpain_DE-DE0076469296_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-29 | [Drachentanz, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://www.bing.com/th?id=OHR.LunarDragon_DE-DE8035550106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

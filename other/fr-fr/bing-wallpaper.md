@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-31 | [Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_FR-FR3265795603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-30 | [Brèche de Roland, Parc national d'Ordesa et de Monte Perdido, Espagne (© Inaki Relanzon/Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.OrdesaSpain_FR-FR2730396570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-29 | [Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://www.bing.com/th?id=OHR.LunarDragon_FR-FR2196981779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
