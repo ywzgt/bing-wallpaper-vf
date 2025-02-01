@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-01 | [Fortaleza de Königstein, Suiza sajona, Alemania (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ES-ES5179656968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-31 | [Reina del Carnaval de Santa Cruz de Tenerife, España (© DESIREE MARTIN/Getty Images)](https://www.bing.com/th?id=OHR.TenerifeCarnival2025_ES-ES0044754668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-30 | [La Brecha de Rolando, Parque Nacional de Ordesa y Monte Perdido, España (© Inaki Relanzon/Nature Picture Library/Alamy)](https://www.bing.com/th?id=OHR.OrdesaSpain_ES-ES4787929078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
