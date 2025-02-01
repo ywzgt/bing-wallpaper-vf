@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [アルプスマーモット, 米国 ペンシルバニア州 (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_JA-JP6210470300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_JA-JP5870058784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [モカラ国立公園, 南アフリカ (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_JA-JP5699662720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
