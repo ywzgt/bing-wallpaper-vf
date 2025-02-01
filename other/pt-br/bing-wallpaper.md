@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [Fortaleza de Königstein, Suíça Saxônica, Alemanha (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_PT-BR1918003358_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [Zebras-da-planície ao amanhecer, Parque Nacional de Mokala, África do Sul (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_PT-BR0179432464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [Vista de Baía dos Porcos em Fernando de Noronha (© Reuber Duarte/Getty Images)](https://www.bing.com/th?id=OHR.BaiadosPorcos_PT-BR0532087075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
