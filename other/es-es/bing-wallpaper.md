@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [Joven marmota alpina (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_ES-ES5324822318_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [Fortaleza de Königstein, Suiza sajona, Alemania (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ES-ES5179656968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [Reina del Carnaval de Santa Cruz de Tenerife, España (© DESIREE MARTIN/Getty Images)](https://www.bing.com/th?id=OHR.TenerifeCarnival2025_ES-ES0044754668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [Portofino, Liguria, Italia (© Haveseen/Shutterstock)](https://www.bing.com/th?id=OHR.PortofinoMarathon_IT-IT1822275112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [Fortezza di Königstein, Svizzera sassone, Germania (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_IT-IT3107556613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [Zebre, Parco Nazionale Mokala, Sudafrica (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_IT-IT2615421914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

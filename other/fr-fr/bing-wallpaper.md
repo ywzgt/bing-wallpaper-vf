@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-02 | [Marmotte des Alpes (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_FR-FR4256858728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-01 | [Cerf élaphe, forêt de Rambouillet,  Île-de-France (© Nicolas Le Boulanger/500px/Getty Image)](https://www.bing.com/th?id=OHR.DeerForest_FR-FR6532705920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-31 | [Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_FR-FR3265795603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
