@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-04 | [Viaduto Ribblehead e montanha de Ingleborough, North Yorkshire, Inglaterra, Reino Unido (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_PT-BR4711325256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-03 | [Jovem marmota alpina (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_PT-BR3852598184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-02 | [Fortaleza de Königstein, Suíça Saxônica, Alemanha (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_PT-BR1918003358_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
