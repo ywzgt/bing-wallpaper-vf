@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-04 | [犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YukiMatsuri2025_JA-JP6765872006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-03 | [梅の花で吸蜜するメジロ (© yankane/shutterstock)](https://www.bing.com/th?id=OHR.Risshun2025_JA-JP6529014440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-02 | [アルプスマーモット, 米国 ペンシルバニア州 (© Jonas Fichtner-Pflaum/Getty Images)](https://www.bing.com/th?id=OHR.AustriaMarmot_JA-JP6210470300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
