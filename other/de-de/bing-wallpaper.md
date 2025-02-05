@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-05 | [Scottish Blackface-Schaf, Aberdeenshire, Schottland (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_DE-DE0235532190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-04 | [Goldene Brücke, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_DE-DE8445682123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-03 | [Ribblehead-Viadukt und Ingleborough-Berg, North Yorkshire, England, UK (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_DE-DE0601273840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
