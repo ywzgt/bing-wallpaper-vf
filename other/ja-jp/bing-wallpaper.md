@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-06 | [アーチウェイ諸島, ニュージーランド (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_JA-JP9113396067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-05 | [ブラックフェース, スコットランド  (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_JA-JP7061956700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-04 | [犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.YukiMatsuri2025_JA-JP6765872006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
