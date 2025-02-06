@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-06 | [Archway Islands, Wharariki Beach, Südinsel, Neuseeland (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_DE-DE0573200423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-05 | [Scottish Blackface-Schaf, Aberdeenshire, Schottland (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_DE-DE0235532190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-04 | [Goldene Brücke, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_DE-DE8445682123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-06 | [Isole Archway, Spiaggia di Wharariki, Isola del Sud, Nuova Zelanda (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_IT-IT3025215693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-05 | [Pecore scozzesi Blackface, Aberdeenshire, Scozia (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_IT-IT3106374740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-04 | [Ponte d'oro, colline di Bà Nà, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_IT-IT2971017940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
