@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-07 | [Ilha Archway, Praia Wharariki, Ilha Sul, Nova Zelândia (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_PT-BR7385955178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-06 | [Ovelha Blackface Escocesa, Aberdeenshire, Escócia (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_PT-BR7044869693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-05 | [Ponte Dourada, Bà Nà Hills, Da Nang, Vietnã (© Hien Phung Thu/Shutterstock)](https://www.bing.com/th?id=OHR.GoldenBridge_PT-BR5001907624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
