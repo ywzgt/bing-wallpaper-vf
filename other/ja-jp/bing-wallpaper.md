@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-07 | [トロンハイム, ノルウェー (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_JA-JP1977029810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-06 | [アーチウェイ諸島, ニュージーランド (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_JA-JP9113396067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-05 | [ブラックフェース, スコットランド  (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_JA-JP7061956700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
