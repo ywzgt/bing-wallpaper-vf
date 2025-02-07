@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-07 | [Ora blu a Trondheim, Norvegia (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_IT-IT0515535753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-06 | [Isole Archway, Spiaggia di Wharariki, Isola del Sud, Nuova Zelanda (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_IT-IT3025215693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-05 | [Pecore scozzesi Blackface, Aberdeenshire, Scozia (© Mike Powles/Getty Images)](https://www.bing.com/th?id=OHR.ScottishSheep_IT-IT3106374740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
