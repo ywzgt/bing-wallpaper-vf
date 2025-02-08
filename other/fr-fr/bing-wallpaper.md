@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-08 | [Tours médiévales, Mestia, Haut-Svaneti, Géorgie (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_FR-FR5675454162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-07 | [Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LouvreRainyDay_FR-FR9439129374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-06 | [Îles Archway, plage de Wharariki, Tasman, Nouvelle-Zélande (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_FR-FR6142596123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

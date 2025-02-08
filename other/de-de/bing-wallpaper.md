@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-08 | [Mittelalterliche Türme in Mestia, Oberswanetien, Georgien (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_DE-DE7103298381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-07 | [Blaue Stunde in Trondheim, Norwegen (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_DE-DE6219110826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-06 | [Archway Islands, Wharariki Beach, Südinsel, Neuseeland (© Francesco Vaninetti/AWL/plainpicture)](https://www.bing.com/th?id=OHR.WhararikiBeach_DE-DE0573200423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
