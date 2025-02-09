@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-09 | [Alstrom Point, Lago Powell, Utah, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AlstromPoint_IT-IT1127096784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-08 | [Torri medievali a Mestia, Svanezia, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_IT-IT0719958038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-07 | [Ora blu a Trondheim, Norvegia (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_IT-IT0515535753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-09 | [Torres medievales en Mestia, Mingrelia-Alta Esvanetia, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_ES-ES9495722875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-08 | [La Alhambra vista desde el Albaicín, Granada, Andalucía, España (© Antonio Violi/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PremiosGoya_ES-ES9389747120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-07 | [Hora azul en Trondheim, Noruega (© Jeanny Mueller/Getty Images)](https://www.bing.com/th?id=OHR.BlueNorway_ES-ES9259858969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
