@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-10 | [Installazione artistica di ombrelli, Borough Market, Londra, Inghilterra (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_IT-IT1405781799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-09 | [Alstrom Point, Lago Powell, Utah, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AlstromPoint_IT-IT1127096784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-08 | [Torri medievali a Mestia, Svanezia, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_IT-IT0719958038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

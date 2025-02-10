@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-11 | [Art installation of umbrellas, Borough Market, London, England (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_EN-GB6243466764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-10 | [Alstrom Point, Lake Powell, Utah, United States (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AlstromPoint_EN-GB5387097476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-09 | [Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://www.bing.com/th?id=OHR.SnowySvaneti_EN-GB4839188622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
