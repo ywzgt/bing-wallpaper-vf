@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-11 | [Porto di Sanremo, Imperia, Liguria (© Pictures-and-Pixels/iStock/Getty images)](https://www.bing.com/th?id=OHR.PanoramaSanremoFestival_IT-IT5283578356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-10 | [Installazione artistica di ombrelli, Borough Market, Londra, Inghilterra (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_IT-IT1405781799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-09 | [Alstrom Point, Lago Powell, Utah, USA (© T.M. Schultze/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AlstromPoint_IT-IT1127096784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

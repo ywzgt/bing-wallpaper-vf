@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-12 | [ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_JA-JP3305613182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-11 | [春の訪れを告げる梅の花, 茨城県 水戸市 (© dekitateyo/shutterstock)](https://www.bing.com/th?id=OHR.KairakuUme2025_JA-JP3144342607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-10 | [バラマーケット, イギリス ロンドン (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_JA-JP2687142465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
