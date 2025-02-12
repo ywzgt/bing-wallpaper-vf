@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-12 | [Iguanas marinas, Islas Galápagos, Ecuador (© helovi/Getty Images)](https://www.bing.com/th?id=OHR.GalapagosIguana_ES-ES9781681264_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-11 | [Grutas de Yungang, Datong, provincia de Shanxi, China (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_ES-ES9694315972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-10 | [Instalación artística de paraguas, Borough Market, Londres, Inglaterra (© Malcolm P Chapman/Getty Images)](https://www.bing.com/th?id=OHR.UmbrellaDay_ES-ES9589999908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
