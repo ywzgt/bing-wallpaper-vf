@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-13 | [ティレル湖, オーストラリア ビクトリア州 (© Monica Bertolazzi/Getty Images)](https://www.bing.com/th?id=OHR.LakeTyrrell_JA-JP3510337163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-12 | [ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.PolarBearSwim_JA-JP3305613182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-11 | [春の訪れを告げる梅の花, 茨城県 水戸市 (© dekitateyo/shutterstock)](https://www.bing.com/th?id=OHR.KairakuUme2025_JA-JP3144342607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
