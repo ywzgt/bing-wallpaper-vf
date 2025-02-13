@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-13 | [Lago Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://www.bing.com/th?id=OHR.LakeTyrrell_IT-IT6174481161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-12 | [Iguane marine, Isole Galápagos, Ecuador (© helovi/Getty Images)](https://www.bing.com/th?id=OHR.GalapagosIguana_IT-IT5515786764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-11 | [Porto di Sanremo, Imperia, Liguria (© Pictures-and-Pixels/iStock/Getty images)](https://www.bing.com/th?id=OHR.PanoramaSanremoFestival_IT-IT5283578356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
