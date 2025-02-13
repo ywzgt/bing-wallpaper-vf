@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-14 | [Lago Tyrrell, Victoria, Austrália (© Monica Bertolazzi/Getty Images)](https://www.bing.com/th?id=OHR.LakeTyrrell_PT-BR2696993841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-13 | [Iguanas-marinhas, Ilhas Galápagos, Equador (© helovi/Getty Images)](https://www.bing.com/th?id=OHR.GalapagosIguana_PT-BR2320828755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-12 | [Grutas de Yungang, Datong, província de Xanxim, China (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_PT-BR2035290844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
