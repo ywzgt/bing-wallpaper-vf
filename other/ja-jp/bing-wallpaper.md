@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-16 | [ザトウクジラの親子, トンガ (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_JA-JP4098515390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-15 | [三十槌の氷柱, 埼玉県 秩父市 (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_JA-JP3931043311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-14 | [マゼランペンギンのペア, イギリス (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenguinLove_JA-JP3730970592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
