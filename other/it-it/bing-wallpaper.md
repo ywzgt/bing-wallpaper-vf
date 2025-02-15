@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-15 | [Stalattiti di ghiaccio di Misotsuchi, Chichibu, Giappone (© watayu0821/shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_IT-IT7855483347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-14 | [Maschera veneziana con gondole sul retro, Venezia, Veneto (© Chiara Cattaruzzi Photography/Moment/Getty Images)](https://www.bing.com/th?id=OHR.TypicalVenetianRedGold_IT-IT4023171951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-13 | [Lago Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://www.bing.com/th?id=OHR.LakeTyrrell_IT-IT6174481161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
