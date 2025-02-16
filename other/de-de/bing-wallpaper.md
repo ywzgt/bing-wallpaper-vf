@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-16 | [Buckelwal-Mutter und Kalb, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_DE-DE2752468261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-15 | [Eiszapfen von Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_DE-DE8865716337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-14 | [Zwei Magellanpinguine, Falklandinseln (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenguinLove_DE-DE2328190080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

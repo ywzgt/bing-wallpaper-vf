@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-16 | [Madre y cría de ballena jorobada, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_ES-ES0131114853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-15 | [Carámbanos de Misotsuchi, Chichibu, Japón (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_ES-ES0046918328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-14 | [Dos pingüinos de Magallanes, Islas Malvinas (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.PenguinLove_ES-ES9960991342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
