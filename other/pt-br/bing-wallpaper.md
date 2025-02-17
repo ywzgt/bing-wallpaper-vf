@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [Coll d'Ares, Pirineus Catalães, Espanha (© CRISTIAN IONUT ZAHARIA/Shutterstock)](https://www.bing.com/th?id=OHR.CatalanPyrenees_PT-BR8374328758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Mãe e filhote de baleia-jubarte, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_PT-BR8222764895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [Pingentes de gelo em Misotsuchi, Chichibu, Japão (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_PT-BR6356787037_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
