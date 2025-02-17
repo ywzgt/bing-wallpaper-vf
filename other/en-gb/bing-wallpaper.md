@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [Fireworks at Clifford's Tower during the Jorvik Viking Festival (© Ian Forsyth/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.JorvikVikingFestival2025_EN-GB9947059839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_EN-GB6474861873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [A kingfisher perched on a branch (© NJphoto/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2025_EN-GB9755191158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
