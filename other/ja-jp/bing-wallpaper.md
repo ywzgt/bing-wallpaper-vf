@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-19 | [ユーラシアカワウソ, オランダ (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_JA-JP4600805047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-18 | [グレート・ブルーホール, ベリーズ (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_JA-JP4446467431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-17 | [雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_JA-JP4266553262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
