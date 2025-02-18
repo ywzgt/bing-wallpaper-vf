@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [El Gran Agujero Azul, costa de Belice (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_ES-ES0416994585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Coll d'Ares, Pirineo Catalán, España (© CRISTIAN IONUT ZAHARIA/Shutterstock)](https://www.bing.com/th?id=OHR.CatalanPyrenees_ES-ES0333843430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [Madre y cría de ballena jorobada, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_ES-ES0131114853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

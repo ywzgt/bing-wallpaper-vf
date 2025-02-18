@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_DE-DE7316744984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Coll d’Ares, Katalanische Pyrenäen (© CRISTIAN IONUT ZAHARIA/Shutterstock)](https://www.bing.com/th?id=OHR.CatalanPyrenees_DE-DE2190888967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [Buckelwal-Mutter und Kalb, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_DE-DE2752468261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

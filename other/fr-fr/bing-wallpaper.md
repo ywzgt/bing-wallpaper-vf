@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [Le Grand Trou Bleu, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_FR-FR7135169329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Stalactites de Misotsuchi, Chichibu, Japon (© watayu0821/Shutterstock)](https://www.bing.com/th?id=OHR.Misotsuchi2025_FR-FR1372228903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [Baleine à bosse et son baleineau, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_FR-FR6742238424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

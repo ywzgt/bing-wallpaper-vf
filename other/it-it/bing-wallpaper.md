@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-18 | [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_IT-IT5720382841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-17 | [Coll d'Ares, Pirenei Catalani, Spagna (© CRISTIAN IONUT ZAHARIA/Shutterstock)](https://www.bing.com/th?id=OHR.CatalanPyrenees_IT-IT5630945736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-16 | [Megattera con prole, Tonga (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.HumpbackMother_IT-IT2396976116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
