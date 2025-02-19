@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-20 | [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_EN-GB7580568123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-19 | [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_EN-GB7414492800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-18 | [Fireworks at Clifford's Tower during the Jorvik Viking Festival (© Ian Forsyth/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.JorvikVikingFestival2025_EN-GB9947059839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
