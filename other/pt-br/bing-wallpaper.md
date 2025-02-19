@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-20 | [Lontra-européia, Lelystad, Países Baixos (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_PT-BR4179764708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-19 | [Grande Buraco Azul, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_PT-BR3865302067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-18 | [Coll d'Ares, Pirineus Catalães, Espanha (© CRISTIAN IONUT ZAHARIA/Shutterstock)](https://www.bing.com/th?id=OHR.CatalanPyrenees_PT-BR8374328758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
