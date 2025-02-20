@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-20 | [Ciervo rojo, Canadá (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ES-ES0627757323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-19 | [Nutria de río europea, Lelystad, Países Bajos (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_ES-ES0502740204_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-18 | [El Gran Agujero Azul, costa de Belice (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_ES-ES0416994585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

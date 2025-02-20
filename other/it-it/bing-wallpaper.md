@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-20 | [Cervo rosso, Canada (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_IT-IT6705566058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-19 | [Grotte di Yungang, Datong, provincia di Shanxi, Cina (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_IT-IT7896461151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-18 | [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://www.bing.com/th?id=OHR.BlueBelize_IT-IT5720382841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
