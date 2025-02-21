@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-22 | [ゲートウェイ・アーチ, 米国 ミズーリ州 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_JA-JP0218152600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-21 | [チャンパカ・サラシール, インド カルナータカ州 (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_JA-JP0008600806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-20 | [ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_JA-JP4771104579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
