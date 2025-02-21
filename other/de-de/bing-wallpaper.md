@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-21 | [Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.GoldfinchSunflower_DE-DE5115131607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-20 | [Rothirsch, Kanada (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_DE-DE5282411972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-19 | [Europäischer Flussotter, Lelystad, Niederlande (© Ernst Dirksen/Minden Pictures)](https://www.bing.com/th?id=OHR.IceHoleOtter_DE-DE5011760287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

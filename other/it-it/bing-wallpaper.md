@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-21 | [Castello di Mornico Losana, Mornico Losana, Provincia di Pavia, Lombardia (© Massimo Ripani/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.BattagliaDiPavia_IT-IT9266388577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-20 | [Cervo rosso, Canada (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_IT-IT6705566058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-19 | [Grotte di Yungang, Datong, provincia di Shanxi, Cina (© Eric Yang/Getty Images)](https://www.bing.com/th?id=OHR.YungangGrottoes_IT-IT7896461151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
