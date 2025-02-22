@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-23 | [Atardecer no Jardim Botânico de Curitiba, Paraná (© advjmneto/Getty Images)](https://www.bing.com/th?id=OHR.PalaciodeCristalCuritiba_PT-BR6693947310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-22 | [Lago Champaka Sarasi perto de Shimoga, Carnataca, Índia (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_PT-BR6994277285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-21 | [Cervos-vermelhos, Canadá (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_PT-BR4320223616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
