@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-22 | [Estación de esquí Baqueira Beret, Alto Arán, Lérida, Cataluña, España (© Amazing Travels/Shutterstock)](https://www.bing.com/th?id=OHR.SkiResortBaqueiraBeret_ES-ES4946875842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-21 | [Estanque Champaka Sarasi cerca de Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_ES-ES4842882086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-20 | [Ciervo rojo, Canadá (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_ES-ES0627757323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-22 | [Gateway Arch und St. Louis, Missouri, USA (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_DE-DE5694184268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-21 | [Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.GoldfinchSunflower_DE-DE5115131607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-20 | [Rothirsch, Kanada (© Delbars/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDeer_DE-DE5282411972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
