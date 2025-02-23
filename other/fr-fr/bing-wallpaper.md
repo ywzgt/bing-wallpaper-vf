@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-23 | [Lever de soleil au mont Fuji, Lac Kawaguchi, Japon (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_FR-FR3629705815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-22 | [Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)hotography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_FR-FR2567169417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-21 | [Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)](https://www.bing.com/th?id=OHR.MentonFestival_FR-FR5996828688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

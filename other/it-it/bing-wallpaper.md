@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-23 | [Monte Fuji all'alba, Lago Kawaguchi, Giappone (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_IT-IT9440772477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-22 | [Arco della Porta e St. Louis, Missouri, USA (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_IT-IT9390622803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-21 | [Castello di Mornico Losana, Mornico Losana, Provincia di Pavia, Lombardia (© Massimo Ripani/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.BattagliaDiPavia_IT-IT9266388577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
