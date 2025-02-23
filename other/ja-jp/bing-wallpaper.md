@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-24 | [リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_JA-JP0769503543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-23 | [河口湖からの富士山, 山梨県 南都留郡 (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_JA-JP0451320828_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-22 | [ゲートウェイ・アーチ, 米国 ミズーリ州 (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_JA-JP0218152600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
