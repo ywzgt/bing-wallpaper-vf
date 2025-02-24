@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-25 | [Chocos-gigantes no Golfo de Spencer, perto de Whyalla, Austrália Meridional (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_PT-BR7956763969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-24 | [Monte Fuji ao amanhecer, Lago Kawaguchi, Japão (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_PT-BR7467420125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-23 | [Atardecer no Jardim Botânico de Curitiba, Paraná (© advjmneto/Getty Images)](https://www.bing.com/th?id=OHR.PalaciodeCristalCuritiba_PT-BR6693947310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
