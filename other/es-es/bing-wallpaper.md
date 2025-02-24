@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-24 | [Grupo de sepias gigantes en el golfo de Spencer, frente a Whyalla, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_ES-ES5593543587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-23 | [Monte Fuji al amanecer, lago Kawaguchi, Japón (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_ES-ES5111934664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-22 | [Estación de esquí Baqueira Beret, Alto Arán, Lérida, Cataluña, España (© Amazing Travels/Shutterstock)](https://www.bing.com/th?id=OHR.SkiResortBaqueiraBeret_ES-ES4946875842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

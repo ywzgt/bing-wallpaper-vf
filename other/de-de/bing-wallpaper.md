@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-24 | [Gruppe von Riesensepien im Spencer-Golf vor Whyalla, Südaustralien (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_DE-DE6436813426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-23 | [Fuji bei Sonnenaufgang, Kawaguchi-See, Japan (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_DE-DE8213371470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-22 | [Gateway Arch und St. Louis, Missouri, USA (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.StLouisArch_DE-DE5694184268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
