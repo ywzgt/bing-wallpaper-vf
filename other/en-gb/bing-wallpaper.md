@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-26 | [Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_EN-GB1524631248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-25 | [Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_EN-GB1252194719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-24 | [Mount Fuji, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_EN-GB0934318884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

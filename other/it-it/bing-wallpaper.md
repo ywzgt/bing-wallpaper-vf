@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-25 | [Galleria Vittorio Emanuele II al tramonto, Milano, Lombardia (© Marco Bottigelli/Moment/Getty Images)](https://www.bing.com/th?id=OHR.MilanFashionWeek_IT-IT9622143512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-24 | [Pinnacoli di arenaria, Parco Nazionale del Bryce Canyon, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_IT-IT9552861475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-23 | [Monte Fuji all'alba, Lago Kawaguchi, Giappone (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_IT-IT9440772477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

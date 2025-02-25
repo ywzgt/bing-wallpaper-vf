@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-25 | [Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.MillauBridge_FR-FR5934709762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-24 | [Groupe de seiches géantes dans le golfe Spencer, au large de Whyalla, Australie-Méridionale (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_FR-FR8590035625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-23 | [Lever de soleil au mont Fuji, Lac Kawaguchi, Japon (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.MtFujiSunrise_FR-FR3629705815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
