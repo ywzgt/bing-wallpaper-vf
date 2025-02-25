@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-26 | [ストーカー城, スコットランド (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_JA-JP1121064297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-25 | [ブライスキャニオン国立公園, 米国 ユタ州 (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_JA-JP0914701137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-24 | [リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.RibbleheadViaduct_JA-JP0769503543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
