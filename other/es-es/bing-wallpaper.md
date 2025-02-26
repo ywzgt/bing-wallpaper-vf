@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-26 | [Castillo Stalker en Loch Laich, Argyll, Escocia (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_ES-ES5913378191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-25 | [Chimeneas de hada, Parque Nacional Bryce Canyon, Utah, EE. UU. (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_ES-ES5738568418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-24 | [Grupo de sepias gigantes en el golfo de Spencer, frente a Whyalla, Australia (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_ES-ES5593543587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
