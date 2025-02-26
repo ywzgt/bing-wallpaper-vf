@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-27 | [Castelo de Stalker no Lago Laich, Argyll, Escócia (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_PT-BR7662239404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-26 | [Hoodoos de arenito, Parque Nacional de Bryce Canyon, Utah, EUA (© Stephen Matera/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BryceHoodoos_PT-BR6923982183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-25 | [Chocos-gigantes no Golfo de Spencer, perto de Whyalla, Austrália Meridional (© Gary Bell/Minden Pictures)](https://www.bing.com/th?id=OHR.GiantCuttlefish_PT-BR7956763969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
