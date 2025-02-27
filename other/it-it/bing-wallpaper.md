@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-27 | [Cucciolo di orso polare, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_IT-IT9763636877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-26 | [Castello di Stalker sul Loch Laich, Argyll, Scozia (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_IT-IT3265254164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-25 | [Galleria Vittorio Emanuele II al tramonto, Milano, Lombardia (© Marco Bottigelli/Moment/Getty Images)](https://www.bing.com/th?id=OHR.MilanFashionWeek_IT-IT9622143512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
