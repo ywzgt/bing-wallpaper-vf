@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-28 | [タクツァン僧院, ブータン (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_JA-JP1458270567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-27 | [雪の中のホッキョクグマの子, カナダ マニトバ州 (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_JA-JP1257956041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-26 | [ストーカー城, スコットランド (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_JA-JP1121064297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
