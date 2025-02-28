@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-28 | [Iznájar, Andalucía, España (© Miguel Sotomayor/Getty Images)](https://www.bing.com/th?id=OHR.AndalusianStreet_ES-ES6181340886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-27 | [Cachorro de oso polar, Churchill, Manitoba, Canadá (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_ES-ES6085095422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-26 | [Castillo Stalker en Loch Laich, Argyll, Escocia (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_ES-ES5913378191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

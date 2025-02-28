@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-02-28 | [Kloster Taktshang Palphug, Bhutan (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_DE-DE8934073002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-27 | [Hohenzollernbrücke mit dem Kölner Dom und dem Rhein bei Sonnenuntergang in Köln (© Prasit Rodphan/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.CologneNight_DE-DE4660512744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-26 | [Castle Stalker am Loch Laich, Argyll, Schottland (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_DE-DE7352876454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
