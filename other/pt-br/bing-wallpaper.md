@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-01 | [Mosteiro Taktsang Palphug, Butão (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_PT-BR9663296659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-28 | [Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_PT-BR7907251443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-27 | [Castelo de Stalker no Lago Laich, Argyll, Escócia (© WLDavies/Getty Images)](https://www.bing.com/th?id=OHR.ArgyllStalker_PT-BR7662239404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
