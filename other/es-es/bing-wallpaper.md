@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-01 | [Aurora boreal sobre la Isla Spirit en el Lago Maligne, Parque Nacional Jasper, Canadá (© Mumemories/Getty Images)](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ES-ES6288170690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-02-28 | [Iznájar, Andalucía, España (© Miguel Sotomayor/Getty Images)](https://www.bing.com/th?id=OHR.AndalusianStreet_ES-ES6181340886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-27 | [Cachorro de oso polar, Churchill, Manitoba, Canadá (© Eric Baccega/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.PolarCub_ES-ES6085095422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
