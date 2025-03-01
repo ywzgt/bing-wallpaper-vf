@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-02 | [ミナミキバシコサイチョウ, 南アフリカ (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.HornbillPair_JA-JP1960738768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-01 | [ブルー・マウンテンズ国立公園, オーストラリア ニューサウスウェールズ州 (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_JA-JP1746182669_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-28 | [タクツァン僧院, ブータン (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_JA-JP1458270567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
