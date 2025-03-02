@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-02 | [Alberi di eucalipto, Megalong Valley, Parco Nazionale delle Blue Mountains, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_IT-IT0078107703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-01 | [Aurora boreale sopra Spirit Island sul lago Maligne, Parco Nazionale di Jasper, Canada (© Mumemories/Getty Images)](https://www.bing.com/th?id=OHR.MaligneLakeJasper_IT-IT4481289877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-02-28 | [Monastero di Taktsang Palphug, Bhutan (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_IT-IT9860257157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
