@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-04 | [Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.HornbillPair_EN-GB2589125332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-03 | [Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_EN-GB2410685823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-02 | [St Davids Cathedral, St Davids, Pembrokeshire, Wales (© Steve Taylor ARPS/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DavidsCathedralGB_EN-GB8444575423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

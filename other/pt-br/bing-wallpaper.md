@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-03 | [��rvores de eucalipto, Vale Megalong, Parque Nacional das Blue Moutains, Nova Gales do Sul, Austrália (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_PT-BR0170958199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-03 | [Árvores de eucalipto, Vale Megalong, Parque Nacional das Blue Moutains, Nova Gales do Sul, Austrália (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_PT-BR0170958199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-02 | [Aurora boreal sobre a Ilha Spirit no Lago Maligne, Parque Nacional Jasper, Canadá (© Mumemories/Getty Images)](https://www.bing.com/th?id=OHR.MaligneLakeJasper_PT-BR9833593341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

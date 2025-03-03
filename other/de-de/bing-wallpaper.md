@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-03 | [Südliche Gelbschnabeltoko im Kruger-Nationalpark, Südafrika (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.HornbillPair_DE-DE7709056749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-02 | [Eukalyptusbäume, Megalong Valley, Blue-Mountains-Nationalpark, Australien (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_DE-DE6075329561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-01 | [Nordlicht über Spirit Island am Maligne Lake im Jasper-Nationalpark, Kanada (© Mumemories/Getty Images)](https://www.bing.com/th?id=OHR.MaligneLakeJasper_DE-DE5640949329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
