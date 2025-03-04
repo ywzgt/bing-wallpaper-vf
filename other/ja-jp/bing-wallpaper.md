@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-05 | [カオソック国立公園, タイ (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_JA-JP0039497594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-04 | [ジャクソン・スクウェア, 米国 ルイジアナ州 (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_JA-JP2336854900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-03 | [かぐやびな, 兵庫県 上郡町 (© Buddhika Weerasinghe/特派員/Getty Images)](https://www.bing.com/th?id=OHR.Hinamatsuri2025_JA-JP2146557406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
