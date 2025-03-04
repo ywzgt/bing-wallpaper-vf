@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-04 | [Jackson Square, Nouvelle-Orléans, Louisiane, États-Unis (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_FR-FR5010820128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-03 | [Calaos à bec jaune du sud dans le parc national Kruger, Afrique du Sud (© Richard Du Toit/Minden Pictures)](https://www.bing.com/th?id=OHR.HornbillPair_FR-FR3828518426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-02 | [Eucalyptus, vallée de Megalong, parc national des Blue Mountains, Australie (© Andrew Peacock/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.EucalyptusForest_FR-FR3221720443_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
