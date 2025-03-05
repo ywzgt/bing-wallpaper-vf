@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-06 | [バレー・オブ・ファイヤー州立公園, 米国 ネバダ州 (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_JA-JP0367669044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-05 | [カオソック国立公園, ���イ (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_JA-JP0039497594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-05 | [カオソック国立公園, タイ (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_JA-JP0039497594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
