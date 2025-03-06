@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-06 | [Mouflon du désert dans le parc d'État Valley of Fire, Nevada, États-Unis (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_FR-FR5758477568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-05 | [Vue aérienne du parc national de Khao Sok, Surat Thani, Thaïlande (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_FR-FR5557578896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-04 | [Jackson Square, Nouvelle-Orléans, Louisiane, États-Unis (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_FR-FR5010820128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

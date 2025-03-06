@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-06 | [Wüsten-Dickhornschafe im Valley of Fire State Park, Nevada, USA (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_DE-DE7640201407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-05 | [Luftaufnahme des Khao Sok Nationalparks, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_DE-DE7389163324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-04 | [Jackson Square, New Orleans, Louisiana, USA (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_DE-DE3939287021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

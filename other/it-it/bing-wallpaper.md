@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-06 | [Stagno di Champaka Sarasi vicino a Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_IT-IT6538793114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-05 | [Vista aerea del Parco Nazionale di Khao Sok, Surat Thani, Thailandia (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_IT-IT0062631130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-04 | [Jackson Square, New Orleans, Louisiana, USA (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_IT-IT5960330110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
