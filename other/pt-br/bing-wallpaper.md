@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-07 | [Carneiros-selvagens no Parque Estadual Vale do Fogo, Nevada, EUA (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_PT-BR0962333839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-06 | [Vista aérea do Parque Nacional Khao Sok, Surat Thani, Tailândia (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_PT-BR0610691802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-05 | [Jackson Square, Nova Orleans, Louisiana, EUA (© SeanPavonePhoto/Getty Images)](https://www.bing.com/th?id=OHR.MardiGrasJackson_PT-BR0441776263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
