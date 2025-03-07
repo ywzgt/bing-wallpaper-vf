@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-07 | [Flores de ciruelo, China (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_ES-ES6616013602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-06 | [Borrego cimarrón del desierto en el Parque Estatal Valle del Fuego, Nevada, EE. UU. (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_ES-ES6947397352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-05 | [Vista aérea del Parque Nacional Khao Sok, Surat Thani, Tailandia (© Peetatham Kongkapech/Getty Images)](https://www.bing.com/th?id=OHR.SuratThani_ES-ES6760904041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
