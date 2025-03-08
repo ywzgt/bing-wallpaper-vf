@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-08 | [Statua della Fearless Girl di fronte alla Borsa di New York, New York City, USA (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_IT-IT9544136799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-07 | [Fiori di pruno, Cina (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_IT-IT9649247802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-06 | [Stagno di Champaka Sarasi vicino a Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.ChampakaSarasi_IT-IT6538793114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

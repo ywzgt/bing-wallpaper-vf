@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-08 | [Fearless Girl-Statue vor der New Yorker Börse, New York City, USA (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_DE-DE2789139190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-07 | [Pflaumenblüten, China (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_DE-DE7033959973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-06 | [Wüsten-Dickhornschafe im Valley of Fire State Park, Nevada, USA (© Rachid Dahnoun/Cavan Images)](https://www.bing.com/th?id=OHR.NevadaBigHorns_DE-DE7640201407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
