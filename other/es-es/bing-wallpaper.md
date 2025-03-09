@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-09 | [El Templo de Saturno en el Foro Romano, Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ForumRomanum_ES-ES7963502187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-08 | [Escultura “Niña sin miedo” frente a la Bolsa de Nueva York, Nueva York, EE. UU. (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_ES-ES6846993796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-07 | [Flores de ciruelo, China (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_ES-ES6616013602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
