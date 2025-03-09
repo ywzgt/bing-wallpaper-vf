@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-10 | [Torre do Relógio de São Marcos, Veneza, Itália (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_PT-BR6894860611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-09 | [Estátua da Fearless Girl diante da Bolsa de Valores de Nova York, EUA (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_PT-BR2238848436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-08 | [Flores de ameixeira, China (© zhikun sun/Getty Images)](https://www.bing.com/th?id=OHR.PlumBlossom_PT-BR9744325235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
