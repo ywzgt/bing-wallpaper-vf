@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-11 | [追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.TohokuEarthquake2025_JA-JP8965651144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-10 | [パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)](https://www.bing.com/th?id=OHR.PandaSnow_JA-JP3991253092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-09 | [サン・マルコ時計塔, イタリア (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_JA-JP3693788365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
