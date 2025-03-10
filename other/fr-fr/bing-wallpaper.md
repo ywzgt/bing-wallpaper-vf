@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-10 | [Lion au repos, parc national Queen Elizabeth, Ouganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_FR-FR6791104694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-09 | [Martin-pêcheur d'Europe sur une branche (© Javier Fernández Sánchez/Getty Images)](https://www.bing.com/th?id=OHR.kingfisherFr_FR-FR6370911716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-08 | [Statue « Fearless Girl » face à Wall Street, New York, États-Unis (© JOHANNES EISELE/AFP via Getty Images)](https://www.bing.com/th?id=OHR.FearlessWomen_FR-FR5893935829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
