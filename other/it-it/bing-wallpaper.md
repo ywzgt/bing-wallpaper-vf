@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-11 | [Broken Beach, Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_IT-IT9952682567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-10 | [Leone che dorme, Ishasha, Parco Nazionale Queen Elizabeth, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_IT-IT9842565728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-09 | [Vista su Torino, Piemonte (© Fabio Lamanna/Getty Images)](https://www.bing.com/th?id=OHR.WinterGamesTurin_IT-IT9894957082_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

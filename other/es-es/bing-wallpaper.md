@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-11 | [Playa Rota en Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_ES-ES7408212429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-10 | [Un león durmiendo en el sector de Ishasha, Parque nacional de la Reina Isabel, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_ES-ES7306945095_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-09 | [El Templo de Saturno en el Foro Romano, Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ForumRomanum_ES-ES7963502187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

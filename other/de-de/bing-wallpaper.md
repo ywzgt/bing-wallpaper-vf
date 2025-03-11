@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-11 | [Broken Beach in Nusa Penida, Bali, Indonesien (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_DE-DE3430606232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-10 | [Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_DE-DE3110844323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-09 | [Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.BavarianAlpsMariaGern_DE-DE4506132433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
