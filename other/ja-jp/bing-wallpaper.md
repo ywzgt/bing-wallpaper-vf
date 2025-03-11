@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-12 | [東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Omizutori2025_JA-JP2990990687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-11 | [追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.TohokuEarthquake2025_JA-JP8965651144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-10 | [パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)](https://www.bing.com/th?id=OHR.PandaSnow_JA-JP3991253092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
