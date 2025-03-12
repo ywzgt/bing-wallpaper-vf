@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-12 | [Schloss Sully-sur-Loire, Centre-Val de Loire, Frankreich (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_DE-DE3739517283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-11 | [Broken Beach in Nusa Penida, Bali, Indonesien (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_DE-DE3430606232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-10 | [Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)](https://www.bing.com/th?id=OHR.NappingLion_DE-DE3110844323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
