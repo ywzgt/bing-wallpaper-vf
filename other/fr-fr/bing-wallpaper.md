@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-13 | [Fête de Holi à Jaipur, Inde (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_FR-FR7464966633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-12 | [Château de Sully-sur-Loire, Centre-Val de Loire (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_FR-FR7082040465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-11 | [Broken Beach à Nusa Penida, Bali, Indonésie (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_FR-FR6937590982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

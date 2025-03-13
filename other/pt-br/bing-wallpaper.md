@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-14 | [Celebração de Holi em Jaipur, Índia (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_PT-BR8231295539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-13 | [Castelo de Sully-sur-Loire, Centro-Vale do Loire, França (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_PT-BR8314992777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-12 | [Praia Quebrada em Nusa Penida, Bali, Indonésia (© joakimbkk/Getty Images)](https://www.bing.com/th?id=OHR.NusaPenida_PT-BR7092841551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
