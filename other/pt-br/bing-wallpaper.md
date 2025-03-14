@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-15 | [Dólmen de Sorginetxe, País Basco, Álava, Espanha (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_PT-BR6370690979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-14 | [Celebração de Holi em Jaipur, Índia (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_PT-BR8231295539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-13 | [Castelo de Sully-sur-Loire, Centro-Vale do Loire, França (© StockPhotoAstur/Shutterstock)](https://www.bing.com/th?id=OHR.ChateauLoire_PT-BR8314992777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
