@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-15 | [Traje típico de fallera en las Fallas de Valencia, España (© Miguel Sotomayor/Getty Images)](https://www.bing.com/th?id=OHR.FallasSpainWomen_ES-ES9361742240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-14 | [Dolmen de Sorginetxe, País Vasco, Álava, España (© David Herraez Calzada/plainpicture)](https://www.bing.com/th?id=OHR.BasqueDolmen_ES-ES7735714145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-13 | [Celebración de Holi en Jaipur, India (© powerofforever/Getty Images)](https://www.bing.com/th?id=OHR.HoliColors_ES-ES7622213300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
