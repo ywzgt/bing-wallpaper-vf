@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-18 | [Ponte Samuel Beckett, Dublin, Irlanda (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_PT-BR3137652720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-17 | [Filhote de panda-gigante na neve, China (© Cheryl Schneider/Alamy)](https://www.bing.com/th?id=OHR.PandaSnow_PT-BR5155103859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-16 | [Templo de Saturno no Fórum Romano, Roma, Itália (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ForumRomanum_PT-BR5979154220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
