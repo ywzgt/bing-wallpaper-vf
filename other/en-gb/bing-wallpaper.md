@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-19 | [Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SedonaSpring_EN-GB2852810114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-18 | [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_EN-GB2641883580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-17 | [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PandaSnow_EN-GB2411862375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

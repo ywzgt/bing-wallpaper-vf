@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-18 | [Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_FR-FR0140900404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-17 | [Pont Samuel Beckett, Dublin, Irlande (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_FR-FR9410208549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-16 | [Bébé panda géant dans la neige, Chine (© Cheryl Schneider/Alamy)](https://www.bing.com/th?id=OHR.PandaSnow_FR-FR9580239780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
