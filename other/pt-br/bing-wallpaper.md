@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-20 | [Garça-negra caçando com dossel, Parque Nacional de Chobe, Botsuana (© Paul Souders/Minden Pictures)](https://www.bing.com/th?id=OHR.BlackHeron_PT-BR1894971609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-19 | [Formações de rocha vermelha, Sedona, Arizona, EUA (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_PT-BR2515283879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-18 | [Ponte Samuel Beckett, Dublin, Irlanda (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_PT-BR3137652720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
