@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-19 | [La garza de cabeza negra, Parque Nacional Chobe, Botsuana (© Paul Souders/Minden Pictures)](https://www.bing.com/th?id=OHR.BlackHeron_ES-ES8419055943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-18 | [Formaciones rocosas, Sedona, Arizona, EE. UU. (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_ES-ES8257183608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-17 | [Puente Samuel Beckett, Dublín, Irlanda (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_ES-ES8163072684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

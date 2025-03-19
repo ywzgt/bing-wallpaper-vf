@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-19 | [Glockenreiher auf der Jagd, Chobe-Nationalpark, Botswana (© Paul Souders/Minden Pictures)](https://www.bing.com/th?id=OHR.BlackHeron_DE-DE7013473338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-18 | [Rote Felsformationen, Sedona, Arizona, USA (© Jim Ekstrand/Alamy)](https://www.bing.com/th?id=OHR.SedonaSpring_DE-DE6616608162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-17 | [Samuel Beckett Bridge, Dublin, Irland (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BeckettBridge_DE-DE6303850469_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
