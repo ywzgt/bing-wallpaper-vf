@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-20 | [San Quirico d’Orcia, Toscana (© Fabio Muzzi/Connect Images/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PrimaveraToscana_IT-IT0282064526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-19 | [Airone nero a caccia, Parco Nazionale Chobe, Botswana (© Paul Souders/Minden PIctures)](https://www.bing.com/th?id=OHR.BlackHeron_IT-IT9965971040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-18 | [Formazioni rocciose rosse, Sedona, Arizona, USA (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SedonaSpring_IT-IT2929229885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-21 | [Spring daffodils (© LedyX/Shutterstock)](https://www.bing.com/th?id=OHR.SpringDaffodils_EN-GB3144315096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-20 | [Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden PIctures)](https://www.bing.com/th?id=OHR.BlackHeron_EN-GB3002716071_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-19 | [Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.SedonaSpring_EN-GB2852810114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
