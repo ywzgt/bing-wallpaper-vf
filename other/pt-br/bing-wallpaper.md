@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-22 | [Névoa sobre a floresta tropical de terras baixas, Vale de Danum, Sabá, Bornéu, Malásia (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.DanumValley_PT-BR7219382524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-21 | [Barco de pescadores flutuando em um rio durante o pôr do sol (© agustavop/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.Outono2025_PT-BR0841637921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-20 | [Garça-negra caçando com dossel, Parque Nacional de Chobe, Botsuana (© Paul Souders/Minden Pictures)](https://www.bing.com/th?id=OHR.BlackHeron_PT-BR1894971609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
