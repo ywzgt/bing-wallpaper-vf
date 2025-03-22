@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-23 | [アンビルクローラー, 米国 ネブラスカ州 (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_JA-JP9880301157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-22 | [セノーテの水面に咲く睡蓮, メキシコ (© Franco Banfi/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CenoteLilies_JA-JP9666252322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-21 | [ダヌムバレー保護地域, マレーシア サバ州 (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.DanumValley_JA-JP9471621232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
