@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-23 | [Blitze und Gewitterwolken bei Sonnenuntergang in der Nähe von Bowman, Nebraska, USA (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_DE-DE2755671712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-22 | [Seerosen an der Oberfläche des Cenote Nicte-Ha, Tulum, Mexiko (© Franco Banfi/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CenoteLilies_DE-DE2391568700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-21 | [Nebel über dem Tieflandregenwald, Danum-Tal, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.DanumValley_DE-DE2017511677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

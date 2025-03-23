@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-23 | [Fulmini e nubi temporalesche al tramonto vicino a Bowman, Nebraska, USA (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_IT-IT9749175316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-22 | [Ninfee sulla superficie del Cenote Nicte-Ha, Tulum, Messico (© Franco Banfi/NPL/Minden)](https://www.bing.com/th?id=OHR.CenoteLilies_IT-IT2531353898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-21 | [Foresta pluviale di pianura, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.DanumValley_IT-IT2622437428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
