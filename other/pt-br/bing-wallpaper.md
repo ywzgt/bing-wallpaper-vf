@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-24 | [Ponte Hercílio Luz ao pôr do sol, Florianópolis, Brasil (© daniel_wiedemann/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AniversarioFlorianopolis_PT-BR1020574641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-23 | [Vitórias-régias na superfície do Cenote Nicte-Ha, Tulum, México (© Franco Banfi/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.CenoteLilies_PT-BR8794888130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-22 | [Névoa sobre a floresta tropical de terras baixas, Vale de Danum, Sabá, Bornéu, Malásia (© Nick Garbutt/Alamy)](https://www.bing.com/th?id=OHR.DanumValley_PT-BR7219382524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
