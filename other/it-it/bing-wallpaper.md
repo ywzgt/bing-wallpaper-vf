@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-24 | [Piazza Maggiore al sorgere del sole, Bologna, Emilia-Romagna (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.PiazzaBologna_IT-IT4343709340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-23 | [Fulmini e nubi temporalesche al tramonto vicino a Bowman, Nebraska, USA (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_IT-IT9749175316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-22 | [Ninfee sulla superficie del Cenote Nicte-Ha, Tulum, Messico (© Franco Banfi/NPL/Minden)](https://www.bing.com/th?id=OHR.CenoteLilies_IT-IT2531353898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

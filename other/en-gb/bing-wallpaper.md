@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-25 | [Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_EN-GB4487505878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-24 | [Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.NebraskaStorm_EN-GB4330008569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-23 | [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden)](https://www.bing.com/th?id=OHR.CenoteLilies_EN-GB4191838307_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
