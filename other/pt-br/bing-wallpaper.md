@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-26 | [Buraco de Hobbit no set de filmagem de Hobbiton, Waikato, Nova Zelândia (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_PT-BR3505721591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-25 | [Elefante do deserto e filhote se alimentando de capim alto, Namíbia (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_PT-BR3216599628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-24 | [Ponte Hercílio Luz ao pôr do sol, Florianópolis, Brasil (© daniel_wiedemann/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AniversarioFlorianopolis_PT-BR1020574641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
