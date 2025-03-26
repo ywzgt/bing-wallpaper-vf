@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-26 | [Lamantin à Crystal River, Floride, États-Unis (© Stephen Frink/Getty Images)](https://www.bing.com/th?id=OHR.CrystalManatee_FR-FR9678954985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-25 | [Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)](https://www.bing.com/th?id=OHR.ProcrastinationD_FR-FR5977849258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-24 | [Éléphant du désert et son petit se nourrissant d'herbes hautes, Namibie (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_FR-FR5375120032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

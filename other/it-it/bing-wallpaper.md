@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-26 | [Trichechus a Crystal River, Florida, USA (© Stephen Frink/Getty Images)](https://www.bing.com/th?id=OHR.CrystalManatee_IT-IT9883831174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-25 | [Set cinematografico di Hobbiton, Waikato, Nuova Zelanda (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_IT-IT4670453023_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-24 | [Piazza Maggiore al sorgere del sole, Bologna, Emilia-Romagna (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.PiazzaBologna_IT-IT4343709340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
