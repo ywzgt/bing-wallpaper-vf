@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-28 | [Odeon of Herodes Atticus theater, Acropolis of Athens, Greece (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.OdeonAthens_PT-BR7363037534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-27 | [Peixe-boi em Crystal River, Flórida, EUA (© Stephen Frink/Getty Images)](https://www.bing.com/th?id=OHR.CrystalManatee_PT-BR6841178872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-26 | [Buraco de Hobbit no set de filmagem de Hobbiton, Waikato, Nova Zelândia (© Kim Petersen/Alamy)](https://www.bing.com/th?id=OHR.HobbitHole_PT-BR3505721591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
