@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-30 | [シドニー・ハーバー, オーストラリア ニューサウスウェールズ州 (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_JA-JP1159048271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-29 | [カリゾ平原国定記念物, 米国 カリフォルニア州 (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_JA-JP0990703107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-28 | [クロエリヒタキのメス (© komkrit tonusin/Alamy)](https://www.bing.com/th?id=OHR.NestingMonarch_JA-JP0784290288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
