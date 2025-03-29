@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-29 | [Superbloom nel Carrizo Plain National Monument, California, USA (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_IT-IT9336939108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-28 | [Elefante del deserto con cucciolo che si nutre di erba alta, Namibia (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_IT-IT5535834532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-27 | [Odeon del teatro di Erode Attico, Acropoli di Atene, Grecia (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.OdeonAthens_IT-IT6024741417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
