@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-31 | [Vista aérea do Porto de Sydney, Nova Gales do Sul, Austrália (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_PT-BR9026745479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-30 | [Superfloração no Monumento Nacional Carrizo Plain, Califórnia, EUA (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_PT-BR8458116464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-29 | [Monarca-azul-de-solidéu fêmea no ninho (© komkrit tonusin/Alamy)](https://www.bing.com/th?id=OHR.NestingMonarch_PT-BR7621606081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
