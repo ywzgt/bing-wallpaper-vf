@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-31 | [夕暮れのオストゥーニ, イタリア プッリャ州 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_JA-JP1339145959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-30 | [シドニー・ハーバー, オーストラリア ニューサウスウェールズ州 (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_JA-JP1159048271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-29 | [カリゾ平原国定記念物, 米国 カリフォルニア州 (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_JA-JP0990703107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
