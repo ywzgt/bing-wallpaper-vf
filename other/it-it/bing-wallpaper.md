@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-30 | [Torre dell'Orologio e statua in marmo del Leone alato di San Marco, Piazza dei Signori, Padova, Veneto (© Alberto Masnovo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.Clock_IT-IT7164959440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-29 | [Superbloom nel Carrizo Plain National Monument, California, USA (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_IT-IT9336939108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-28 | [Elefante del deserto con cucciolo che si nutre di erba alta, Namibia (© Christophe Courteau/Minden Pictures)](https://www.bing.com/th?id=OHR.ElephantGrass_IT-IT5535834532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
