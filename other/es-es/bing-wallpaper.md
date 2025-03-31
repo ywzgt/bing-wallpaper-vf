@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-31 | [Ostuni al atardecer, Brindisi, Apulia, Italia (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_ES-ES6756528922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-30 | [Torre del Reloj de San Marcos, Venecia, Italia (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_ES-ES6730268051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-29 | [Monumento Nacional de la Llanura de Carrizo Plain, California, EE. UU. (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CarrizoBloom_ES-ES6860410740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
