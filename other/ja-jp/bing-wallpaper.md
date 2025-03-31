@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-01 | [奈良公園, 奈良県 奈良市 (© AaronChenPS2/Shutterstock)](https://www.bing.com/th?id=OHR.CherryBlossom2025_JA-JP1573820444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-31 | [夕暮れのオストゥーニ, イタリア プッリャ州 (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_JA-JP1339145959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-30 | [シドニー・ハーバー, オーストラリア ニューサウスウェールズ州 (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.SydneyHarbour_JA-JP1159048271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
