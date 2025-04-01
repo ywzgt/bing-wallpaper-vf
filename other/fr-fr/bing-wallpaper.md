@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-01 | [Grenouille rainette, Costa Rica (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.TicanFrog_FR-FR5747392507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-31 | [Ostuni au crépuscule, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_FR-FR7585525322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-30 | [Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_FR-FR5009254968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

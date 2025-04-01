@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-01 | [Castillo de La Calahorra, Granada, Andalucía, España (© Ugo Mellone/Sime/eStock Photo)](https://www.bing.com/th?id=OHR.CerezoEnFlor_ES-ES6779922174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-31 | [Ostuni al atardecer, Brindisi, Apulia, Italia (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_ES-ES6756528922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-30 | [Torre del Reloj de San Marcos, Venecia, Italia (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_ES-ES6730268051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
