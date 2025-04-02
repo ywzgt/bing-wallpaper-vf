@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-02 | [Sandstone formations in the badlands near Caineville, Utah, United States (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.UtahBadlands_EN-GB1912634254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-01 | [Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.TicanFrog_EN-GB2046965668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-31 | [Ostuni, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_EN-GB1857300472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
