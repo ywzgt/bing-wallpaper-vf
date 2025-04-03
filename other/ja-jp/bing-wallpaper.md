@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-04 | [首里城の守礼門, 沖縄県 那覇市 (© Richie Chan/Shutterstock)](https://www.bing.com/th?id=OHR.Qingming2025_JA-JP2915866958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-03 | [バッドランド, 米国 ユタ州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.UtahBadlands_JA-JP2147654788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-02 | [香取神宮の田植え祭, 千葉県 香取市 (© Junko Kimura/特派員/Getty Images)](https://www.bing.com/th?id=OHR.Sawara2025_JA-JP1817975477_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
