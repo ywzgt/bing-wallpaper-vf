@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-05 | [夕暮れのガステルガチェ, スペイン バスク州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_JA-JP3147357176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-04 | [首里城の守礼門, 沖縄県 那覇市 (© Richie Chan/Shutterstock)](https://www.bing.com/th?id=OHR.Qingming2025_JA-JP2915866958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-03 | [バッドランド, 米国 ユタ州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.UtahBadlands_JA-JP2147654788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
