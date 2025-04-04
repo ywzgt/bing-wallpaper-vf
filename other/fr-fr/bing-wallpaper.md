@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-04 | [Cerisiers en fleurs, Washington DC, États-Unis (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_FR-FR9055412719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-03 | [Arc-en-ciel au-dessus de Wasson Peak, parc national de Saguaro, Arizona, États-Unis (© Frank Staub/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroRainbow_FR-FR7652479435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-02 | [Loup gris (© AB Photography/Getty Images)](https://www.bing.com/th?id=OHR.WildWolf_FR-FR5843982312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

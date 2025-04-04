@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-04 | [Festival Nacional  de los Cerezos en Flor, Washington D. C., EE. UU. (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_ES-ES7682852036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-03 | [Arco iris sobre el Pico Wasson, Parque Nacional Saguaro, Arizona, EE. UU. (© Frank Staub/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroRainbow_ES-ES6828628699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-02 | [Formaciones de arenisca en las tierras baldías cerca de Caineville, Utah, EE. UU. (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.UtahBadlands_ES-ES6805243978_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
