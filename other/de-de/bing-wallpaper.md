@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-05 | [Insel Gaztelugatxe bei Sonnenuntergang, Baskenland, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_DE-DE0917848827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-04 | [Informations-, Kommunikations- und Medienzentrum Cottbus, Brandenburg (© H & D ZIELSKE/Gallery Stock)](https://www.bing.com/th?id=OHR.IKMZLibrary_DE-DE3922270471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-03 | [Regenbogen über dem Wasson Peak, Saguaro-Nationalpark, Arizona, USA (© Frank Staub/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroRainbow_DE-DE8863396941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

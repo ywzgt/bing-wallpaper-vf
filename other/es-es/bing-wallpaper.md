@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-05 | [Islote Gaztelugache al atardecer, País Vasco, España (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ES-ES7893865924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-04 | [Festival Nacional  de los Cerezos en Flor, Washington D. C., EE. UU. (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_ES-ES7682852036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-03 | [Arco iris sobre el Pico Wasson, Parque Nacional Saguaro, Arizona, EE. UU. (© Frank Staub/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroRainbow_ES-ES6828628699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

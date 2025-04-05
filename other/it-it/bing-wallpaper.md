@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-05 | [Isola di Gaztelugatxe al tramonto, Paesi Baschi, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_IT-IT9513907046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-04 | [Ciliegi in fiore, Washington, DC, USA (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_IT-IT5867846300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-03 | [Arcobaleno sul Wasson Peak, Parco Nazionale dei Saguaro, Arizona, USA (© Frank Staub/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroRainbow_IT-IT7336031543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
