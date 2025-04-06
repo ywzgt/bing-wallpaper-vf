@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-07 | [Biblioteca George Peabody, Baltimore, Maryland, EUA (© Wim Wiskerke/Alamy)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_PT-BR0400301029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-06 | [Ilhote de Gaztelugatxe ao pôr do sol, País Basco, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_PT-BR7140171016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-05 | [Festival Nacional da Flor de Cerejeira, Washington, D.C., EUA (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_PT-BR6371827217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
