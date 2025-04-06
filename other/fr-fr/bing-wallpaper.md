@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-06 | [Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_FR-FR8201526563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-05 | [Îlot Gaztelugatxe au coucher du soleil, Pays basque, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_FR-FR9907394387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-04 | [Cerisiers en fleurs, Washington DC, États-Unis (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_FR-FR9055412719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-06 | [George Peabody Library, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_DE-DE8297645557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-05 | [Insel Gaztelugatxe bei Sonnenuntergang, Baskenland, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_DE-DE0917848827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-04 | [Informations-, Kommunikations- und Medienzentrum Cottbus, Brandenburg (© H & D ZIELSKE/Gallery Stock)](https://www.bing.com/th?id=OHR.IKMZLibrary_DE-DE3922270471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

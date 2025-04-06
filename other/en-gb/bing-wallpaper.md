@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-06 | [Gaztelugatxe islet, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_EN-GB4088567205_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-05 | [2021 Grand National at Aintree Racecourse, Liverpool, England (© Alan Crowhurst/PA Images/Getty Images)](https://www.bing.com/th?id=OHR.GrandNational2025_EN-GB3927450244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-04 | [National Cherry Blossom Festival, Washington, DC, United States (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.CherryBlossomDC_EN-GB3780298287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
