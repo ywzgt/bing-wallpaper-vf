@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-08 | [民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_JA-JP3717839940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-07 | [アメリカビーバー, 米国 ワイオミング州 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_JA-JP3508921078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-06 | [姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastleDay2025_JA-JP3325548053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
