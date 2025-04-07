@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-07 | [Castor du Canada, Moran, Wyoming, États-Unis (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_FR-FR0993512788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-06 | [Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_FR-FR8201526563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-05 | [Îlot Gaztelugatxe au coucher du soleil, Pays basque, Espagne (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_FR-FR9907394387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
