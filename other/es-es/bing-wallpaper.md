@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-08 | [Mujeres con trajes tradicionales en el Festival Paro Tshechu en Bután (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_ES-ES8527446081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-07 | [Castor canadensis, Moran, Wyoming, EE. UU. (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_ES-ES8231200914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-06 | [Lagos de Covadonga, Asturias, España (© David Garcia Eirin/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AsturiasCovadongaSpain_ES-ES8023805515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
