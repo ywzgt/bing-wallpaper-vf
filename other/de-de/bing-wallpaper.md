@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-09 | [Blaue Stunde auf Naxos, Kykladen, Griechenland (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_DE-DE2161075771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-08 | [Frauen in der Nationaltracht beim Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_DE-DE2839281679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-07 | [Kanadischer Biber, Moran, Wyoming, USA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_DE-DE8403333829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
