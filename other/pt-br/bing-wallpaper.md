@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-10 | [Hora azul em Naxos, Cíclades, Grécia (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_PT-BR1208172497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-09 | [Mulheres com trajes tradicionais no Festival Paro Tshechu, Butão (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_PT-BR0804311067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-08 | [Castor-americano, Moran, Wyoming, EUA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.BeaverDay_PT-BR0574676705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
