@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-10 | [Cuccioli di volpe rossa vicino alla loro tana (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.LittleFoxes_IT-IT0375371643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-09 | [Ora blu a Nasso, Cicladi, Grecia (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_IT-IT4796672311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-08 | [Donne in abito tradizionale al Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.ParoTsechu_IT-IT4678234670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
