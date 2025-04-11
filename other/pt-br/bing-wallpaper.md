@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-12 | [Campo de Tulipas nos Países Baixos (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_PT-BR1514723393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-11 | [Filhotes de raposa-vermelha perto da toca (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.LittleFoxes_PT-BR1339249223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-10 | [Hora azul em Naxos, Cíclades, Grécia (© Sizun Eye/Getty Images)](https://www.bing.com/th?id=OHR.BlueNaxos_PT-BR1208172497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
