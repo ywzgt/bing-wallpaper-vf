@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-12 | [キューポラから見た地球 (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_JA-JP4398798070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-11 | [チューリップと風車, オランダ (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_JA-JP4212176711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-10 | [巣穴の近くにいる子ギツネたち (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.LittleFoxes_JA-JP4068111842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
