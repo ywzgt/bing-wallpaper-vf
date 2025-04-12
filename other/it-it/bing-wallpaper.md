@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-12 | [Vista dalla cupola della Stazione Spaziale Internazionale sopra l'Oceano Pacifico meridionale (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_IT-IT7664385047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-11 | [Tulipani, Paesi Bassi (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_IT-IT0852704157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-10 | [Cuccioli di volpe rossa vicino alla loro tana (© WildMedia/Shutterstock)](https://www.bing.com/th?id=OHR.LittleFoxes_IT-IT0375371643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
