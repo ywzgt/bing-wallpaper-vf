@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-13 | [Temple Wat Tang Sai à Ban Krut, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_FR-FR9765190330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-12 | [Vue de la coupole de la Station spatiale internationale au-dessus de l'océan Pacifique Sud (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_FR-FR9020944555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-11 | [Vue aérienne du pont Wilson sur la Loire au crépuscule, Tours (© Cristian Mircea Balate/Getty Images)](https://www.bing.com/th?id=OHR.BookFestival_FR-FR8770789335_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

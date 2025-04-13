@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-13 | [Tempio Wat Tang Sai a Ban Krut, Thailandia (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_IT-IT7756165601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-12 | [Vista dalla cupola della Stazione Spaziale Internazionale sopra l'Oceano Pacifico meridionale (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_IT-IT7664385047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-11 | [Tulipani, Paesi Bassi (© 1111IESPDJ/Getty Images)](https://www.bing.com/th?id=OHR.TulipsWindmill_IT-IT0852704157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
