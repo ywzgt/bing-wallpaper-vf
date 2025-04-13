@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-14 | [精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)](https://www.bing.com/th?id=OHR.TakayamaFestival2025_JA-JP4780504174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-13 | [ワット・タン・サイ寺院, タイ (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_JA-JP4544592836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-12 | [キューポラから見た地球 (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_JA-JP4398798070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
