@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-14 | [Delfines moteados cerca de la isla de Santa María, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_ES-ES0341116224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-13 | [Templo Wat Tang Sai en Ban Krut, Tailandia (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_ES-ES0158142053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-12 | [Vista desde la cúpula de la Estación Espacial Internacional sobre el Océano Pacífico Sur (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_ES-ES0011702709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

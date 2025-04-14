@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-14 | [Delfini nell'Atlantico, vicino all'isola di Santa Maria, Azzorre, Portogallo (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_IT-IT7838462769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-13 | [Tempio Wat Tang Sai a Ban Krut, Thailandia (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_IT-IT7756165601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-12 | [Vista dalla cupola della Stazione Spaziale Internazionale sopra l'Oceano Pacifico meridionale (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_IT-IT7664385047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
