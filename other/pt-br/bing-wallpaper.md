@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-15 | [Golfinhos-pintados-do-Atlântico perto da Ilha de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_PT-BR4725039948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-14 | [Vista aérea da Praia de Iracema, Fortaleza, Ceará, Brasil (© stocklapse/Getty Images)](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-13 | [Vista da cúpula da Estação Espacial Internacional sobre o Oceano Pacífico Sul (© NASA)](https://www.bing.com/th?id=OHR.SpaceFlight_PT-BR1652543641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
