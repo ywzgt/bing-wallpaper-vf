@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-15 | [Beach art sur la plage de Sauveterre par Zarpo, Les Sables-d'Olonne, France (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_FR-FR1721959544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-14 | [Dauphins tachetés de l'Atlantique près de l'île de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_FR-FR1251975856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-13 | [Temple Wat Tang Sai à Ban Krut, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_FR-FR9765190330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

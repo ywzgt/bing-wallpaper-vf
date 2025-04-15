@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-15 | [Sandkunst am Sauveterre Strand bei Zarpo, Les Sables-d'Olonne, Vendee, Frankreich (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_DE-DE2496270870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-14 | [Zügeldelfine in der Nähe der Insel Santa Maria, Azoren, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_DE-DE3167683290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-13 | [Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.ThailandPagodas_DE-DE3455777825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
