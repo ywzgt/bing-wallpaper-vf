@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-16 | [Arte na areia na Praia de Sauveterre por Zarpo, Les Sables-d'Olonne, Vendeia, França (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_PT-BR4894197418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-15 | [Golfinhos-pintados-do-Atlântico perto da Ilha de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_PT-BR4725039948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-14 | [Vista aérea da Praia de Iracema, Fortaleza, Ceará, Brasil (© stocklapse/Getty Images)](https://www.bing.com/th?id=OHR.AniversarioFortaleza_PT-BR2253033645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
