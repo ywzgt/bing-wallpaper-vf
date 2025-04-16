@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-16 | [Duomo di Milano, Milano, Lombardia (© Tupungato/Getty Images)](https://www.bing.com/th?id=OHR.MilanSpringCiliegi_IT-IT8049577261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-15 | [Opera d'arte sulla spiaggia di Sauveterre di Zarpo, Les Sables-d'Olonne, Vandea, Francia (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BeachArt_IT-IT8015252028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-14 | [Delfini nell'Atlantico, vicino all'isola di Santa Maria, Azzorre, Portogallo (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_IT-IT7838462769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

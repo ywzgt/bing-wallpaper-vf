@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-16 | [Puente Kachina, Monumento nacional de los Puentes Naturales, Utah, EE. UU. (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_ES-ES0602250183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-15 | [Arte playero en la playa de Sauveterre por Zarpo, Les Sables-d'Olonne, Vendée, Francia (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_ES-ES0479706512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-14 | [Delfines moteados cerca de la isla de Santa María, Azores, Portugal (© Jordi Chias/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedDolphins_ES-ES0341116224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
