@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-17 | [アンデスイワドリ, エクアドル (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_JA-JP5274741674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-16 | [ナチュラル・ブリッジ国定公園, 米国 ユタ州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_JA-JP5136647433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-15 | [ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_JA-JP4983678633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
