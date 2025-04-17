@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-17 | [Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-16 | [Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ToulouseBridge_FR-FR3626710676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-15 | [Beach art sur la plage de Sauveterre par Zarpo, Les Sables-d'Olonne, France (© Hemis/Alamy)](https://www.bing.com/th?id=OHR.BeachArt_FR-FR1721959544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-17 | [Biblioteca George Peabody, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-16 | [Duomo di Milano, Milano, Lombardia (© Tupungato/Getty Images)](https://www.bing.com/th?id=OHR.MilanSpringCiliegi_IT-IT8049577261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-15 | [Opera d'arte sulla spiaggia di Sauveterre di Zarpo, Les Sables-d'Olonne, Vandea, Francia (© Hemis/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BeachArt_IT-IT8015252028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
