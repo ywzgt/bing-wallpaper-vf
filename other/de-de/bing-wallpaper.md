@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-18 | [Heißluftballons über dem Nationalpark Göreme in Kappadokien, Türkei (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_DE-DE1882170025_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-17 | [Andenfelsenhähne, Ecuador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_DE-DE1431082236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-16 | [Strandkörbe vor der Seebrücke auf Steinwarder in Heiligenhafen, Schleswig-Holstein, Deutschland (© Frank Lukasseck/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_DE-DE2084587794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-18 | [Mongolfiere sopra il Parco Nazionale Storico di Göreme in Cappadocia, Turchia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-17 | [Biblioteca George Peabody, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PeabodyBaltimore_IT-IT8224367841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-16 | [Duomo di Milano, Milano, Lombardia (© Tupungato/Getty Images)](https://www.bing.com/th?id=OHR.MilanSpringCiliegi_IT-IT8049577261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

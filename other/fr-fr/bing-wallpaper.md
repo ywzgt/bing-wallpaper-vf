@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-18 | [Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)](https://www.bing.com/th?id=OHR.BelfortLion_FR-FR4338393080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-17 | [Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_FR-FR4091583945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-16 | [Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ToulouseBridge_FR-FR3626710676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

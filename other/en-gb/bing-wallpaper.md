@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-18 | [Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-GB5053201310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-17 | [Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.EcuadorBird_EN-GB6287056261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-16 | [Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_EN-GB6179737252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

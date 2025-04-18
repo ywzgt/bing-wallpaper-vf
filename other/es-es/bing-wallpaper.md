@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-18 | [Globos aerostáticos sobre el Parque Nacional Histórico de Göreme en la Capadocia, Turquía (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_ES-ES9181227420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-17 | [Iglesia de Santa María de la Asunción, Castro-Urdiales, Cantabria, España (© Fotokon/Shutterstock)](https://www.bing.com/th?id=OHR.CastroUrdiales_ES-ES0758582290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-16 | [Puente Kachina, Monumento nacional de los Puentes Naturales, Utah, EE. UU. (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.KachinaBridge_ES-ES0602250183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
