@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-19 | [Balões sobre o Parque Nacional de Göreme, na Capadócia, Turquia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_PT-BR0414820680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-18 | [Galo-da-serra-andino, Equador (© Kit Day/Alamy)](https://www.bing.com/th?id=OHR.EcuadorBird_PT-BR5045243813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-17 | [Cartaratas do Iguaçu vistas de Foz do Iguaçu, Paraná, Brasil (© Stockfoto)](https://www.bing.com/th?id=OHR.FozdoIguacu2025_PT-BR5499701871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
