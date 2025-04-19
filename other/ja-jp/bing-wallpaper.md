@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-20 | [野生の子ウサギ (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_JA-JP1230746476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-19 | [ザイオン国立公園, 米国 ユタ州 (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_JA-JP1023148962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-18 | [ギョレメ国立公園, トルコ (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_JA-JP0595841869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
