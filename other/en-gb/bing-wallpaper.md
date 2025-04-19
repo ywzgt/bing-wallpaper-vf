@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-19 | [Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_EN-GB5278363127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-18 | [Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_EN-GB5053201310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-17 | [Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.EcuadorBird_EN-GB6287056261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
