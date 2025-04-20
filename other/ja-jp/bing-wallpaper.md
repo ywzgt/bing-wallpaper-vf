@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-21 | [ジョシュア・ツリー国立公園の天の川, 米国 カリフォルニア州 (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_JA-JP1506519282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-20 | [野生の子ウサギ (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_JA-JP1230746476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-19 | [ザイオン国立公園, 米国 ユタ州 (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_JA-JP1023148962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
