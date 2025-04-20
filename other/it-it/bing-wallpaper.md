@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-20 | [Coniglietti selvatici in primavera (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_IT-IT3916580301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-19 | [Parco Nazionale di Zion, Utah, USA (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_IT-IT1237391753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-18 | [Mongolfiere sopra il Parco Nazionale Storico di Göreme in Cappadocia, Turchia (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTurkey_IT-IT1187292514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
