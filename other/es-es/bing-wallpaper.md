@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-21 | [Árboles de Josué bajo la Vía Láctea, California, EE.UU. (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_ES-ES3139415437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-20 | [Crías de conejo en primavera (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_ES-ES9248343079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-19 | [Parque Nacional de Zion, Utah, EE.UU. (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_ES-ES3051360376_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

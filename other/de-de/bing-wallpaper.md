@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-21 | [Josuabäume unter der Milchstraße, Kalifornien, USA (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_DE-DE4771713346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-20 | [Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)](https://www.bing.com/th?id=OHR.EastereggsTree_DE-DE3677882321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-19 | [Zion-Nationalpark, Utah, USA (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_DE-DE1917937045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

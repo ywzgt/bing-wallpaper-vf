@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-21 | [Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_EN-GB6081437558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-20 | [Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_EN-GB7199953818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-19 | [Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_EN-GB5278363127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
