@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-22 | [Aniversário de Brasília, DF (© Cro Magnon/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-21 | [Coelhos selvagens no outono (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_PT-BR9190228390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-20 | [Parque Nacional Zion, Utah, EUA (© Simon Dannhauer/Getty Images)](https://www.bing.com/th?id=OHR.ZionValley_PT-BR8868751465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
