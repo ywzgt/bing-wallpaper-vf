@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-22 | [Grand Prismatic Spring, Yellowstone-Nationalpark, Wyoming, USA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_DE-DE2924046360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-21 | [Josuabäume unter der Milchstraße, Kalifornien, USA (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_DE-DE4771713346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-20 | [Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)](https://www.bing.com/th?id=OHR.EastereggsTree_DE-DE3677882321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

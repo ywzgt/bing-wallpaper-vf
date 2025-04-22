@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-22 | [Grande sorgente prismatica, Parco Nazionale di Yellowstone, Wyoming, USA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_IT-IT1564316273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-21 | [Pitigliano al tramonto, Provincia di Grosseto, Toscana (© Ivoha/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.PitiglianoPasquetta_IT-IT4003845136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-20 | [Coniglietti selvatici in primavera (© Fiona McAllister Photography/Getty Images)](https://www.bing.com/th?id=OHR.BunnyLove_IT-IT3916580301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
