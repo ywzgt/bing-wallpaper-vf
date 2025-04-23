@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-23 | [Castillo de Gormaz, Soria, Castilla y León, España (© Evan Frank/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastillayLeonDay_ES-ES9340220273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-22 | [Gran Manantial Prismático, Parque Nacional de Yellowstone, Wyoming, EE.UU. (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_ES-ES3218461666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-21 | [Árboles de Josué bajo la Vía Láctea, California, EE.UU. (© Chao Zhang/Getty Images)](https://www.bing.com/th?id=OHR.JoshuaStars_ES-ES3139415437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
