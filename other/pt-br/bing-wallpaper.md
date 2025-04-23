@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-24 | [Teatro Shakespeare's Globe, Londres, Inglaterra (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_PT-BR2484921869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-23 | [Grande Fonte Prismática, Parque Nacional de Yellowstone, Wyoming, EUA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_PT-BR0628932864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-22 | [Aniversário de Brasília, DF (© Cro Magnon/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.AniversarioBrasilia_PT-BR0404109011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
