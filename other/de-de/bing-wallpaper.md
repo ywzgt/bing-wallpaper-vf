@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-24 | [Spire Cove im Kenai-Fjords-Nationalpark, Seward, Alaska, USA (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_DE-DE8277470819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-23 | [Shakespeares Globe Theatre, London, England (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_DE-DE3738219615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-22 | [Grand Prismatic Spring, Yellowstone-Nationalpark, Wyoming, USA (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_DE-DE2924046360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

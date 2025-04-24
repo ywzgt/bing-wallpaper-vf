@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-24 | [Spire Cove, en el Parque Nacional de Kenai Fjords, Seward, Alaska, EE. UU. (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_ES-ES3278232415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-23 | [Castillo de Gormaz, Soria, Castilla y León, España (© Evan Frank/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.CastillayLeonDay_ES-ES9340220273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-22 | [Gran Manantial Prismático, Parque Nacional de Yellowstone, Wyoming, EE.UU. (© Ajith Kumar/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneSpring_ES-ES3218461666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
