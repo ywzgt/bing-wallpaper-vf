@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-25 | [フォークランド諸島のマゼランペンギン, イギリス (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_JA-JP2151034914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-24 | [キーナイ・フィヨルド国立公園, 米国 アラスカ州 (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_JA-JP1998460612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-23 | [シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_JA-JP1842538883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
