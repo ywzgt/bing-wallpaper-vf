@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-26 | [Pinguim-de-magalhães, Volunteer Point, Ilhas Malvinas (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_PT-BR3120283712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-25 | [Parque Nacional dos Fiordes de Kenai, Seward, Alasca, EUA (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_PT-BR2765699166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-24 | [Teatro Shakespeare's Globe, Londres, Inglaterra (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_PT-BR2484921869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
