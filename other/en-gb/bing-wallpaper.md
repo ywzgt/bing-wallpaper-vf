@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-25 | [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-GB7845842741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-24 | [Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_EN-GB7450613757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-23 | [A large mechanical dragon at Saint George's Day celebrations (© MediaWorldImages/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.StGeorgeDay2025_EN-GB0136708024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

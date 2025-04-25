@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-25 | [Manchots de Magellan, Volunteer Point, îles Malouines (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_FR-FR7463895706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-24 | [Spire Cove, parc national des fjords de Kenai, Alaska, États-Unis (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_FR-FR3080979017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-23 | [Théâtre du Globe, Londres, Angleterre (© Peter Dazeley/Getty Images)](https://www.bing.com/th?id=OHR.GlobeTheatre_FR-FR2329774006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
