@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-27 | [Indian Head Cove, Parque Nacional da Península Bruce, Ontário, Canadá (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_PT-BR5440463539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-26 | [Pinguim-de-magalhães, Volunteer Point, Ilhas Malvinas (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_PT-BR3120283712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-25 | [Parque Nacional dos Fiordes de Kenai, Seward, Alasca, EUA (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_PT-BR2765699166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
