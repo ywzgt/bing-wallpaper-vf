@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-26 | [Cala Indian Head, Parque Nacional de la Península de Bruce, Ontario, Canadá (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_ES-ES9582881448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-25 | [Pingüinos de Magallanes, Punta Voluntario, Islas Malvinas (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_ES-ES9545554066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-24 | [Spire Cove, en el Parque Nacional de Kenai Fjords, Seward, Alaska, EE. UU. (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_ES-ES3278232415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

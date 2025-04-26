@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-26 | [Indian Head Cove, Parco Nazionale della Penisola di Bruce, Canada (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_IT-IT1903425741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-25 | [Pinguini di Magellano, Volunteer Point, Isole Falkland (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_IT-IT1778784018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-24 | [Spire Cove nel Parco Nazionale dei Fiordi di Kenai, Seward, Alaska, USA (© Wander Photography/Getty Images)](https://www.bing.com/th?id=OHR.KenaiSpires_IT-IT1719586029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
