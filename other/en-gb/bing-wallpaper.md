@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-27 | [Tower Bridge in London, England (© Remedios/iStock/Getty Images)](https://www.bing.com/th?id=OHR.LondonMarathon2025_EN-GB0402575812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-26 | [Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_EN-GB8078364985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-25 | [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_EN-GB7845842741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

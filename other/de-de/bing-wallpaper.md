@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-27 | [Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.LuebeckHouses_DE-DE5661377255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-26 | [Indian Head Cove, Bruce-Peninsula-Nationalpark, Ontario, Kanada (© Maurice Prokaziuk/Getty Images) (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_DE-DE2577994189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-25 | [Magellanpinguine, Volunteer Point, Falklandinseln (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_DE-DE2240102652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

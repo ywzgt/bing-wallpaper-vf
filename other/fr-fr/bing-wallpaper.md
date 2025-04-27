@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-27 | [Bosquet de séquoias côtiers dans les parcs nationaux de Redwood, Californie, États-Unis (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_FR-FR2313979234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-26 | [Indian Head Cove, parc national de la Péninsule-Bruce, Ontario, Canada (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_FR-FR8669320621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-25 | [Manchots de Magellan, Volunteer Point, îles Malouines (© imageBROKER/Matthias Graben/Getty Images)](https://www.bing.com/th?id=OHR.MagellanicPenguin_FR-FR7463895706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
