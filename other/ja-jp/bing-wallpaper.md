@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-29 | [ヴィランドリー城, フランス (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_JA-JP2835269741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-28 | [インパラ, ボツワナ (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_JA-JP2688977471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-27 | [レッドウッド国立公園, 米国 カリフォルニア州 (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_JA-JP2501396373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
