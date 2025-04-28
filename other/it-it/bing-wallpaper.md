@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-28 | [Grotte di Catullo, Sirmione, Provincia di Brescia, Lombardia (© AlagnaMarco/Getty Images)](https://www.bing.com/th?id=OHR.LagoDiGardaVillaRomana_IT-IT2119836247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-27 | [Bosco di sequoie nel Redwood National and State Parks, California, USA (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_IT-IT2059060159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-26 | [Indian Head Cove, Parco Nazionale della Penisola di Bruce, Canada (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_IT-IT1903425741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-28 | [Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_EN-GB8814408257_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-27 | [Tower Bridge in London, England (© Remedios/iStock/Getty Images)](https://www.bing.com/th?id=OHR.LondonMarathon2025_EN-GB0402575812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-26 | [Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_EN-GB8078364985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

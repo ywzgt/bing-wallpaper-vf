@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-28 | [Impala en la Reserva de Moremi, Botsuana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_ES-ES9655514798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-27 | [El Castildetierra en las Bardenas Reales de Navarra, España (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.Castildetierra_ES-ES9629386205_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-26 | [Cala Indian Head, Parque Nacional de la Península de Bruce, Ontario, Canadá (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_ES-ES9582881448_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
