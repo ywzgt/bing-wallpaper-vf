@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-29 | [Parque Nacional dos Lençóis Maranhenses, Maranhão (© WhyNotTrip/Shutterstock)](https://www.bing.com/th?id=OHR.DunasMaranhenses_PT-BR7731502605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-28 | [Bosque de sequoias no Parque Nacional de Redwood, Califórnia, EUA (© Bob Pool/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodGrove_PT-BR8053391438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-27 | [Indian Head Cove, Parque Nacional da Península Bruce, Ontário, Canadá (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_PT-BR5440463539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
