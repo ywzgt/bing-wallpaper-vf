@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-29 | [Château de Villandry, Loiretal, Frankreich (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_DE-DE3270965160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-28 | [Impala im Moremi-Wildreservat, Botswana (© Paul Souders/Getty Images)](https://www.bing.com/th?id=OHR.OrangeImpala_DE-DE8059561226_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-27 | [Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)](https://www.bing.com/th?id=OHR.LuebeckHouses_DE-DE5661377255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
