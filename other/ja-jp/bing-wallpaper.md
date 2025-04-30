@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-01 | [大淵笹場の茶畑, 静岡県 富士市 (© 7maru/Getty Images)](https://www.bing.com/th?id=OHR.Hachijyuhachi2025_JA-JP6490825826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-30 | [サックス奏者ジョン・コルトレーンと彼のバンド, イギリス ロンドン (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_JA-JP3450716389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-29 | [ヴィランドリー城, フランス (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_JA-JP2835269741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
