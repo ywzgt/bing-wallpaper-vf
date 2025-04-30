@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-01 | [Saxofonista John Coltrane e sua banda se apresentando em 1961 em Londres, Inglaterra (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_PT-BR2612003019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-30 | [Castelo de Villandry, Vale do Loire, França (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_PT-BR2651560431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-29 | [Parque Nacional dos Lençóis Maranhenses, Maranhão (© WhyNotTrip/Shutterstock)](https://www.bing.com/th?id=OHR.DunasMaranhenses_PT-BR7731502605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
