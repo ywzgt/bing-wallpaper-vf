@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-01 | [Fiori di plumeria, Hawaii, USA (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_IT-IT2418782991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-30 | [Il sassofonista John Coltrane e la sua band si esibiscono nel 1961 a Londra, Inghilterra (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_IT-IT2364291009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-29 | [Castello di Villandry, Valle della Loira, Francia (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.GardensVillandry_IT-IT2296635680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
