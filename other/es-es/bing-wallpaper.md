@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-02 | [Garza estriada sobre un nenúfar Victoria, Pantanal, Brasil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_ES-ES2902878903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-01 | [Flores de plumeria, Hawái, EE. UU. (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_ES-ES3406077464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-30 | [El saxofonista de jazz John Coltrane y su banda actuando en 1961 en Londres, Inglaterra (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_ES-ES9738799865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

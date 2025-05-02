@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-02 | [Mangrovereiher auf einer Victoria-Seerose, Pantanal, Brasilien (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_DE-DE1974794289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-01 | [Plumeria-Blumen, Hawaii, USA (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_DE-DE1954010737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-30 | [Jazz-Saxophonist John Coltrane und Band bei einem Auftritt 1961 in London, England (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_DE-DE0172172574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

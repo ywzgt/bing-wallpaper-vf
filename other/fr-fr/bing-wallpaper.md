@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-02 | [Héron strié sur un nénuphar Victoria, Pantanal, Brésil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_FR-FR2379480505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-01 | [Fleurs de frangipanier, Hawaï, États-Unis (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_FR-FR9237716464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-30 | [Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)](https://www.bing.com/th?id=OHR.Pheasant_FR-FR7804669644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

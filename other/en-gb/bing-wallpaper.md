@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-02 | [Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_EN-GB3243894936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-01 | [Plumeria flowers, Hawaii, United States (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_EN-GB9432400887_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-30 | [Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_EN-GB9213132534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
