@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-03 | [Socozinho sobre uma vitória-régia, Pantanal (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_PT-BR4897621554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-02 | [Flores de plumeria, Havaí EUA (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_PT-BR2515554490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-01 | [Saxofonista John Coltrane e sua banda se apresentando em 1961 em Londres, Inglaterra (© Popperfoto/Getty Images)](https://www.bing.com/th?id=OHR.ColtraneBand_PT-BR2612003019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
