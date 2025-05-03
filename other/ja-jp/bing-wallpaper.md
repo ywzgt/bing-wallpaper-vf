@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-04 | [屋久島, 鹿児島県 (© oxico/Getty Images)](https://www.bing.com/th?id=OHR.GreeneryDay2025_JA-JP4166384279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-03 | [アーチーズ国立公園, 米国 ユタ州 (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_JA-JP7174638960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-02 | [パンタナル, ブラジル (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_JA-JP6898901440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
