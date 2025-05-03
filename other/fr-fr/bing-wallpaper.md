@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-03 | [Voie lactée encadrée par Double Arch, parc national des Arches, Utah, États-Unis (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_FR-FR2194406698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-02 | [Héron strié sur un nénuphar Victoria, Pantanal, Brésil (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_FR-FR2379480505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-01 | [Fleurs de frangipanier, Hawaï, États-Unis (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_FR-FR9237716464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
