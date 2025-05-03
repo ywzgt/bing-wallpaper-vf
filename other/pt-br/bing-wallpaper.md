@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-04 | [Via Láctea emoldurada pelo Arco Duplo no Parque Nacional dos Arcos, Utah, EUA (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_PT-BR5466273548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-03 | [Socozinho sobre uma vitória-régia, Pantanal (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_PT-BR4897621554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-02 | [Flores de plumeria, Havaí EUA (© Miranda Jans/Getty Images)](https://www.bing.com/th?id=OHR.PinkPlumeria_PT-BR2515554490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
