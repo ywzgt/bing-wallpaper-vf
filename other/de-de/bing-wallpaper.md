@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-04 | [Plaza de España, Sevilla, Spanien (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.SevilleNaboo_DE-DE9420581107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-03 | [Schloss Moritzburg bei Dresden, Sachsen (© Hans-Peter Szyszka/Huber/eStock Photo)](https://www.bing.com/th?id=OHR.SchlossMoritzburg_DE-DE9218601077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-02 | [Mangrovereiher auf einer Victoria-Seerose, Pantanal, Brasilien (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.BrazilHeron_DE-DE1974794289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
