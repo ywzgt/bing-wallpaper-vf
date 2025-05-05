@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-05 | [Beach huts in Brighton and Hove, England (© Moonstone Images/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BrightonFestival2025_EN-GB9227579915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-04 | [Plaza de España, Seville, Spain (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.SevilleNaboo_EN-GB9843700805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-03 | [The Milky Way framed by Double Arch in Arches National Park, Utah, United States (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_EN-GB3402491515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

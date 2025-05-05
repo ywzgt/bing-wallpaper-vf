@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-05 | [Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_FR-FR1931273047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-04 | [Place d'Espagne, Séville, Espagne (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.SevilleNaboo_FR-FR2052386392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-03 | [Voie lactée encadrée par Double Arch, parc national des Arches, Utah, États-Unis (© Adventure_Photo/Getty Images)](https://www.bing.com/th?id=OHR.ArchesGalaxy_FR-FR2194406698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
