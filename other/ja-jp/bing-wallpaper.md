@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-06 | [ナミブ砂漠, ナミビア (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_JA-JP8746385575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-05 | [東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.Koinobori2025_JA-JP0438864566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-04 | [屋久島, 鹿児島県 (© oxico/Getty Images)](https://www.bing.com/th?id=OHR.GreeneryDay2025_JA-JP4166384279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
