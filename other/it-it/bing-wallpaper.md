@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-06 | [Aereo ultraleggero in volo sulle sabbie della Namibia (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FlyoverNamibia_IT-IT8197478549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-05 | [Il Monte Burgess e il Lago Emerald nel Parco Nazionale di Yoho, British Columbia, Canada (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.YohoNP_IT-IT2594814930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-04 | [Piazza di Spagna, Siviglia, Spagna (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.SevilleNaboo_IT-IT2269809948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

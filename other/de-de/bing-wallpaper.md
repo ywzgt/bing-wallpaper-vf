@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-06 | [Ein Ultraleichtflugzeug fliegt über die Wüste Namibias (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_DE-DE0196935378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-05 | [Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.YohoNP_DE-DE0247251687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-04 | [Plaza de España, Sevilla, Spanien (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.SevilleNaboo_DE-DE9420581107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
