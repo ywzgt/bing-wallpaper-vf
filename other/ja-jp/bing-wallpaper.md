@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-08 | [野原に並んで立つ 2 頭のロバ, 米国 ネバダ州 (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_JA-JP9115996276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-07 | [ダンルース城, イギリス (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_JA-JP8933138067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-06 | [ナミブ砂漠, ナミビア (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_JA-JP8746385575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
