@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-07 | [Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_EN-GB4973641730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-06 | [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FlyoverNamibia_EN-GB4652418118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-05 | [Beach huts in Brighton and Hove, England (© Moonstone Images/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BrightonFestival2025_EN-GB9227579915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
