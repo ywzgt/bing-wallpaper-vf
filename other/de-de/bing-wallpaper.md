@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-08 | [Esel in einem Tal bei Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_DE-DE0880172671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-07 | [Dunluce Castle, Grafschaft Antrim, Nordirland (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_DE-DE2678397911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-06 | [Ein Ultraleichtflugzeug fliegt über die Wüste Namibias (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_DE-DE0196935378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-08 | [Asini in una valle vicino a Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_IT-IT8431105690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-07 | [Castello di Dunluce, Contea di Antrim, Irlanda del Nord (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_IT-IT8360348588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-06 | [Aereo ultraleggero in volo sulle sabbie della Namibia (© Burt Johnson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FlyoverNamibia_IT-IT8197478549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
