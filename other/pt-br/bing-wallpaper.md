@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-09 | [Parque do Caracol, Canela, RS (© Luís Henrique Boucault/Getty Images)](https://www.bing.com/th?id=OHR.DiaNacionalTurismo2025_PT-BR1293599256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-08 | [Castelo de Dunluce, Condado de Antrim, Irlanda do Norte (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.DunluceIreland_PT-BR4554563942_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-07 | [Ultraleve sobrevoando as areias da Namíbia (© Burt Johnson/Alamy)](https://www.bing.com/th?id=OHR.FlyoverNamibia_PT-BR8374548592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
