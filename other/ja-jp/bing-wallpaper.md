@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-10 | [ミネソタ州会議事堂, 米国ミネソタ州 (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_JA-JP1387558437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-09 | [ブルース・ペニンシュラ国立公園, カナダ オンタリオ州 (© Maurice Prokaziuk/Getty Images)](https://www.bing.com/th?id=OHR.BrucePeninsula_JA-JP8286448696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-08 | [野原に並んで立つ 2 頭のロバ, 米国 ネバダ州 (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_JA-JP9115996276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
