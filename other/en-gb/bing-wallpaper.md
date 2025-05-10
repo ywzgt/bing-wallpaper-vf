@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-10 | [Minnesota State Capitol, St Paul, Minnesota, United States (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_EN-GB8105337991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-09 | [Common chameleon (© Photostock-Israel/SPL/Getty Images)](https://www.bing.com/th?id=OHR.CuteChameleon_EN-GB9532983166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-08 | [Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_EN-GB9400382526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-10 | [Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)](https://www.bing.com/th?id=OHR.HeidelbergSpring_DE-DE1255336849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-09 | [Gewöhnliches Chamäleon (© Photostock-Israel/SPL/Getty Images)](https://www.bing.com/th?id=OHR.CuteChameleon_DE-DE1145473262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-08 | [Esel in einem Tal bei Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_DE-DE0880172671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

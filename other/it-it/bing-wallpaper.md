@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-10 | [Campidoglio del Minnesota, St. Paul, Minnesota, USA (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_IT-IT5434409102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-09 | [Comincia il Giro d'Italia, Durazzo, Albania (© Tim de Waele/Getty Images)](https://www.bing.com/th?id=OHR.GiroItalia_IT-IT8486738014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-08 | [Asini in una valle vicino a Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_IT-IT8431105690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
