@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-12 | [Mãe leopardo com seu filhote, Jao Camp, Botsuana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_PT-BR3379909644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-11 | [Capitólio do Estado de Minnesota, St. Paul, Minnesota, EUA (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MinnesotaRotunda_PT-BR2639700452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-10 | [Cachoeira Fumacinha, Parque Nacional da Chapada Diamantina, Ibicoara, BA (© Pulsar Imagens/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.FumacinhaBahia_PT-BR0440078650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
