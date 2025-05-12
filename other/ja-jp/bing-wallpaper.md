@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-13 | [トーレス・デル・パイネ国立公園, チリ (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_JA-JP1840046415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-12 | [菖蒲の花, 東京 (© M.Arai/Getty Images)](https://www.bing.com/th?id=OHR.IrisGarden_JA-JP1134821751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-11 | [ヒョウの母子, ボツワナ (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_JA-JP1562347472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
