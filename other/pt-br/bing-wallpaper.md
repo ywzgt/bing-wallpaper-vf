@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-14 | [Parque Nacional Torres del Paine, Patagônia, Chile (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.TorresChile_PT-BR4534692189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-13 | [Jardim de íris em Tóquio, Japão (© M.Arai/Getty Images)](https://www.bing.com/th?id=OHR.IrisGarden_PT-BR4328394964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-12 | [Mãe leopardo com seu filhote, Jao Camp, Botsuana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_PT-BR3379909644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
