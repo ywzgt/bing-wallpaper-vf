@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-15 | [Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_FR-FR8667949776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-14 | [Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_FR-FR6461309996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-13 | [Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)](https://www.bing.com/th?id=OHR.CannesFilmFestival_FR-FR6520718255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
