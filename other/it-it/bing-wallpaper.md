@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-16 | [Un treno che corre lungo il fiume Hozugawa ad Arashiyama, Kyoto, Giappone (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-15 | [Madre leopardo con il suo cucciolo, Riserva di Jao, Botswana (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.LeopardMother_IT-IT3189476011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-14 | [Porto Flavia, Iglesias, Sardegna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.SardiniaFlavia_IT-IT8830916850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
