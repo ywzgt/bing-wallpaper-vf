@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-17 | [Delta in der Lagune von Venedig, Italien (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_DE-DE3294862125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-16 | [Bechsteinara, Mexiko (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_DE-DE4297947779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-15 | [Big Ben und Westminster-Palast, London, England (© Puthipong Worasaran/Getty Images)](https://www.bing.com/th?id=OHR.LondonParliament_DE-DE1178909686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
