@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-18 | ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_EN-GB0919090410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-17 | [A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_EN-GB1187666352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-16 | [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_EN-GB3705576652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

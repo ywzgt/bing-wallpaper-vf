@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-18 | [« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© Bertrand Guay/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-17 | [Delta de la lagune vénitienne, Italie (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_FR-FR5243058604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-16 | [Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GreenMacaw_FR-FR5042488002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

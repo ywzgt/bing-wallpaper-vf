@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-18 | ["La Fata Elettricità" di Raoul Dufy, Museo d'Arte Moderna, Parigi, Francia (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_IT-IT9020627686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-17 | [Delta nella Laguna di Venezia, Veneto   (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_IT-IT7176917574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-16 | [Un treno che corre lungo il fiume Hozugawa ad Arashiyama, Kyoto, Giappone (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_IT-IT8185963195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
