@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-20 | [ラベンダーの花にミツバチ (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_JA-JP7794664698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-19 | [ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_JA-JP7427709229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-18 | [巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_JA-JP7244878631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
