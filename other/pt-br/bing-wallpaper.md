@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-20 | [Vista aérea ao nascer do sol em Tiradentes, Minas Gerais (© Martinelli73/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-19 | [“A Fada da Eletricidade” por Raoul Dufy, Museu de Arte Moderna, Paris, França (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_PT-BR8646491338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-18 | [Delta na Lagoa de Veneza, Itália (© Dimitri Weber/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.VeniceLagoon_PT-BR8587771940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
