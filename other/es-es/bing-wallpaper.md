@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-19 | [Monte Hamilton, Área de la Bahía de San Francisco, California, EE. UU. (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_ES-ES6396197692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-18 | ['The Spirit of Electricity' de Raoul Dufy, Museo de Arte Moderno, París, Francia (© BERTRAND GUAY/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_ES-ES6280339322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-17 | [Viñedo volcánico en la región vinícola de La Geria, Lanzarote, Islas Canarias, España (© Pol Albarrán/Getty Images)](https://www.bing.com/th?id=OHR.LaGeriaLanzarote_ES-ES6158465086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
