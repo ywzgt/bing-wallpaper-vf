@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-20 | [Honigbiene auf Lavendelblüte (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_DE-DE5467752918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-19 | [Mount Hamilton, San Francisco Bay Area, Kalifornien, USA (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_DE-DE9789117728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-18 | [Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.BerlinHistoryMuseum_DE-DE3052163032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

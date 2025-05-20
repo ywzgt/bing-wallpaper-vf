@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-20 | [Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_FR-FR5663317705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-19 | [Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)](https://www.bing.com/th?id=OHR.RolandGarros_FR-FR5445830165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-18 | [« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© Bertrand Guay/AFP via Getty Images)](https://www.bing.com/th?id=OHR.DufyRoom_FR-FR5402586518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
