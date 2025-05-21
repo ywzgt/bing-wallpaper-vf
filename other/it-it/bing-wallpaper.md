@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-21 | [Giardino del tè nel villaggio di Yangjiatang, contea di Songyang, Cina (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_IT-IT7668449954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-20 | [Ape da miele su fiori di lavanda (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT3599671311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-20 | [Ape da miele su fiori di lavanda (© Anthony Brown/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_IT-IT7564514094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
