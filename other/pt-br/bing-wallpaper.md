@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-22 | [Jardim de chá na Vila Yangjiatang, Condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-21 | [Abelha sobre flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_PT-BR9232518610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-20 | [Vista aérea ao nascer do sol em Tiradentes, Minas Gerais (© Martinelli73/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.TiradentesMinasGerais_PT-BR9045751128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
