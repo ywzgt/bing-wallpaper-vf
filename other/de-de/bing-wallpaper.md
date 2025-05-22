@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-22 | [Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-21 | [Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-20 | [Honigbiene auf Lavendelblüte (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_DE-DE5467752918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-22 | [Árboles baobab al atardecer, Avenida de los Baobabs, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_ES-ES6995432921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-21 | [Jardín de té en la aldea de Yangjiatang, condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ES-ES6785967738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-20 | [Abeja melífera en flores de lavanda (© Anthony Brown/Alamy)](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ES-ES6507436350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
