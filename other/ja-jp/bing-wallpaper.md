@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-23 | [モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-22 | [バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_JA-JP8303382337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-21 | [楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_JA-JP8102249895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
