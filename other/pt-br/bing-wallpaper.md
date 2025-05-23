@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-24 | [Borboleta Julia no nariz de uma tartaruga de orelha amarela, Região Amazônica, Equador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_PT-BR4108571272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-23 | [Baobás ao pôr-do-sol, Avenida dos Baobás, Madagascar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_PT-BR2482029960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-22 | [Jardim de chá na Vila Yangjiatang, Condado de Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_PT-BR1905535535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
