@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-23 | [Julia-Falter auf der Nase einer Terekay-Schienenschildkröte, Amazonasgebiet, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_DE-DE3016646216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-22 | [Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-21 | [Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)](https://www.bing.com/th?id=OHR.SongyangTeaGarden_DE-DE9062718883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
