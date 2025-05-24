@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-25 | [ブッチャート・ガーデン,  カナダ ブリティッシュコロンビア州 (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_JA-JP0238801462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-24 | [水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)](https://www.bing.com/th?id=OHR.IrisSanguinea2025_JA-JP5445202799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-23 | [モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_JA-JP8547745457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
