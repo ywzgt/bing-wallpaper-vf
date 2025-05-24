@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-24 | [Jotunheimen-Nationalpark in Norwegen (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_DE-DE8444693160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-23 | [Julia-Falter auf der Nase einer Terekay-Schienenschildkröte, Amazonasgebiet, Ecuador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_DE-DE3016646216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-22 | [Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)](https://www.bing.com/th?id=OHR.BaobabAvenue_DE-DE3139251925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
