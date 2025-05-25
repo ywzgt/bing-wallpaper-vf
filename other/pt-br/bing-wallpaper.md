@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-26 | [Jardins de Butchart em Brentwood Bay, Colúmbia Britânica, Canadá (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_PT-BR7345483854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-25 | [Parque Nacional de Jotunheimen na Noruega (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_PT-BR4332808670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-24 | [Borboleta Julia no nariz de uma tartaruga de orelha amarela, Região Amazônica, Equador (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyTurtle_PT-BR4108571272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
