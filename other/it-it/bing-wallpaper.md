@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-26 | [Mount Hamilton, Baia di San Francisco, California, USA (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_IT-IT9272623470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-25 | [Giardini Butchart a Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_IT-IT9191711194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-24 | [Parco Nazionale di Jotunheimen, Norvegia (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_IT-IT9090188682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
