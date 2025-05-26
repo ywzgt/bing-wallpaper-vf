@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-27 | [モナベール・ロックプール, オーストラリア (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_JA-JP0665807696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-26 | [ヨトゥンヘイメン国立公園, ノルウェー (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_JA-JP7956990214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-25 | [ブッチャート・ガーデン,  カナダ ブリティッシュコロンビア州 (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_JA-JP0238801462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

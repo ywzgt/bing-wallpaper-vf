@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-27 | [Trem ao longo do rio Hozugawa em Arashiyama, Quioto, Japão (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_PT-BR6176827383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-26 | [Jardins de Butchart em Brentwood Bay, Colúmbia Britânica, Canadá (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_PT-BR7345483854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-25 | [Parque Nacional de Jotunheimen na Noruega (© Marisa Estivill/Shutterstock)](https://www.bing.com/th?id=OHR.JotunheimenPark_PT-BR4332808670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
