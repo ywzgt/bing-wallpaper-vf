@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-27 | [Mona Vale Ozean-Pool, Sydney, Australien (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_DE-DE2862421756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-26 | [Ein Zug fährt entlang des Hozugawa-Flusses in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)](https://www.bing.com/th?id=OHR.Arashiyama2025_DE-DE6569977297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-25 | [Butchart Gardens in Brentwood Bay, British Columbia, Kanada (© 2009fotofriends/Shutterstock)](https://www.bing.com/th?id=OHR.ButchartFlowers_DE-DE6034854764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
