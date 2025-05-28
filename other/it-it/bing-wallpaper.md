@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-28 | [Lontra marina nell'Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_IT-IT4372349313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-27 | [Ombrelloni simmetrici visti dall'alto, Massa, Toscana (© Abstract Aerial Art/DigitalVision)](https://www.bing.com/th?id=OHR.OmbrelliMassa_IT-IT4285785207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-26 | [Mount Hamilton, Baia di San Francisco, California, USA (© Jeffrey Lewis/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MountHamilton_IT-IT9272623470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-28 | [Loutre de mer au milieu de varech, refuge faunique national maritime d'Alaska, États-Unis (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_FR-FR8247286249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-27 | [Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_FR-FR8065557035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-26 | [Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)](https://www.bing.com/th?id=OHR.StorksMeadow_FR-FR7891953780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
