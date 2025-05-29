@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-30 | [グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-29 | [ミラベット, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_JA-JP1110549507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-28 | [海藻に巻かれたラッコ, 米国 アラスカ州 (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_JA-JP0838803999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
