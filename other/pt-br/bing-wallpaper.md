@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-31 | [Rio Little Pigeon, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_PT-BR7889046917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-30 | [Miravet às margens do rio Ebro, Tarragona, Catalunha, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_PT-BR7483184425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-29 | [Lontra-marinha flutuando entre algas no Refúgio Nacional de Vida Selvagem Marinha do Alasca, EUA (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_PT-BR7205269839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
