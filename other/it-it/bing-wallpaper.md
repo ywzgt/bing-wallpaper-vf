@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-30 | [Fiume Little Pigeon, Parco Nazionale delle Great Smoky Mountains, Tennessee, USA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_IT-IT1807202812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-29 | [Miravet sul fiume Ebro, Tarragona, Catalogna, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_IT-IT4503014691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-28 | [Lontra marina nell'Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_IT-IT4372349313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

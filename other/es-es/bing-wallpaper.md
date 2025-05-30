@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-30 | [Atardecer en el Parque Nacional del Teide, Santa Cruz de Tenerife, España (© DiegoJose/Adobe Stock)](https://www.bing.com/th?id=OHR.CanaryIslandDay_ES-ES5813844536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-29 | [Miravet en el río Ebro, Tarragona, Cataluña, España (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_ES-ES8030054546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-28 | [Nutria marina flotando en un lecho de algas en el Refugio Nacional de Vida Silvestre Marítimo de Alaska, EE. UU. (© Gerry Ellis/Minden Pictures)](https://www.bing.com/th?id=OHR.KelpOtter_ES-ES7948164932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
