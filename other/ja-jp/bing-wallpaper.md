@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-01 | [ニューカレドニア・バリア・リーフ, フランス (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_JA-JP5270810128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-31 | [クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_JA-JP5195008647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-30 | [グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_JA-JP4939584633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
