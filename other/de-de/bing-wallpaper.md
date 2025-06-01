@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-01 | [Barriere-Riff vor Grande Terre, Neukaledonien, Frankreich (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_DE-DE5368451110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-31 | [Naturschutzgebiet Knuthöjdsmossen, Schweden (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_DE-DE3687449792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-30 | [Little Pigeon River, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_DE-DE2665002576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

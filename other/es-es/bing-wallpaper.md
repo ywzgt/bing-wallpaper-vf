@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-01 | [Barrera de coral frente a Grande Terre, Nueva Caledonia, Francia (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_ES-ES6037163646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-31 | [Reserva natural de Knuthöjdsmossen, Suecia (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_ES-ES5600233708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-30 | [Atardecer en el Parque Nacional del Teide, Santa Cruz de Tenerife, España (© DiegoJose/Adobe Stock)](https://www.bing.com/th?id=OHR.CanaryIslandDay_ES-ES5813844536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
