@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [みなとみらい 21 地区, 神奈川県 横浜市 (© Shingo Tamura/Getty Images)](https://www.bing.com/th?id=OHR.YokohamaPort2025_JA-JP6222425156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [ニューカレドニア・バリア・リーフ, フランス (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_JA-JP5270810128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_JA-JP5195008647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
