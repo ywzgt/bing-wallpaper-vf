@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [Acordeonista tocando seu instrumento (© Fred_Pinheiro/Getty Images)](https://www.bing.com/th?id=OHR.BeginningFestasJuninas_PT-BR8821402766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [Reserva Natural Knuthöjdsmossen, Suécia (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_PT-BR8224811231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [Rio Little Pigeon, Parque Nacional das Grandes Montanhas Fumegantes, Tennessee, EUA (© GreenStock/Getty Images)](https://www.bing.com/th?id=OHR.LittlePigeonRiver_PT-BR7889046917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
