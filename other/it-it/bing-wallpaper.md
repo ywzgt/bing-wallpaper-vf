@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [Festa della Repubblica Italiana, Vittoriano, Piazza Venezia, Roma (© canbedone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RepubblicaGiugnoFesta_IT-IT6228684298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [Barriera corallina al largo di Grande Terre, Nuova Caledonia, Francia (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_IT-IT2395565523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [Riserva naturale di Knuthöjdsmossen, Svezia (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_IT-IT1642458062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [Vue et reflets de Blois, Val de Loire (© boerescul/Getty Images)](https://www.bing.com/th?id=OHR.BloisBridge_FR-FR5822069151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [Récif barrière au large de la Grande Terre, Nouvelle-Calédonie (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_FR-FR5223115069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [Réserve naturelle de Knuthöjdsmossen, Suède (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_FR-FR4947459912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

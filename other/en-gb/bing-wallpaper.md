@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-02 | [Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York, United States (© Marianne A. Campolongo/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_EN-GB1446569270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-01 | [Barrier reef off Grande Terre, New Caledonia, France (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_EN-GB1338968705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-31 | [Knuthöjdsmossen nature reserve, Sweden (© Sven Halling/DEEPOL/plainpicture)](https://www.bing.com/th?id=OHR.SwedenReserve_EN-GB1236157967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
