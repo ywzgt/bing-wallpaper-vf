@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-03 | [Vélos sur un pont à Utrecht, Pays-Bas (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_FR-FR5996200127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-02 | [Vue et reflets de Blois, Val de Loire (© boerescul/Getty Images)](https://www.bing.com/th?id=OHR.BloisBridge_FR-FR5822069151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-01 | [Récif barrière au large de la Grande Terre, Nouvelle-Calédonie (© Karsten Wrobel/Getty Images)](https://www.bing.com/th?id=OHR.GrandeTerreReef_FR-FR5223115069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
