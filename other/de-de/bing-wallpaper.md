@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-04 | [Strand Cala Luna, Sardinien, Italien (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_DE-DE8318114983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-04 | [Strand Cala Luna, Sardinien, Italien (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_DE-DE8329861715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-03 | [Fahrräder auf einer Brücke in Utrecht, Niederlande (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_DE-DE4256517633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

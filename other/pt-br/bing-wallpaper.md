@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-05 | [Praia Cala Luna, Sardenha, Itália (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_PT-BR9479768286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-04 | [Bicicletas em uma ponte em Utrecht, Países Baixos (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_PT-BR9202088294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-03 | [Borboleta Hesperiidae em uma equinácea, Parque Estadual Rockefeller, Nova York, EUA (© Marianne A. Campolongo/Alamy)](https://www.bing.com/th?id=OHR.EchinaceaButterfly_PT-BR8973487731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
