@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-04 | [Plage de Cala Luna, Sardaigne, Italie (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_FR-FR6223009660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-03 | [Vélos sur un pont à Utrecht, Pays-Bas (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_FR-FR5996200127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-02 | [Vue et reflets de Blois, Val de Loire (© boerescul/Getty Images)](https://www.bing.com/th?id=OHR.BloisBridge_FR-FR5822069151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
