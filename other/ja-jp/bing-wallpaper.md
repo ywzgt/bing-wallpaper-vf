@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-06 | [オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_JA-JP5652363702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-05 | [ペットボトルキャップのモザイク画, ベネズエラ (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_JA-JP5583290879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-04 | [カラルナビーチ, イタリア (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_JA-JP5500735927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
