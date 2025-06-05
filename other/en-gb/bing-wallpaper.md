@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-05 | [Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_EN-GB1816556360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-04 | [Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_EN-GB1693826190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-03 | [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.BicyclesUtrecht_EN-GB1571923554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
