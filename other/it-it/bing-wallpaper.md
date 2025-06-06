@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-06 | [Arromanches-les-Bains, Normandia, Francia (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_IT-IT6520932839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-05 | [Murale creato con tappi di bottiglia di Oscar Olivares a Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_IT-IT6465447947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-04 | [Cala Luna, Orosei, Sardegna (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_IT-IT6388289498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

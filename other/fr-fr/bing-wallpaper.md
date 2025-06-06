@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-06 | [Plage du débarquement d’Arromanches-les-Bains, Normandie (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_FR-FR1019139404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-05 | [Fresque en bouchons de bouteilles réalisée par Oscar Olivares à Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_FR-FR6395710668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-04 | [Plage de Cala Luna, Sardaigne, Italie (© guenterguni/Getty Images)](https://www.bing.com/th?id=OHR.CalaLuna_FR-FR6223009660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
