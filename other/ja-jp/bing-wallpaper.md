@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-07 | [アンジェルス国有林, 米国 カリフォルニア州 (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_JA-JP5723625676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-06 | [オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_JA-JP5652363702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-06 | [オオフラミ���ゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_JA-JP5652363702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
