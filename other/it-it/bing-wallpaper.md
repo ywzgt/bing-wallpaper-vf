@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-07 | [Vetta della Pine Mountain, Foresta Nazionale di Angeles, California, USA (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_IT-IT6678210437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-06 | [Arromanches-les-Bains, Normandia, Francia (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_IT-IT6520932839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-05 | [Murale creato con tappi di bottiglia di Oscar Olivares a Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_IT-IT6465447947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

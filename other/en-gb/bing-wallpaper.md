@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-07 | [Victoria Street in Edinburgh, Scotland (© Michael Greene/iStock/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaStreet2025_EN-GB2065816867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-06 | [Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_EN-GB1596892629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-05 | [Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_EN-GB1816556360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

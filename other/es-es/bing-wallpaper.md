@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-07 | [Montaña Pine, Bosque nacional de Ángeles, California, EE. UU. (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_ES-ES3148246580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-06 | [Arromanches-les-Bains en Normandía, Francia (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_ES-ES2863292551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-05 | [Mural ecológico de Oscar Olivares en Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.OlivaresMural_ES-ES7218911366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
