@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-08 | [Stellersche Seelöwen, Vancouver Island, British Columbia, Kanada (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_DE-DE0269577220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-07 | [Gipfel des Pine Mountain, Angeles National Forest, Kalifornien, USA (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_DE-DE7215406983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-06 | [Altstadt von Dubrovnik in Dalmatien, Kroatien (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_DE-DE7732789552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
