@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-09 | [Leões-marinhos-de-steller, Ilha de Vancouver, Colúmbia Britânica, Canadá (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_PT-BR8572574389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-08 | [Cume do Pine Mountain, Floresta Nacional de Angeles, Califórnia, EUA (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_PT-BR2793747825_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-07 | [Arromanches-les-Bains na Normandia, França (© Horia Merla/Getty Images)](https://www.bing.com/th?id=OHR.NormandyBeach_PT-BR1029038127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
