@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-09 | [Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)](https://www.bing.com/th?id=OHR.MillDetmold_DE-DE7498516874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-08 | [Stellersche Seelöwen, Vancouver Island, British Columbia, Kanada (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_DE-DE0269577220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-07 | [Gipfel des Pine Mountain, Angeles National Forest, Kalifornien, USA (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_DE-DE7215406983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-09 | [Città Vecchia di Dubrovnik, Dalmazia, Croazia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_IT-IT4694671968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-08 | [Leoni marini di Steller, Isola di Vancouver, British Columbia, Canada (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_IT-IT5341813083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-07 | [Vetta della Pine Mountain, Foresta Nazionale di Angeles, California, USA (© Matthew Kuhns/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.PacificCrestTrail_IT-IT6678210437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
