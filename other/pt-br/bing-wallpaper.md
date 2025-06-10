@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-11 | [Vista aérea do Parque Nacional Everglades, Flórida, EUA (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-10 | [Cidade Antiga de Dubrovnik, Dalmácia, Croácia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_PT-BR8704767990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-09 | [Leões-marinhos-de-steller, Ilha de Vancouver, Colúmbia Britânica, Canadá (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_PT-BR8572574389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
