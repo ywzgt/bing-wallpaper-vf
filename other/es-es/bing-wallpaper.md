@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-10 | [Vista aérea del Parque Nacional de los Everglades, Florida, EE. UU. (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_ES-ES3571741863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-09 | [La Manga del Mar Menor, Región de Murcia, España (© Alex Tihonov/Getty Images)](https://www.bing.com/th?id=OHR.MurciaDay_ES-ES3398985009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-08 | [Leones marinos de Steller, Isla de Vancouver, Columbia Británica, Canadá (© Steve Woods Photography/Getty Images)](https://www.bing.com/th?id=OHR.StellarSeaLions_ES-ES3294354632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
