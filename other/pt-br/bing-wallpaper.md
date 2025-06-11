@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-12 | [Flamingos-rosados em Lüderitz, Namíbia (© Karine Aigner/TANDEM Stills + Motion)  (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_PT-BR5557739797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-11 | [Vista aérea do Parque Nacional Everglades, Flórida, EUA (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_PT-BR5098908500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-10 | [Cidade Antiga de Dubrovnik, Dalmácia, Croácia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_PT-BR8704767990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
