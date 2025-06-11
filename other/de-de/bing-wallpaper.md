@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-11 | [Rosaflamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_DE-DE9012146004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-10 | [Luftaufnahme des Everglades-Nationalparks, Florida, USA (© Robert DelVecchio - OcuDrone/Getty Images)](https://www.bing.com/th?id=OHR.AerialEverglades_DE-DE7864298334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-09 | [Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)](https://www.bing.com/th?id=OHR.MillDetmold_DE-DE6095177325_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

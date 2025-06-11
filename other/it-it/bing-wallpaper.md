@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-11 | [Fenicotteri maggiori, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_IT-IT6908243385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-10 | [Vista di Amalfi, Salerno, Campania (© elxeneize/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AmalfiCampania_IT-IT5052027567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-09 | [Città Vecchia di Dubrovnik, Dalmazia, Croazia (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.DubrovnikTwilight_IT-IT4694671968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
