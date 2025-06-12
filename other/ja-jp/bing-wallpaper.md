@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-13 | [ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_JA-JP3142066706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-12 | [ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_JA-JP6210752580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-11 | [あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)](https://www.bing.com/th?id=OHR.Hydrangea2025_JA-JP6293958044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
