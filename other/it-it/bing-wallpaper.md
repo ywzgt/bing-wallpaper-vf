@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-13 | [Isolotto di Vila Franca, Isola di São Miguel, Azzorre, Portogallo (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_IT-IT5812547329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-12 | [Monti Chisos, Parco Nazionale Big Bend, Texas, USA (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_IT-IT7015361266_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-11 | [Fenicotteri maggiori, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.FlamingosNamibia_IT-IT6908243385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
