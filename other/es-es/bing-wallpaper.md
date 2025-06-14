@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-14 | [Cinque Torri, Dolomitas, Italia (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_ES-ES8254189997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-13 | [Islote de Vila Franca, Isla de São Miguel, Azores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_ES-ES2993664759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-12 | [Montañas Chisos, Parque Nacional Big Bend, Texas, EE. UU. (© Dean Fikar/Getty Images)](https://www.bing.com/th?id=OHR.BigBendChisos_ES-ES3904650593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
