@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-16 | [Macho de nandu-de-darwin com filhotes, Parque Nacional Torres del Paine, Patagônia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_PT-BR0280530641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-15 | [Cinco Torres, Dolomitas, Itália (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_PT-BR0683088540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-14 | [Ilhéu de Vila Franca, Ilha de São Miguel, Açores, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_PT-BR2658684793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
