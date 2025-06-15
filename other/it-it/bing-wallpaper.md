@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-15 | [Maschio adulto di Rhea pennata con pulcini, Parco Nazionale Torres del Paine, Patagonia, Cile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_IT-IT4866399219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-14 | [Cinque Torri, Dolomiti, Cortina d’Ampezzo, Belluno, Veneto (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_IT-IT5883847806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-13 | [Isolotto di Vila Franca, Isola di São Miguel, Azzorre, Portogallo (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_IT-IT5812547329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

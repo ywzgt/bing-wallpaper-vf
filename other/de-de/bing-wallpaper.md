@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-15 | [Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)](https://www.bing.com/th?id=OHR.WatertowerMannheim_DE-DE8334179684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-14 | [Cinque Torri, Dolomiten, Italien (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_DE-DE7890492022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-13 | [Insel Vila Franca do Campo, São Miguel, Azoren, Portugal (© ARoxo/Getty Images)](https://www.bing.com/th?id=OHR.SanMiguelAzores_DE-DE1015486500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
