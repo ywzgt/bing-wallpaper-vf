@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-17 | [カンバーランド島国立海岸, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_JA-JP7607865039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-16 | [碧い海に舞うウミガメ, ブラジル (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_JA-JP7521430958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-15 | [ダーウィンレアの父子, チリ (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_JA-JP7457572073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
