@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-16 | [Tortuga marina, Archipiélago de Fernando de Noroña, Brasil (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_ES-ES0110277118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-15 | [Macho adulto de ñandú con polluelos, Parque Nacional Torres del Paine, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://www.bing.com/th?id=OHR.RheaDad_ES-ES9999398761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-14 | [Cinque Torri, Dolomitas, Italia (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_ES-ES8254189997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
