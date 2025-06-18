@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-19 | [Borboleta sobre lírio-da-aranha-vermelha (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_PT-BR4054073154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-18 | [Floresta marítima na Ilha de Cumberland, Geórgia, EUA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_PT-BR4337233447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-17 | [Tartaruga-marinha, Fernando de Noronha (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_PT-BR6302602860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
