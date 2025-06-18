@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-18 | [Macaone asiatico su un Giglio del Ragno Rosso (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_IT-IT6116114113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-17 | [Foresta marittima nel Cumberland Island National Seashore, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_IT-IT6066692502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-16 | [Tartaruga marina, Fernando de Noronha, Brasile (© João Vianna/Getty Images)](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_IT-IT6000717103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
