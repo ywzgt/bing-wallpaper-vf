@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-20 | [セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-19 | [ホタルが光る森, 岡山県 (© JGalione/Getty Images)](https://www.bing.com/th?id=OHR.FireflySeason2025_JA-JP3057846302_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-18 | [彼岸花にナミアゲハ (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_JA-JP7699354207_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
