@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-19 | [Plage à Santa Catarina, Brésil (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_FR-FR5821587665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-18 | [Papillon machaon asiatique sur un lis araignée rouge (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_FR-FR5577967148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-17 | [Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CumberlandOaks_FR-FR5406318422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
