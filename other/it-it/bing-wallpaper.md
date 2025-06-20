@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-20 | [Riserva Naturale Orientata Saline di Trapani e Paceco, Trapani, Sicilia (© RobertoGennaro/E+)](https://www.bing.com/th?id=OHR.SaleTrapani_IT-IT6306427374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-19 | [Spiaggia a Santa Catarina, Brasile (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_IT-IT6219104998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-18 | [Macaone asiatico su un Giglio del Ragno Rosso (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_IT-IT6116114113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

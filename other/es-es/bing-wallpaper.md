@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-20 | [Cascada de Seljalandsfoss al atardecer, Islandia (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_ES-ES0482972208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-19 | [Playa en Santa Catarina, Brasil (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_ES-ES0401089663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-18 | [Mariposa cola de golondrina asiática en un lirio araña rojo (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_ES-ES0291489304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

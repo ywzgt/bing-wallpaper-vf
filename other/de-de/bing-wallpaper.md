@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-20 | [Massai-Giraffenmutter pflegt ihr Kalb im Serengeti-Nationalpark, Tansania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_DE-DE4851504112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-19 | [Strand in Santa Catarina, Brasilien (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_DE-DE2019737039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-18 | [Japanischer Schwalbenschwanz auf einer Spinnenlilie (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.AsianSwallowtail_DE-DE9625151337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
