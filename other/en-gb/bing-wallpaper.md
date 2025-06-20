@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-20 | [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-GB0487583415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-20 | [Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_EN-GB8989082610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-19 | [Cinque Torri, Dolomites, Italy (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_EN-GB8739058818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

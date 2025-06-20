@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-21 | [マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_JA-JP9470836014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-20 | [セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_JA-JP9258082333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-19 | [ホタルが光る森, 岡山県 (© JGalione/Getty Images)](https://www.bing.com/th?id=OHR.FireflySeason2025_JA-JP3057846302_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
