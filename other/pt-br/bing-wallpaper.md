@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-22 | [Girafa-masai cuidando seu filhote no Serengeti, Tanzânia (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_PT-BR2390228127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-21 | [Praia em Santa Catarina (© CaioCarvalhoPhotography/Getty Images)](https://www.bing.com/th?id=OHR.WinterBegins_PT-BR2647021709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-20 | [Cascata de Seljalandsfoss ao entardecer, na Islândia (© Tom Mackie/AWL/plainpicture)](https://www.bing.com/th?id=OHR.IcelandSolstice_PT-BR2763816413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
