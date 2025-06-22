@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-22 | [Forêt amazonienne, Équateur (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_FR-FR0161902785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-21 | [Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.AntibesMusic_FR-FR0026620746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-20 | [Girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_FR-FR9630201314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
