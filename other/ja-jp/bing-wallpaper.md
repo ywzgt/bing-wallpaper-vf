@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [ドレスデン, ドイツ (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_JA-JP9615629760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-22 | [アマゾン熱帯雨林, エクアドル (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_JA-JP9558319744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-21 | [マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)](https://www.bing.com/th?id=OHR.SerengetiGiraffe_JA-JP9470836014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
