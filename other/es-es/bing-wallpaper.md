@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-23 | [Bahía de Cala D'hort, Ibiza, España (© Juergen Sack/Getty Images)](https://www.bing.com/th?id=OHR.CalaIbiza_ES-ES1129716294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-22 | [Selva amazónica, Ecuador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_ES-ES0820958985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-21 | [Playa de Portonovo en la Ría de Pontevedra, España (© Andres Garcia Martin/Shutterstock)](https://www.bing.com/th?id=OHR.WorldTriathlonMultisport_ES-ES0689492688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
