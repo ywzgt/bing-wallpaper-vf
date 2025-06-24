@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-24 | [Eibsee, Bayern (© NejauPhoto/Getty Images)](https://www.bing.com/th?id=OHR.ScenicEibsee_DE-DE0418956156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-23 | [Elbe in Dresden, Sachsen (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_DE-DE5406785601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-22 | [Amazonas-Regenwald, Ecuador  (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_DE-DE0206747669_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-24 | [Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)](https://www.bing.com/th?id=OHR.BolozonViaduct_FR-FR0653638254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-23 | [Fleuve Elbe à Dresde, Allemagne (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_FR-FR0408515096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-22 | [Forêt amazonienne, Équateur (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_FR-FR0161902785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
