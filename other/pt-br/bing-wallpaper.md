@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-25 | [Araraquara, São Paulo (© Dante Laurini Jr. Imagens/Getty Images)](https://www.bing.com/th?id=OHR.Araraquara_PT-BR8567454542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-24 | [Rio Elba em Dresden, Alemanha (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.DresdenElbe_PT-BR8840681682_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-23 | [Floresta Amazônica, Equador (© Mark Fox/Getty Images)](https://www.bing.com/th?id=OHR.AmazonEcuador_PT-BR8954239087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
