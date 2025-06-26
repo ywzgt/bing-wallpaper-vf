@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-26 | [La Vía Láctea sobre Horse Head Rock, Nueva Gales del Sur, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_ES-ES1398658009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-25 | [Torre de la iglesia de San Miguel en Glastonbury Tor, Glastonbury, Somerset, Inglaterra (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_ES-ES1318845810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-24 | [Delicate Arch, Parque nacional de los Arcos, Utah, EE. UU. (© mmac72/Getty Images)](https://www.bing.com/th?id=OHR.DelicateArch_ES-ES1233867011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-26 | [Die Milchstraße über Horse Head Rock, Neusüdwales, Australien (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_DE-DE6717487152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-25 | [St. Michael's Church Tower auf dem Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_DE-DE4536606439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-24 | [Eibsee, Bayern (© NejauPhoto/Getty Images)](https://www.bing.com/th?id=OHR.ScenicEibsee_DE-DE0418956156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
