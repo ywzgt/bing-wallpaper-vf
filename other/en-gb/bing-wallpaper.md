@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-27 | [Splendid leaf frog (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_EN-GB1133553624_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-26 | [The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_EN-GB7257455536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-25 | [St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_EN-GB0067703807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

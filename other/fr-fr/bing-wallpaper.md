@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-27 | [Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_FR-FR6442943512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-26 | [Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_FR-FR1124567196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-25 | [Tour Saint-Michel, colline Glastonbury Tor, Somerset, Angleterre (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.GlastonburyScenic_FR-FR0937508877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
