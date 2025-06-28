@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-28 | [Calle con banderas del orgullo LGBTQI+, Sitges, Cataluña, España (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.PrideCatalonia_ES-ES0481311914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-27 | [Rana de hoja espléndida (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_ES-ES0147065495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-26 | [La Vía Láctea sobre Horse Head Rock, Nueva Gales del Sur, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_ES-ES1398658009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

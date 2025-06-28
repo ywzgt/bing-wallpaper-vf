@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-28 | [Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)](https://www.bing.com/th?id=OHR.MarienplatzCSD_DE-DE0126550227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-27 | [Prachtgreiffrosch (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_DE-DE7801241876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-26 | [Die Milchstraße über Horse Head Rock, Neusüdwales, Australien (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_DE-DE6717487152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

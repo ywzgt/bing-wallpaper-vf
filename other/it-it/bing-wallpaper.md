@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-28 | [Bandiere Arcobaleno al New York Pride, USA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-27 | [Pesce pagliaccio, Milne Bay, Papua Nuova Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-26 | [La Via Lattea sopra Horse Head Rock, Nuovo Galles del Sud, Australia (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_IT-IT0871929651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
