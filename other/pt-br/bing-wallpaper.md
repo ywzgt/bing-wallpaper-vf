@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-29 | [Parada do Orgulho LGBTQIA+ em Nova York, EUA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-28 | [Cruziohyla calcarifer, rã arborícola (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-27 | [Via Láctea sobre a Horse Head Rock, Nova Gales do Sul, Austrália (© Philip Thurston/Getty Images)](https://www.bing.com/th?id=OHR.HorseheadRock_PT-BR5419648033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
