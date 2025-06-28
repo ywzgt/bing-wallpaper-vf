@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-29 | [緑の森と青い海, インドネシア (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_JA-JP3779837840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-28 | [風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_JA-JP3577767759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-27 | [魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_JA-JP3345232589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
