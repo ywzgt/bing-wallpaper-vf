@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-29 | [Laguna blu di Pulau Ay, Isole Banda, Indonesia (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_IT-IT2071858356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-28 | [Bandiere Arcobaleno al New York Pride, USA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_IT-IT2013687797_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-27 | [Pesce pagliaccio, Milne Bay, Papua Nuova Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_IT-IT1939766498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
