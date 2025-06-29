@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-30 | [Pulau Ay, Ilhas Banda, Indonésia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_PT-BR1841651609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-29 | [Parada do Orgulho LGBTQIA+ em Nova York, EUA (© Alan Schein/Getty Images)](https://www.bing.com/th?id=OHR.PrideParade_PT-BR2044753051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-28 | [Cruziohyla calcarifer, rã arborícola (© Jan Stria/Shutterstock)](https://www.bing.com/th?id=OHR.SplendidFrog_PT-BR2454660849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
