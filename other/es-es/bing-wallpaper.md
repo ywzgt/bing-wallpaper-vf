@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-30 | [Cráter Wolfe Creek, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_ES-ES0950300171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-29 | [Laguna azul de Pulau Ay, Islas Banda, Indonesia (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_ES-ES0659509057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-28 | [Calle con banderas del orgullo LGBTQI+, Sitges, Cataluña, España (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.PrideCatalonia_ES-ES0481311914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
