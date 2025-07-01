@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-01 | [Papillon et abeille butinant délicatement une fleur aster (© Viviane Caballero/500px Viviane Caballero/500px/Getty Images)](https://www.bing.com/th?id=OHR.ButterflyPurpleFlower_FR-FR7407948243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-30 | [Cratère de Wolfe Creek, Australie (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_FR-FR7427852782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-29 | [Lagon bleu de Pulau Ay, îles Banda, Indonésie (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_FR-FR6889157009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

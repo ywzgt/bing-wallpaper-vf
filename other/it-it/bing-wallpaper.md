@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-01 | [Villaggio di pescatori di Tilting, Isola di Fogo, Terranova e Labrador, Canada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_IT-IT2208843144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-30 | [Cratere di Wolfe Creek, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_IT-IT2121882402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-29 | [Laguna blu di Pulau Ay, Isole Banda, Indonesia (© fabio lamanna/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BandaIsland_IT-IT2071858356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

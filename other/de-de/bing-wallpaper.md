@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-01 | [Fischerdorf Tilting, Fogo Island, Neufundland und Labrador, Kanada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_DE-DE8180601933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-30 | [Wolfe-Creek-Krater, Australien (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_DE-DE8115529012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-29 | [Blaue Lagune, Pulau Ai, Banda-Inseln, Indonesien (© fabio lamanna/Alamy)](https://www.bing.com/th?id=OHR.BandaIsland_DE-DE7986522169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
