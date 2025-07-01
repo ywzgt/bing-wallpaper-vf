@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-02 | [スパインチーク・アネモネフィッシュ, パプアニューギニア (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_JA-JP7352602108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-01 | [赤と白の漁師小���, カナダ (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_JA-JP7164591765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-01 | [赤と白の漁師小屋, カナダ (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_JA-JP7164591765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
