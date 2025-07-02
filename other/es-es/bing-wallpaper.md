@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-02 | [Fuegos artificiales en Palamós, Gerona, Cataluña, España (© Nigel Perrin/Getty Images)](https://www.bing.com/th?id=OHR.TarragonaFireworks_ES-ES2035632810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-01 | [Pueblo pesquero de Tilting, isla de Fogo, Terranova y Labrador, Canadá (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_ES-ES1121865641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-30 | [Cráter Wolfe Creek, Australia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_ES-ES0950300171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

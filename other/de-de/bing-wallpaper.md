@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-02 | [Historische Fachwerkhäuser am Marktplatz, Calw, Baden-Württemberg (© imageBROKER/Getty Images)](https://www.bing.com/th?id=OHR.CalwMarketsquare_DE-DE9027821635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-01 | [Fischerdorf Tilting, Fogo Island, Neufundland und Labrador, Kanada (© FedevPhoto/Getty Images)](https://www.bing.com/th?id=OHR.CanadaDayFogo_DE-DE8180601933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-30 | [Wolfe-Creek-Krater, Australien (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.WolfeCrater_DE-DE8115529012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
