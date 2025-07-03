@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-04 | [ドロミーティ, イタリア (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_JA-JP7772253981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-03 | [レインボー・スプリングス州立公園, 米国 フロリダ州 (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_JA-JP7583183252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-02 | [スパインチーク・アネモネフィッシュ, パプアニューギニア (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_JA-JP7352602108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
