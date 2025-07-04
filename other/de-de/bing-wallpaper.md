@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-04 | [Orosei, Sardinien, Italien (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_DE-DE8440593584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-03 | [Rainbow River im Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_DE-DE1687862683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-02 | [Historische Fachwerkhäuser am Marktplatz, Calw, Baden-Württemberg (© imageBROKER/Getty Images)](https://www.bing.com/th?id=OHR.CalwMarketsquare_DE-DE9027821635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
