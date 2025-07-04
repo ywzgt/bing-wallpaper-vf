@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-05 | [Orosei, Sardenha, Itália (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_PT-BR7332752018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-04 | [Rainbow River no Parque Estadual Rainbow Springs, Flórida, EUA (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_PT-BR7721810301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-03 | [Peixe-palhaço cercado por anémona de ponta de bolha, Baía Milne, Papua-Nova Guiné (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_PT-BR9242833832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
