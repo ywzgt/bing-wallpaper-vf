@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-05 | [Discesa dal Col du Tourmalet nei Pirenei francesi durante il Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_IT-IT1688082798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-04 | [Cala Luna, Orosei, Provincia di Nuoro, Sardegna (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_IT-IT2532664756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-03 | [Fiume Rainbow nel Parco Statale di Rainbow Springs, Florida, USA (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_IT-IT2380058164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

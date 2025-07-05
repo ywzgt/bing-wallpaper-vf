@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-05 | [Descente du col du Tourmalet lors du Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_FR-FR4479097065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-04 | [Orosei, Sardaigne, Italie (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_FR-FR4370872020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-03 | [Rivière Rainbow, parc d'État de Rainbow Springs, États-Unis (© Michel Roggo/Minden Pictures)](https://www.bing.com/th?id=OHR.RainbowRiver_FR-FR9088497231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-05 | [Descenso del Col du Tourmalet en los Pirineos franceses durante el Tour de Francia 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_ES-ES2642482383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-04 | [Cala Luna, Golfo de Orosei, Cerdeña, Italia (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_ES-ES2424357191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-03 | [Pez payaso marrón rodeado de anémonas, Bahía de Milne, Papúa Nueva Guinea (© Fred Bavendam/Nature Picture Library)](https://www.bing.com/th?id=OHR.MaroonClownfish_ES-ES2159485386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
