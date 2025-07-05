@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-06 | [デスバレー国立公園, 米国 カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_JA-JP8164814192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-05 | [ツールマレー峠を越えるサイクリストたち, フランス (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_JA-JP7957952597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-04 | [ドロミーティ, イタリア (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_JA-JP7772253981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
