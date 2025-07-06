@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-06 | [Mesquite Flat Sanddünen im Death-Valley-Nationalpark, Kalifornien, USA (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_DE-DE8559445673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-05 | [Abfahrt vom Col du Tourmalet in den französischen Pyrenäen während der Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_DE-DE8646205107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-04 | [Orosei, Sardinien, Italien (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_DE-DE8440593584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
