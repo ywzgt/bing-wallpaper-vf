@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-07 | [Estação da Luz, São Paulo (© Thiago Leite/Getty Images)](https://www.bing.com/th?id=OHR.LuzTrainStation_PT-BR2740667890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-06 | [Descendo o Col du Tourmalet nos Pirineus Franceses durante o Tour de France de 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_PT-BR7101662608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-05 | [Orosei, Sardenha, Itália (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.OroseiSardegna_PT-BR7332752018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
