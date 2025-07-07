@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-08 | [パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.WheatFields2025_JA-JP0694604988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-07 | [鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)](https://www.bing.com/th?id=OHR.Tanabata2025_JA-JP0218360290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-06 | [デスバレー国立公園, 米国 カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_JA-JP8164814192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
