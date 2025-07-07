@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-07 | [Alcatraz atlántico buceando en busca de peces, Islas Shetland, Escocia (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_ES-ES2850528780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-06 | [Dunas de arena planas de Mesquite en el Parque Nacional del Valle de la Muerte, California, EE. UU. (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_ES-ES2757827262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-05 | [Descenso del Col du Tourmalet en los Pirineos franceses durante el Tour de Francia 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_ES-ES2642482383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-07 | [Sule settentrionali in immersione alla ricerca di pesce, Isole Shetland, Scozia (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_IT-IT2720152530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-06 | [Dune di sabbia di Mesquite Flat nel Parco Nazionale della Valle della Morte, California, USA (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_IT-IT2661681308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-05 | [Discesa dal Col du Tourmalet nei Pirenei francesi durante il Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_IT-IT1688082798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

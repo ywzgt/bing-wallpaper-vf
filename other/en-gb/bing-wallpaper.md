@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-07 | [Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_EN-GB3393360437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-06 | [Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)](https://www.bing.com/th?id=OHR.TourCyclists_EN-GB3254018245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-05 | [Pride in London in 2016 (© Gail Orenstein/NurPhoto/Getty Images)](https://www.bing.com/th?id=OHR.PrideInLondon2025_EN-GB3089444985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
