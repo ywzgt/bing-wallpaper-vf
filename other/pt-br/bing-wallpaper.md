@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-09 | [Preguiça-comum pendurada em árvore no Rio de Janeiro (© MaViLa/Getty Images)](https://www.bing.com/th?id=OHR.NationalScienceDay_PT-BR3314898058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-08 | [Gansos-patola mergulhando em busca de peixes, Ilhas Shetland, Escócia (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_PT-BR6855447396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-07 | [Estação da Luz, São Paulo (© Thiago Leite/Getty Images)](https://www.bing.com/th?id=OHR.LuzTrainStation_PT-BR2740667890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
