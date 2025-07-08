@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-09 | [コンスティトゥシオン駅, アルゼンチン (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_JA-JP9081110784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-08 | [パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.WheatFields2025_JA-JP0694604988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-07 | [鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)](https://www.bing.com/th?id=OHR.Tanabata2025_JA-JP0218360290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
