@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-08 | [Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)](https://www.bing.com/th?id=OHR.BaieSomme_FR-FR5529600506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-07 | [Fous de Bassan à la recherche de poissons, îles Shetland, Écosse (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_FR-FR5293037699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-06 | [Dunes de Mesquite Flat dans le parc national de la Vallée de la Mort, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MesquiteFlats_FR-FR4877513752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
