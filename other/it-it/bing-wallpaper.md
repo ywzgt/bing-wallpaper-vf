@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-09 | [Stazione Ferroviaria di Constitución, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_IT-IT2913035611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-08 | [Seceda, vetta delle Dolomiti, Val Gardena, Trentino-Alto Adige (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_IT-IT2850226603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-07 | [Sule settentrionali in immersione alla ricerca di pesce, Isole Shetland, Scozia (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_IT-IT2720152530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

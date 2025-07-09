@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-09 | [Constitución-Bahnhof, Buenos Aires, Argentinien (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_DE-DE6862611016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-08 | [Seceda, ein Gipfel in den Dolomiten, Südtirol, Italien (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_DE-DE7304303596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-07 | [Nach Fisch tauchende Basstölpel, Shetlandinseln, Schottland (© Richard Shucksmith/Minden Pictures)](https://www.bing.com/th?id=OHR.ShetlandGannets_DE-DE8492203831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
