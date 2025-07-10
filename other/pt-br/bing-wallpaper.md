@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-11 | [Águas turquesa das Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_PT-BR4354630844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-10 | [Estação ferroviária Constitución, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_PT-BR4627636298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-09 | [Preguiça-comum pendurada em árvore no Rio de Janeiro (© MaViLa/Getty Images)](https://www.bing.com/th?id=OHR.NationalScienceDay_PT-BR3314898058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
