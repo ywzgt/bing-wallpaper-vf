@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-10 | [Acque turchesi delle Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_IT-IT2994052693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-09 | [Stazione Ferroviaria di Constitución, Buenos Aires, Argentina (© Grafissimo/Getty Images)](https://www.bing.com/th?id=OHR.ConstitucionStation_IT-IT2913035611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-08 | [Seceda, vetta delle Dolomiti, Val Gardena, Trentino-Alto Adige (© Kalyakan/Adobe Stock)](https://www.bing.com/th?id=OHR.SecedaPeak_IT-IT2850226603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
