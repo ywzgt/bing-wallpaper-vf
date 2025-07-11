@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-12 | [マサイマラ国立保護区, ケニア (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_JA-JP8883266814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-11 | [1400 万の人口を抱える大都市, 東京 (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_JA-JP8418771987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-10 | [ターコイズブルーの海, バハマ (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_JA-JP9790462699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
