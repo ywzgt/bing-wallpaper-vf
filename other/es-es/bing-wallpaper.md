@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-12 | [Ribadesella, Asturias, España (© Agnieszka Glowala/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RibadesellaSummer_ES-ES5366585834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-11 | [Tokio al amanecer, Japón (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_ES-ES5285423958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-10 | [Aguas turquesas de las Bahamas (© BlueOrange Studio/Adobe Stock)](https://www.bing.com/th?id=OHR.BahamaBlues_ES-ES3186595692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
