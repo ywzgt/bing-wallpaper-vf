@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-14 | [ガリシア沖を泳ぐヨシキリザメ, スペイン (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_JA-JP0204898221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-13 | [カールフザマルスヴィーク, アイスランド (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_JA-JP9334958471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-12 | [マサイマラ国立保護区, ケニア (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_JA-JP8883266814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
