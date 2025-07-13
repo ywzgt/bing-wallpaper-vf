@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-13 | [Basaltsäulen in der Bucht von Kálfshamarsvík, Halbinsel Skagi, Island (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_DE-DE6897663571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-12 | [Thomson-Gazelle, Mutter und Kitz, Maasai Mara, Kenia (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_DE-DE6657498392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-11 | [Tokio bei Sonnenaufgang, Japan (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_DE-DE6224327686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

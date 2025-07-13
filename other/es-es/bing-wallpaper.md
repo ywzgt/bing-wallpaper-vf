@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-13 | [Columnas de basalto en la cala de Kálfshamarsvík, península de Skagi, Islandia (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_ES-ES5645735099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-12 | [Ribadesella, Asturias, España (© Agnieszka Glowala/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RibadesellaSummer_ES-ES5366585834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-11 | [Tokio al amanecer, Japón (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSunrise_ES-ES5285423958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
