@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-15 | [Jovem tubarão-azul nadando na costa da Galícia, Espanha (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_PT-BR8738658851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-14 | [Colunas de basalto na enseada de Kálfshamarsvík, península de Skagi, Islândia (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_PT-BR7052531189_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-13 | [Gazela-de-thomson mãe e filhote, Maasai Mara, Quênia (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_PT-BR6496352663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
