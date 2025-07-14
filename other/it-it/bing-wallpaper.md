@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-14 | [Cattedrale di Palermo, Palermo, Sicilia (© Sean Pavone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.CattedraleDiPalermo_IT-IT0519609819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-13 | [Colonne di basalto nell'insenatura di Kálfshamarsvík, penisola di Skagi, Islanda (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_IT-IT0459542026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-12 | [Gazelle di Thomson, Madre con prole, Masai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_IT-IT0397264762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

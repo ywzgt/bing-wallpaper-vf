@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-14 | [Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_EN-GB9221315811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-13 | [Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy)](https://www.bing.com/th?id=OHR.BasaltColumns_EN-GB5254717473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-12 | [Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_EN-GB4953743424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-14 | [Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)](https://www.bing.com/th?id=OHR.BastilleDayCelebration_FR-FR1452357775_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-13 | [Colonnes de basalte dans la crique de Kálfshamarsvík, Skagi, Islande (© Arterra Picture Library/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BasaltColumns_FR-FR0922377003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-12 | [Gazelle de Thomson, mère et faon, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_FR-FR0750503899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
