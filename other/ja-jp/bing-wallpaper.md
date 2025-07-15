@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-16 | [フィラエ神殿, エジプト (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_JA-JP1883182948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-15 | [グレートベースン国立公園, 米国 ネバダ州 (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_JA-JP0980673364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-14 | [ガリシア沖を泳ぐヨシキリザメ, スペイン (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_JA-JP0204898221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
