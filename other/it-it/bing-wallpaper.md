@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-16 | [Tempio di Philae, Assuan, Egitto (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_IT-IT7785409392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-15 | [Pioggia di meteore delle Perseidi e un antico pino setoloso, Parco Nazionale del Great Basin, Nevada, USA (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_IT-IT7125588777_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-14 | [Cattedrale di Palermo, Palermo, Sicilia (© Sean Pavone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.CattedraleDiPalermo_IT-IT0519609819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
