@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-17 | [Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.LavenderWesterhever_DE-DE4832117412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-16 | [Tempel von Philae, Assuan, Ägypten (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_DE-DE7883088350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-15 | [Perseiden-Meteorschauer und eine alte Borstenkiefer, Great-Basin-Nationalpark, Nevada, USA (© Wirestock Creators/Shutterstock)](https://www.bing.com/th?id=OHR.PerseidsPine_DE-DE7245690852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
