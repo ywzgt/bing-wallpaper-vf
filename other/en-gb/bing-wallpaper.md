@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_EN-GB6231237422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_EN-GB9687234826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-16 | [Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_EN-GB9547201805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Familia de artamo ceniciento posadas en una rama en Tailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Noche estrellada en el Valle de Ordesa, Aragón, España (© Inigo Cia/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasAragon_ES-ES4625376331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-16 | [Templo de Isis, Asuán, Egipto (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_ES-ES6627799153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

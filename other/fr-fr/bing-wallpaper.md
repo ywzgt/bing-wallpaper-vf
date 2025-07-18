@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Champs de lavande sur le plateau de Valensole, Provence (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_FR-FR3750510454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-16 | [Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)](https://www.bing.com/th?id=OHR.TemplePhilae_FR-FR2354978280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

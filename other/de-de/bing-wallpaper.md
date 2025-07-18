@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-18 | [Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.MiravetSpain_DE-DE1175039382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-17 | [Blühender Strandflieder und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.LavenderWesterhever_DE-DE1062458785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-17 | [Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.LavenderWesterhever_DE-DE4832117412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
