@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-19 | [サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_JA-JP3107889250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-18 | [ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_JA-JP1752445418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-17 | [ヴァレンソール高原のラベンダー畑, フランス (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_JA-JP2202328070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
