@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-20 | [Partida da Copa das Confederações da FIFA Brasil 2013, Estádio Nacional, Brasília (© Clive Mason/Getty Images)](https://www.bing.com/th?id=OHR.NationalSoccerDay_PT-BR3956559362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-19 | [Girassóis florindo em um campo no verão (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_PT-BR8599256131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-18 | [Campos de lavanda no Planalto de Valensole, França (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_PT-BR8916363629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
