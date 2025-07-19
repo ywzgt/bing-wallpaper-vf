@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-20 | [観測機器で撮影された月 (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_JA-JP3459565714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-19 | [サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_JA-JP3107889250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-18 | [ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiEstate_JA-JP1752445418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
