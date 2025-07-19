@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-19 | [Actias Luna, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_IT-IT2222446823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-18 | [Piscina oceanica di Mona Vale, Sydney, Australia (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_IT-IT0291843782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-17 | [Campi di lavanda a Plateau de Valensole, Francia (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.FranceLavender_IT-IT7177980672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
