@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-20 | [Foto de la superficie de la luna a través de un telescopio (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_ES-ES7673891948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-19 | [Polilla de la luna descansando sobre olmo de cedro, New Braunfels, Texas, EE. UU. (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_ES-ES7594362162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-18 | [Familia de artamo ceniciento posadas en una rama en Tailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_ES-ES2269692997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-20 | [Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_FR-FR5081716230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-19 | [Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)](https://www.bing.com/th?id=OHR.Saumur_FR-FR4957130952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-18 | [Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)](https://www.bing.com/th?id=OHR.YoungShark_FR-FR2342809860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
