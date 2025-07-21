@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-21 | [Buckingham Palace, London (© Leonid Andronov/Shutterstock)](https://www.bing.com/th?id=OHR.BuckinghamPalaceOpening2025_EN-GB0680195600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-20 | [Photo of the moon's surface through a telescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_EN-GB0070261176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-19 | [Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)](https://www.bing.com/th?id=OHR.MothWeek_EN-GB9944593474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

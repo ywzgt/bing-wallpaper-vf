@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-21 | [Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_FR-FR5200865280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-20 | [Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_FR-FR5081716230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-19 | [Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)](https://www.bing.com/th?id=OHR.Saumur_FR-FR4957130952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
