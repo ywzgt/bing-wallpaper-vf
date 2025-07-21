@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-22 | [Coral chifre-de-veado em Bonaire, Caribe Neerlandês (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-21 | [Superfície da Lua vista por telescópio (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_PT-BR8604757050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-20 | [Partida da Copa das Confederações da FIFA Brasil 2013, Estádio Nacional, Brasília (© Clive Mason/Getty Images)](https://www.bing.com/th?id=OHR.NationalSoccerDay_PT-BR3956559362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
