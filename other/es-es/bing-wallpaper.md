@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-22 | [Madre y gazapillo de gacela de Thomson, Maasai Mara, Kenia (© Gallo Images/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.ThomsonGazelle_ES-ES5485485713_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-21 | [Coral cuerno de ciervo en el Caribe Neerlandés (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_ES-ES7878732690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-20 | [Foto de la superficie de la luna a través de un telescopio (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_ES-ES7673891948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
