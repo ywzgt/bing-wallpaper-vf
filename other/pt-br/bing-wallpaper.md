@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-23 | [Reflorestamento de eucaliptos em Santa Catarina (© YES BRASIL/Getty Images)](https://www.bing.com/th?id=OHR.EucaliptoSC_PT-BR8170247706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-22 | [Coral chifre-de-veado em Bonaire, Caribe Neerlandês (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_PT-BR8456645465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-21 | [Superfície da Lua vista por telescópio (© Sergey Kuznetsov/Getty Images)](https://www.bing.com/th?id=OHR.BigMoon_PT-BR8604757050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
