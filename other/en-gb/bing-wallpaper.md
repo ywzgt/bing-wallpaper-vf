@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-23 | [Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-GB1750782941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-22 | [Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BadlandsSunset_EN-GB0865631210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-21 | [Buckingham Palace, London (© Leonid Andronov/Shutterstock)](https://www.bing.com/th?id=OHR.BuckinghamPalaceOpening2025_EN-GB0680195600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

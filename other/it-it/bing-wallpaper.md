@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-23 | [Alassio, Savona, Liguria (© Xantana/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.AlassioLiguria_IT-IT1114546774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-22 | [Tramonto sul Parco Nazionale di Badlands, South Dakota, USA (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BadlandsSunset_IT-IT3807784060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-21 | [Corallo Staghorn, Isola di Bonaire, Caraibi olandesi (© blue-sea.cz/Shutterstock)](https://www.bing.com/th?id=OHR.AcroporaReef_IT-IT2371984871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
