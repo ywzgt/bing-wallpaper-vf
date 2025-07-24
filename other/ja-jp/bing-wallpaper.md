@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-25 | [ラス・パルマス・デ・グラン・カナリア, スペイン (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_JA-JP9180112071_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-24 | [枝にとまるハイイロモリツバメ (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_JA-JP4870541560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-23 | [提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)](https://www.bing.com/th?id=OHR.GionFestival2025_JA-JP8597633874_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
