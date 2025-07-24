@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-24 | [Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)](https://www.bing.com/th?id=OHR.BayreuthTheatre_DE-DE1209418300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-23 | [Vatikanstadt mit dem Petersdom, Rom, Italien (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_DE-DE5887283665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-22 | [Sonnenuntergang über dem Badlands-Nationalpark, South Dakota, USA (© Petr Bednarik/Danita Delimont/Alamy)](https://www.bing.com/th?id=OHR.BadlandsSunset_DE-DE6485321128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

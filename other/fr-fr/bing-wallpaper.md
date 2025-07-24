@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-24 | [Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_FR-FR6064394705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-23 | [La Cité du Vatican avec la basilique Saint-Pierre, Rome, Italie (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_FR-FR5939943225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-22 | [Coucher de soleil sur le parc national des Badlands, Dakota du Sud, États-Unis (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.BadlandsSunset_FR-FR5355431035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
