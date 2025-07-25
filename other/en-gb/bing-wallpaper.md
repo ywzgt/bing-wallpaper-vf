@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-25 | [Aerial view of colourful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_EN-GB9088334179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-24 | [Family of ashy woodswallows perched on a branch (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_EN-GB1919369910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-23 | [Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.VaticanCity_EN-GB1750782941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
