@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-27 | [Manguezais ao entardecer, Praia de Walakiri, ilha de Sumba, Indonésia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_PT-BR1374948765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-26 | [Vista aérea das casas coloridas em Palmas da Grã-Canária, Espanha (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_PT-BR7218640401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-25 | [Família de Artamus fuscus empoleirada em um galho na Tailândia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_PT-BR6492437124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
