@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-26 | [Mangrovie al tramonto, Spiaggia di Walakiri, Isola di Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_IT-IT8283933203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-25 | [Vista aerea case colorate, Las Palmas de Gran Canaria, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_IT-IT1381176116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-24 | [Famiglia di rondini boscherecce su un ramo, Thailandia (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_IT-IT1611565241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

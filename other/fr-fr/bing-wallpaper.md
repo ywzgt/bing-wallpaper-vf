@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-26 | [Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_FR-FR3644459674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-25 | [Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_FR-FR4425436788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-24 | [Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)](https://www.bing.com/th?id=OHR.AshyWoodswallow_FR-FR6064394705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
