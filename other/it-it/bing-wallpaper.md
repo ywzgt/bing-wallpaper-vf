@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-27 | [Cattedrale di San Giuliano, Caltagirone, Catania, Sicilia (© Javier Cosio/iStock)](https://www.bing.com/th?id=OHR.CaltagironeSicilia_IT-IT1493069823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-26 | [Mangrovie al tramonto, Spiaggia di Walakiri, Isola di Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_IT-IT8283933203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-25 | [Vista aerea case colorate, Las Palmas de Gran Canaria, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_IT-IT1381176116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-27 | [Dunkelflossen-Barrakuda-Schwarm, Haifisch-Riff, Ras-Mohammed-Nationalpark, Sinai-Halbinsel, Ägypten (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_DE-DE5710611584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-26 | [Mangrovenbäume bei Dämmerung, Walakiri Beach auf der Insel Sumba, Indonesien (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_DE-DE5475424156_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-25 | [Luftaufnahme von bunten Häusern, Las Palmas de Gran Canaria, Spanien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_DE-DE5219971738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

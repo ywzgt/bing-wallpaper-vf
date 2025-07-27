@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-27 | [Cardumen de barracudas, Parque Nacional Ras Mohammed, Península del Sinaí, Egipto (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_ES-ES3397140891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-26 | [Vista aérea de casas coloridas, Las Palmas de Gran Canaria, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.LasPalmas_ES-ES3269515440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-25 | [Faro en Vigo, Galicia, España (© Adrian Abelleira Rodriguez/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.GaliciaDay_ES-ES2507386877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
