@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-29 | [Yurts nas planícies da Mongólia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_PT-BR1789497655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-28 | [Cardume de barracudas-de-barbatana-preta, Shark Reef, Parque Nacional Ras Mohammed, Península do Sinai, Egito (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_PT-BR7423945711_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-27 | [Manguezais ao entardecer, Praia de Walakiri, ilha de Sumba, Indonésia (© Boonchet Ch./Getty Images)](https://www.bing.com/th?id=OHR.MangroveTwilight_PT-BR1374948765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
