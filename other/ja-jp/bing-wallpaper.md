@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-30 | [Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-29 | [ベンガルトラのメス, インド (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_JA-JP0300467728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-28 | [大草原に佇むゲル,  モンゴル国 (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_JA-JP0052773408_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
