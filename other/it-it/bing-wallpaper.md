@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-29 | [Tigre femmina del Bengala, Parco Nazionale di Kanha, India (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_IT-IT8572184729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-28 | [Yurte nelle praterie della Mongolia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_IT-IT8478321001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-27 | [Cattedrale di San Giuliano, Caltagirone, Catania, Sicilia (© Javier Cosio/iStock)](https://www.bing.com/th?id=OHR.CaltagironeSicilia_IT-IT1493069823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
