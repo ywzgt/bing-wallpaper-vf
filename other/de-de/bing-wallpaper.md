@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-30 | [Monumentales Kunstwerk »Beyond Walls« von Saype auf der Expo 2020 Dubai, Vereinigte Arabische Emirate (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_DE-DE6760709663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-29 | [Königstigerin, Kanha-Nationalpark, Indien (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_DE-DE7296947889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-28 | [Jurten in der mongolischen Steppe (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_DE-DE5983216675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
