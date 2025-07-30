@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-31 | [Instalação de arte "Beyond Walls", de Saype, na Expo 2020 Dubai, Emirados Árabes Unidos (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_PT-BR3110184128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-30 | [Tigre-de-bengala fêmea, Parque Nacional de Kanha, Índia (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_PT-BR9994663817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-29 | [Yurts nas planícies da Mongólia (© Michel Arnault/Shutterstock)](https://www.bing.com/th?id=OHR.MongoliaYurts_PT-BR1789497655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
