@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-07-31 | [ナ・パリ・コースト, 米国 ハワイ州 (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_JA-JP1764842674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-30 | [Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_JA-JP1584990235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-29 | [ベンガルトラのメス, インド (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.TigerDay_JA-JP0300467728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
