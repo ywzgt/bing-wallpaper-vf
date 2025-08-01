@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-01 | [Royal Mile, Edimburgo, Escocia (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_ES-ES3946944974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-07-31 | [Playa de Kalalau en la costa de Nā Pali, Kauai, Hawái, EE. UU. (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_ES-ES3845188228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-30 | [Proyecto Beyond Walls de Saype en la Expo 2020 Dubai, Emiratos Árabes Unidos (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeDubai_ES-ES3758779799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
