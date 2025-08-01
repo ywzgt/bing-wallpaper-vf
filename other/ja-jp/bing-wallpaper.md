@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-02 | [キャピトル・リーフ国立公園, 米国 ユタ州 (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_JA-JP2199593329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-01 | [エディンバラの旧市街, スコットランド (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_JA-JP2026368495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-31 | [ナ・パリ・コースト, 米国 ハワイ州 (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_JA-JP1764842674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
