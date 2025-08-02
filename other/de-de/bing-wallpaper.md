@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-02 | [Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.HerrenhaeuserHannover_DE-DE9700830017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-01 | [Royal Mile, Edinburgh, Schottland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_DE-DE9968170483_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-31 | [Kalalau Beach an der Nā Pali Küste, Kauai, Hawaii, USA (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_DE-DE7014828359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

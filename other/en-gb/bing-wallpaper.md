@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-02 | [Spectators at Cowes Week 2013 in Cowes, Isle of Wight (© Alan Crowhurst/Getty Images)](https://www.bing.com/th?id=OHR.CowesWeek2025_EN-GB0990993509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-01 | [Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-GB0568642627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-31 | [Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_EN-GB0416524547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

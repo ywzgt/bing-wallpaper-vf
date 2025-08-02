@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-02 | [Petroglifi vicino a Fruita nel Parco Nazionale di Capitol Reef, Utah, USA (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_IT-IT1255778593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-01 | [Royal Mile, Edimburgo, Scozia (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_IT-IT8835204472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-31 | [Spiaggia di Kalalau sulla costa di Nā Pali, Kauai, Hawaii, USA (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_IT-IT1557569434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

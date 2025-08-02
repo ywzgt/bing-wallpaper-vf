@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-02 | [Vista aérea de villas y yates cerca de Portals Vells, Palma de Mallorca, Mallorca, España (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.MallorcaSumerYacht_ES-ES6937239924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-01 | [Royal Mile, Edimburgo, Escocia (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_ES-ES3946944974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-07-31 | [Playa de Kalalau en la costa de Nā Pali, Kauai, Hawái, EE. UU. (© Russ Bishop/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.NaPaliKauai_ES-ES3845188228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
