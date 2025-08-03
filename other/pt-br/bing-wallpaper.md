@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-04 | [Pelourinho, Salvador, Bahia (© luoman/Getty Images)](https://www.bing.com/th?id=OHR.DiaCapoeirista_PT-BR1567987361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-03 | [Vista aérea da rotatória “Bola das Letras” em Manaus, Amazonas (© Cristian Lourenço/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RotatoriaLetras_PT-BR3269837053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-02 | [Royal Mile, Edimburgo, Escócia (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_PT-BR1616898906_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
