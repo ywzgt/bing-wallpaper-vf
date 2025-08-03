@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-03 | [Sunflowers blooming in a field in summer (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_EN-GB1142788806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-02 | [Spectators at Cowes Week 2013 in Cowes, Isle of Wight (© Alan Crowhurst/Getty Images)](https://www.bing.com/th?id=OHR.CowesWeek2025_EN-GB0990993509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-01 | [Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_EN-GB0568642627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

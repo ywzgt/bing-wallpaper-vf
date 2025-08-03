@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-03 | [Girasoli in fiore in un campo in estate (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_IT-IT1160856056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-02 | [Petroglifi vicino a Fruita nel Parco Nazionale di Capitol Reef, Utah, USA (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_IT-IT1255778593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-01 | [Royal Mile, Edimburgo, Scozia (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.EdinburghFringe_IT-IT8835204472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
