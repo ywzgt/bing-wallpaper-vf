@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-04 | [Barracuda a Shark Reef, Parco Nazionale di Ras Mohammed, Penisola del Sinai, Egitto (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_IT-IT1143705457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-03 | [Girasoli in fiore in un campo in estate (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_IT-IT1160856056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-02 | [Petroglifi vicino a Fruita nel Parco Nazionale di Capitol Reef, Utah, USA (© Nicolas VINCENT/Adobe Stock)](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_IT-IT1255778593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

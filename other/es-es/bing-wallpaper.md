@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-04 | [Búhos grises en su nido, Finlandia (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_ES-ES4200843569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-03 | [Girasoles floreciendo en un campo en verano (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_ES-ES4115334134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-02 | [Vista aérea de villas y yates cerca de Portals Vells, Palma de Mallorca, Mallorca, España (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.MallorcaSumerYacht_ES-ES6937239924_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
