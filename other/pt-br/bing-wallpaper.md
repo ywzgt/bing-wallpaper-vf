@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-05 | [Corujas-lapónicas em seu ninho, Finlândia (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_PT-BR9387648835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-04 | [Pelourinho, Salvador, Bahia (© luoman/Getty Images)](https://www.bing.com/th?id=OHR.DiaCapoeirista_PT-BR1567987361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-03 | [Vista aérea da rotatória “Bola das Letras” em Manaus, Amazonas (© Cristian Lourenço/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RotatoriaLetras_PT-BR3269837053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
