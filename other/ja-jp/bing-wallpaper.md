@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-06 | [平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.HiroshimaPeace2025_JA-JP3351733972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-05 | [ラホヤの引き潮, 米国 カリフォルニア州 (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_JA-JP3202345029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-04 | [カラフトフクロウのペア, フィンランド (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_JA-JP2701506191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
