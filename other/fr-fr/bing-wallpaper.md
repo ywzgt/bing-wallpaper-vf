@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-05 | [Bassins de marée à La Jolla, Californie, États-Unis (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_FR-FR1277403036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-04 | [Chouettes lapones dans leur nid, Finlande (© imageBROKER.com/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LaplandOwl_FR-FR0808851184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-03 | [Des tournesols en fleurs dans un champ en été (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_FR-FR0643817668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

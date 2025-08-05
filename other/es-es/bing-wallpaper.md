@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-05 | [Pozas de marea en La Jolla, California, EE. UU. (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ES-ES4288360628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-04 | [Búhos grises en su nido, Finlandia (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_ES-ES4200843569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-03 | [Girasoles floreciendo en un campo en verano (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_ES-ES4115334134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

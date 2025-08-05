@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-05 | [Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-GB1490855103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-04 | [Great grey owls in their nest, Finland (© imageBROKER.com/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LaplandOwl_EN-GB1293018198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-03 | [Sunflowers blooming in a field in summer (© Arsgera/Shutterstock)](https://www.bing.com/th?id=OHR.HappySunflower_EN-GB1142788806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
