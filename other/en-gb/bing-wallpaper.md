@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-06 | [Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_EN-GB1704041505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-05 | [Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_EN-GB1490855103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-04 | [Great grey owls in their nest, Finland (© imageBROKER.com/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.LaplandOwl_EN-GB1293018198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

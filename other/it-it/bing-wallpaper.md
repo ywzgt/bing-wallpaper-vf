@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-06 | [Ruota Panoramica, Rimini, Emilia-Romagna (© nantonov/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.RuotaRimini_IT-IT1297102060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-05 | [Pozze di marea, La Jolla, California, USA (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_IT-IT9185950611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-04 | [Barracuda a Shark Reef, Parco Nazionale di Ras Mohammed, Penisola del Sinai, Egitto (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.BlackfinBarracuda_IT-IT1143705457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-06 | [Katta-Junges spielt mit seinem Schwanz, Madagaskar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_DE-DE7888318090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-05 | [Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)](https://www.bing.com/th?id=OHR.PoppyfieldAdelschlag_DE-DE8788732067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-04 | [Bartkäuze im Nest, Finnland (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_DE-DE9006060436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
