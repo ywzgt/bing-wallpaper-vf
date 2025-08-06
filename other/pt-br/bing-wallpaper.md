@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-07 | [Filhote de lêmure-de-cauda-anelada brincando com sua cauda, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_PT-BR1048379663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-06 | [Piscinas naturais em La Jolla, Califórnia, EUA (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_PT-BR9575263840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-05 | [Corujas-lapónicas em seu ninho, Finlândia (© imageBROKER.com/Alamy)](https://www.bing.com/th?id=OHR.LaplandOwl_PT-BR9387648835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
