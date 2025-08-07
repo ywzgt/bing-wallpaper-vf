@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-08 | [イグアスの滝, アルゼンチン (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_JA-JP1040777979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-07 | [ワオキツネザル, マダガスカル (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_JA-JP3588561100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-06 | [平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.HiroshimaPeace2025_JA-JP3351733972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
