@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-07 | [Phare de Gasparilla Island, Boca Grande, Floride, États-Unis (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_FR-FR2514071877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-06 | [Un jeune Lemur catta qui joue avec sa queue, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_FR-FR2344999545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-05 | [Bassins de marée à La Jolla, Californie, États-Unis (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_FR-FR1277403036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

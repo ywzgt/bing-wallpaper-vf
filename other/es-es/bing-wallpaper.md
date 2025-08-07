@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-07 | [Luz de alcance trasero de la isla Gasparilla, Boca Grande, Florida, EE. UU. (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_ES-ES4564834622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-06 | [Bebé de lémur de cola anillada jugando con su propia cola, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_ES-ES4465039868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-05 | [Pozas de marea en La Jolla, California, EE. UU. (© Andrew Shoemaker/DanitaDelimont.com)](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ES-ES4288360628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
