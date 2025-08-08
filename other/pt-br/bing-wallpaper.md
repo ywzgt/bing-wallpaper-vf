@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-09 | [Salto Três Mosqueteiros nas Cataratas do Iguaçu, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_PT-BR7659880739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [Farol Traseiro da Ilha Gasparilla, Boca Grande, Flórida, EUA (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_PT-BR0335671188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Filhote de lêmure-de-cauda-anelada brincando com sua cauda, Madagascar (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.BabyLemur_PT-BR1048379663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

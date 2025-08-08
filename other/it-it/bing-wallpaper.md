@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-08 | [Salto Tres Mosqueteros, Cascate dell’Iguazú, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_IT-IT5625892885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [Salto Tres Mosqueteros, Cascate dell’Iguazú, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_IT-IT2568791763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Faro dell’isola di Gasparilla, Boca Grande, Florida, USA (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_IT-IT1390366319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
