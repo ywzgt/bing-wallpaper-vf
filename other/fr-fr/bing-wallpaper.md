@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-09 | [Sculptures rupestres maories de Mine Bay, Lac Taupō, Nouvelle-Zélande (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_FR-FR6352219710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [Chutes des Trois Mousquetaires, Iguazú, Argentine (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_FR-FR7785878187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Phare de Gasparilla Island, Boca Grande, Floride, États-Unis (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_FR-FR2514071877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

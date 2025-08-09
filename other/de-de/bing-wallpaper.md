@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-09 | [Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)](https://www.bing.com/th?id=OHR.RhineFirework_DE-DE3111105918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-08 | [Die Drei-Musketiere-Fälle bei den Iguazú-Wasserfällen, Argentinien (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_DE-DE9260087426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-07 | [Gasparilla Island Rear Range Light, Boca Grande, Florida, USA (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_DE-DE5398633166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
