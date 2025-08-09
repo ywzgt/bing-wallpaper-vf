@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-10 | [Gravuras Maori em pedra na Mine Bay, Lago Taupo, Nova Zelândia (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_PT-BR7824460813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-09 | [Salto Três Mosqueteiros nas Cataratas do Iguaçu, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_PT-BR7659880739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-08 | [Farol Traseiro da Ilha Gasparilla, Boca Grande, Flórida, EUA (© Wiltser/Getty Images)](https://www.bing.com/th?id=OHR.GasparillaLight_PT-BR0335671188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
