@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-10 | [マサイマラ国立保護区のライオン, ケニア (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_JA-JP1487330341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-09 | [マオリの彫刻, ニュージーランド (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_JA-JP1260630406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-08 | [イグアスの滝, アルゼンチン (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_JA-JP1040777979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
