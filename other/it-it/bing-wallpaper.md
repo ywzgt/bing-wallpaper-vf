@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-10 | [Leonessa nella Riserva Nazionale del Masai Mara, Kenya (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_IT-IT2680402991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-09 | [Sculture rupestri di Ngātoroirangi Mine Bay Māori sul lago Taupō, Nuova Zelanda (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_IT-IT5330765111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-08 | [Salto Tres Mosqueteros, Cascate dell’Iguazú, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_IT-IT5625892885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
