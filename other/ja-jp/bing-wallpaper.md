@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-11 | [中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2025_JA-JP4443243001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-10 | [マサイマラ国立保護区のライオン, ケニア (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_JA-JP1487330341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-09 | [マオリの彫刻, ニュージーランド (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_JA-JP1260630406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
