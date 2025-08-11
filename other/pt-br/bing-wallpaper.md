@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-12 | [Vila de Santa Maddalena, Dolomitas, Itália (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_PT-BR8037703771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-11 | [Família de capivaras às margens da floresta amazônica no Parque Nacional de Manu, Peru (© RPBMedia/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.DiaPais_PT-BR3238446689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-10 | [Gravuras Maori em pedra na Mine Bay, Lago Taupo, Nova Zelândia (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_PT-BR7824460813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
