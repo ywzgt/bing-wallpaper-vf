@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-11 | [Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_FR-FR5142947664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-10 | [Lionne dans la réserve nationale du Masai Mara, Kenya (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_FR-FR4950254472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-09 | [Sculptures rupestres maories de Mine Bay, Lac Taupō, Nouvelle-Zélande (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_FR-FR6352219710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
