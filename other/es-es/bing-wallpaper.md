@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-12 | [Manada de elefantes africanos, Parque nacional de Amboseli, Kenia (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_ES-ES4146810031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-11 | [Pueblo de Santa Maddalena, Dolomitas, Italia (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_ES-ES3834895860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-10 | [Leona en la Reserva Nacional Masái Mara, Kenia (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LionessKenya_ES-ES3481015675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
