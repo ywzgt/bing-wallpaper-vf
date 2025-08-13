@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-14 | [Escalador fazendo rapel no Corona Arch, perto de Moab, Utah, EUA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_PT-BR8379386277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-13 | [Manada de elefantes africanos, Parque Nacional de Amboseli, Quênia (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_PT-BR8192553536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-12 | [Vila de Santa Maddalena, Dolomitas, Itália (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_PT-BR8037703771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
