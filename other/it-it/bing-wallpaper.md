@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-13 | [Villaggio di Santa Maddalena, Val di Funes, Dolomiti, Trentino-Alto Adige (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_IT-IT2896067117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-12 | [Branco di elefanti africani, Parco Nazionale Amboseli, Kenya (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_IT-IT2826374695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-11 | [Via Lattea vista dalla Val d'Orcia, Toscana (© Fabio Massimo Zappulla/500px/500Px Plus)](https://www.bing.com/th?id=OHR.StelleSanLorenzo_IT-IT2737058274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

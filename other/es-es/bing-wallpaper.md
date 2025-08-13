@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-13 | [Esculturas rupestres maoríes de la bahía de la mina Ngātoroirangi en el lago Taupō, Nueva Zelanda (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_ES-ES4316358547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-12 | [Manada de elefantes africanos, Parque nacional de Amboseli, Kenia (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_ES-ES4146810031_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-11 | [Pueblo de Santa Maddalena, Dolomitas, Italia (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_ES-ES3834895860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
