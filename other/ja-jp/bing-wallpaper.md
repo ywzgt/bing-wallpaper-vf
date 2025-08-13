@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-14 | [ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-13 | [コロナ・アーチ, 米国 ユタ州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_JA-JP2223848865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-12 | [アフリカゾウの群れ, ケニア (© Chase Dekker/Minden Pictures)](https://www.bing.com/th?id=OHR.KenyaElephants_JA-JP2052759218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
