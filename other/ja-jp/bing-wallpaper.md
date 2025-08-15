@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-16 | [大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)](https://www.bing.com/th?id=OHR.Okuribi2025_JA-JP4621795615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-15 | [マダラトビエイ, エクアドル (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_JA-JP3008170568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-14 | [ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_JA-JP2425115607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
