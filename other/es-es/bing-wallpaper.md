@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-15 | [Rayas águila moteadas, Isla San Cristóbal, Islas Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_ES-ES4665305758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-14 | [Estación de teleférico en la montaña Piz Nair, Cantón de los Grisones, Suiza (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_ES-ES4449735655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-13 | [Esculturas rupestres maoríes de la bahía de la mina Ngātoroirangi en el lago Taupō, Nueva Zelanda (© Joppi/Getty Images)](https://www.bing.com/th?id=OHR.MaoriRock_ES-ES4316358547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

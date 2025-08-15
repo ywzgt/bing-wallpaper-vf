@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-15 | [Gefleckte Adlerrochen, Insel San Cristóbal, Galapagosinseln, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_DE-DE1512505039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-14 | [Seilbahnstation auf dem Piz Nair, Graubünden, Schweiz (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_DE-DE6932582005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-13 | [Ein Mann seilt sich vom Corona Arch nahe Moab ab, Utah, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CoronaArch_DE-DE6360631129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

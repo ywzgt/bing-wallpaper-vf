@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-15 | [Raies léopards, île San Cristóbal, archipel des Galápagos, Équateur (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_FR-FR5066753247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-14 | [Station téléphérique du mont Piz Nair, Grisons, Suisse (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_FR-FR5851853861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-13 | [Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.Flamingos_FR-FR9616625186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
