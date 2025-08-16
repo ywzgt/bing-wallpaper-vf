@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-17 | [Colmeias coloridas, Itália (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_PT-BR1350605096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-16 | [Raia-pintada, Ilha San Cristóbal, Galápagos, Equador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_PT-BR1035439304_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-15 | [Estação de teleférico no monte Piz Nair, Grisões, Suíça (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_PT-BR9393263322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
