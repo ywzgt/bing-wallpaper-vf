@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-16 | [Alveari colorati, Italia (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_IT-IT3102989336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-15 | [Parco Nazionale dell’Arcipelago di La Maddalena, Gallura Nord-Est Sardegna, Sardegna (© Travel Wild/iStock)](https://www.bing.com/th?id=OHR.LaMaddalenaSardegna_IT-IT3035454950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-14 | [Stazione della funivia sul monte Piz Nair, Grigioni, Svizzera (© Roberto Moiola/Alamy)](https://www.bing.com/th?id=OHR.PizNairPeak_IT-IT2958589125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
