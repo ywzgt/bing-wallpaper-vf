@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-17 | [Lyngvig Leuchtturm, Hvide Sande, Dänemark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_DE-DE8062219926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-16 | [Bunte Bienenstöcke, Italien (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_DE-DE0790331743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-15 | [Gefleckte Adlerrochen, Insel San Cristóbal, Galapagosinseln, Ecuador (© Tui De Roy/Minden Pictures)](https://www.bing.com/th?id=OHR.SpottedEagleRay_DE-DE1512505039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
