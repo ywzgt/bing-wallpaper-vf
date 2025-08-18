@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-18 | [Ruches colorées, Italie (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_FR-FR5685260580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-17 | [Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_FR-FR5388600592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-16 | [Cerfs-volants dans le ciel de Fréjus, Var, Provence-Alpes-Côte d’Azur (© ICHAUVEL/Getty Images)](https://www.bing.com/th?id=OHR.KiteFrejus_FR-FR4833953629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

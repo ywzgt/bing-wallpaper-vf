@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-18 | [Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_EN-GB3210830707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-17 | [Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_EN-GB3070055068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-16 | [Wild garlic, Greatwood Copse, Isle of Wight, England (© Available Light Photography/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.GarlicFestival2025_EN-GB2919536930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

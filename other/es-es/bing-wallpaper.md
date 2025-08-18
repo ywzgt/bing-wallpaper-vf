@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-18 | [Sendero al lago Avalanche en las montañas de Adirondack, Nueva York, EE. UU. (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_ES-ES4962588895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-17 | [Faro de Lyngvig, Hvide Sande, Dinamarca (© Caroline Brundle Bugge/Getty Images)](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ES-ES4833286329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-16 | [Colmenas de colores, Italia (© Roberto Caucino/Shutterstock)](https://www.bing.com/th?id=OHR.ColorfulBeehives_ES-ES4737812847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
