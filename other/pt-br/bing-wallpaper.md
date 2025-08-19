@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-20 | [Camadas de flysch em Zumaia, País Basco, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_PT-BR3784755779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Trilha do Avalanche Lake nas Montanhas Adirondack, Nova York, EUA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_PT-BR3490746058_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Vista aérea de praia em Jericoacoara, no Ceará (© AmazingAerialAgency/Adobe Stock)](https://www.bing.com/th?id=OHR.Jeribeach_PT-BR3080165878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
