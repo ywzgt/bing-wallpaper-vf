@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-19 | [サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [サンタ��マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)](https://www.bing.com/th?id=OHR.SantaMaddalena_JA-JP3939499195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_JA-JP3739900372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
