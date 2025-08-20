@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-20 | [La Cittadella di Bonifacio, Corsica, Francia (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_IT-IT3373229957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Strati di flysch a Zumaia, Paesi Baschi, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_IT-IT3301652373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Lago Avalanche sulle Adirondack High Peaks, New York, USA (© Posnov/Getty Images)](https://www.bing.com/th?id=OHR.AvalancheLake_IT-IT9962796758_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

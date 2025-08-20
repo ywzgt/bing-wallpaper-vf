@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-20 | [Die Zitadelle von Bonifacio, Südkorsika, Frankreich (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_DE-DE9194010566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-19 | [Flysch-Felsformationen in Zumaia, Baskenland, Spanien (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_DE-DE5130461802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-18 | [Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)](https://www.bing.com/th?id=OHR.GermanyHiker_DE-DE4106707068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
