@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-21 | [Culbianco ed Erica in fiore, Parco Nazionale del Peak District, Inghilterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_IT-IT3442241392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-20 | [La Cittadella di Bonifacio, Corsica, Francia (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_IT-IT3373229957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-19 | [Strati di flysch a Zumaia, Paesi Baschi, Spagna (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_IT-IT3301652373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

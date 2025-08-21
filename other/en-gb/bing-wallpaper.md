@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-21 | [Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_EN-GB3697571059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-20 | [The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_EN-GB3535307178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-19 | [The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)](https://www.bing.com/th?id=OHR.IguazuArgentina_EN-GB3342065594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
