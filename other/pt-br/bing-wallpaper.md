@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-22 | [Chasco em meio a flores de urze no Parque Nacional de Peak District, Inglaterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_PT-BR5430723539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-21 | [Cidadela de Bonifácio no sul da Córsega, França (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_PT-BR4689124587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-20 | [Camadas de flysch em Zumaia, País Basco, Espanha (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_PT-BR3784755779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
