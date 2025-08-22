@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-22 | [Colinas onduladas de Palouse, Washington, EE. UU. (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_ES-ES8103118141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-21 | [Collalba gris y brezo en flor, Parque nacional del Distrito de los Picos, Inglaterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_ES-ES5268602791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-20 | [La ciudadela en Bonifacio, Córcega del sur, Francia (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_ES-ES5188387736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

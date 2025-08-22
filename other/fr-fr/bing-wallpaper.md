@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-22 | [Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)](https://www.bing.com/th?id=OHR.RockSeine_FR-FR5220728990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-21 | [Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_FR-FR6118377367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-20 | [Citadelle de Bonifacio, Corse-du-Sud, France (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_FR-FR5988147766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

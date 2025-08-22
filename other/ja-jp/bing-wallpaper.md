@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-22 | [パルース丘陵, 米国 ワシントン州 (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_JA-JP5363056424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-21 | [ピーク・ディストリクト国立公園, イングランド (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_JA-JP4532304114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-20 | [ボニファシオの城塞, フランス (© Marc Dozier/Getty Images)](https://www.bing.com/th?id=OHR.CitadelBonifacio_JA-JP4122292062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
