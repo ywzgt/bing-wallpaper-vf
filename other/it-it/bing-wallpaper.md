@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-22 | [Praterie ondulate della Palouse, Washington, USA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT4357870693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-22 | [Praterie ondulate del Palouse, Washington, USA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_IT-IT0107533820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-21 | [Culbianco ed Erica in fiore, Parco Nazionale del Peak District, Inghilterra (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_IT-IT3442241392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
