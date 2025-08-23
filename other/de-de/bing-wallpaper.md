@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-23 | [Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_DE-DE2329773530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-22 | [Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.FieldKaiserstuhl_DE-DE8624743800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-21 | [Steinschmätzer, Peak-District-Nationalpark, England (© Ben Hall/Nature Picture Library)](https://www.bing.com/th?id=OHR.WheatearBird_DE-DE8545255513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
