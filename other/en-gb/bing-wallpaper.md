@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-24 | [Notting Hill Carnival wall mural, London (© BRIAN ANTHONY/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.NottingHillCarnival2025_EN-GB8998798603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-23 | [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_EN-GB8518055482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-22 | [Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_EN-GB8343692034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
