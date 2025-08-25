@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-26 | [Mirante de Calcite Springs e Rio Yellowstone, Parque Nacional de Yellowstone, Wyoming, EUA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-25 | [Chuveirinhos ao nascer do sol na Chapada dos Veadeiros, Goiás (© Cavan Images/Getty Images)](https://www.bing.com/th?id=OHR.Pepalantus_PT-BR6960217232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-24 | [Catedral de Santa Bárbara, Kutná Hora, Tchéquia (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_PT-BR9908756704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
