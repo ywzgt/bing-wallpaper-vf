@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-26 | [アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-25 | [イエローストーン国立公園, 米国 ワイオミング州 (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_JA-JP5485264478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-24 | [ダマジカ, イギリス (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_JA-JP5457977522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
