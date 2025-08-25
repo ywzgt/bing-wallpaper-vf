@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-25 | [Aussichtspunkt Calcite Springs und Yellowstone River, Yellowstone-Nationalpark, Wyoming, USA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_DE-DE2550082704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-24 | [Europäischer Damhirsch, England (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_DE-DE7228900180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-23 | [Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_DE-DE2329773530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
