@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-26 | [Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_FR-FR8920368293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-25 | [Observatoire de Calcite Springs et rivière Yellowstone, parc national de Yellowstone, Wyoming, États-Unis (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_FR-FR8460083088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-24 | [Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_FR-FR7245916785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

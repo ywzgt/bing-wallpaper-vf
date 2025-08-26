@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-26 | [Lago Sørvágsvatn, Isola di Vágar, Fær Øer (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-25 | [Sorgenti di calcite e fiume Yellowstone, Parco Nazionale di Yellowstone, Wyoming, USA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_IT-IT7237441471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-24 | [Daini, Inghilterra (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.CervusDama_IT-IT0307979007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
