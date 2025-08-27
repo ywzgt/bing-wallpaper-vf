@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-28 | [Lago Sørvágsvatn, ilha de Vágar, Ilhas Faroe, Dinamarca (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_PT-BR9196671345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-27 | [Casas trulli em Alberobello, Apúlia, Itália (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_PT-BR9475692206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-26 | [Mirante de Calcite Springs e Rio Yellowstone, Parque Nacional de Yellowstone, Wyoming, EUA (© Rebecca L. Latson/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneRiver_PT-BR9693937277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
