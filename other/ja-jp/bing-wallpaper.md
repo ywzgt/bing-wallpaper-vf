@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-28 | [ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_JA-JP5628214526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-27 | [ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_JA-JP5563873968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-26 | [アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_JA-JP5521004094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
