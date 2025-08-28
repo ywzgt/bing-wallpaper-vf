@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-28 | [Airone bianco, Ungheria (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_IT-IT9836668114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-27 | [Vista aerea delle case colorate dell'isola di Burano, Laguna di Venezia, Veneto (© Pol Albarrán/Moment)](https://www.bing.com/th?id=OHR.FestivalVenezia_IT-IT9738242817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-26 | [Lago Sørvágsvatn, Isola di Vágar, Fær Øer (© Anton Petrus/Getty Images)](https://www.bing.com/th?id=OHR.FaroeLake_IT-IT9674052822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
