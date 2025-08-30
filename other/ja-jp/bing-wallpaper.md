@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-31 | [スコッツブラフ国定記念物, 米国 ネブラスカ州 (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_JA-JP5785584590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-30 | [全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)](https://www.bing.com/th?id=OHR.OmagariFireworks2025_JA-JP5692415884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-29 | [マヨール広場, スペイン (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_JA-JP5661212297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
