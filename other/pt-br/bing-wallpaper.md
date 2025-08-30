@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-31 | [Tubarão-baleia na costa do Atol Alifu Dhaalu, Maldivas (© Bachir  Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_PT-BR7655648447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-30 | [Vista aérea da Plaza Mayor, Madrid, Espanha (© AirPano  LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_PT-BR7717335564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-29 | [Garça-branca-grande, Hungria (© Markus Varesvuo/Nature Picture Library)](https://www.bing.com/th?id=OHR.WhiteEgret_PT-BR8998981600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
