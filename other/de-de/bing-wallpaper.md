@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-31 | [Scotts Bluff National Monument in Gering, Nebraska, USA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_DE-DE5756991570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-30 | [Walhai vor der Küste des Alifu Dhaalu-Atolls, Malediven (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_DE-DE5305266157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-29 | [Luftaufnahme der Plaza Mayor, Madrid, Spanien (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_DE-DE2952299555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

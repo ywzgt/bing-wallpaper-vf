@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-08-31 | [Vista aérea de Port Bo de Calella en la costa de Palafrugell, Gerona, Cataluña, España (© AlexKazachok2/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.Palafrugell_ES-ES9170936933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-30 | [Tiburón ballena frente a la costa del Atolón Alif Dhaal, Maldivas (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_ES-ES8989429655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-29 | [Vista aérea de la Plaza Mayor, Madrid, España (© AirPano LLC/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.PlazaMayor_ES-ES8897104707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
