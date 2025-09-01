@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-01 | [Trulli ad Alberobello, Bari, Puglia (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_IT-IT0120917493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-31 | [Monumento Nazionale di Scotts Bluff a Gering, Nebraska, USA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_IT-IT0073144913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-30 | [Squalo balena, Atollo di Alifu Dhaalu, Maldive (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_IT-IT0005084391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

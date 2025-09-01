@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-01 | [Rock layers in Zumaia, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://www.bing.com/th?id=OHR.GipuzcoaSummer_EN-GB2818544324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-08-31 | [Scotts Bluff National Monument in Gering, Nebraska, United States (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_EN-GB0264012392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-30 | [Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_EN-GB0087739452_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
