@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Colinas onduladas de Palouse, Washington, EUA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_PT-BR8269290462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Monumento Nacional Scotts Bluff em Gering, Nebraska, EUA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_PT-BR7461504826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Tubarão-baleia na costa do Atol Alifu Dhaalu, Maldivas (© Bachir  Moukarzel/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_PT-BR7655648447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
