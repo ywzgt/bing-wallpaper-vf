@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-03 | [バウンダリー・ウォーター���・カヌー・エリア・ウィルダネス, 米国 ミネソタ州 (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_JA-JP5876109313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-02 | [ナミブ＝ナウクルフト国立公園, ナミビア (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_JA-JP5847596989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-01 | [聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)](https://www.bing.com/th?id=OHR.SaintBarbaras_JA-JP5804029970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
