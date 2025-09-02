@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Acacie delle giraffe, Deadvlei, Parco Namib-Naukluft, Namibia (© Inge Johnsson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DeadvleiTrees_IT-IT9675346789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Trulli ad Alberobello, Bari, Puglia (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_IT-IT0120917493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Monumento Nazionale di Scotts Bluff a Gering, Nebraska, USA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_IT-IT0073144913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

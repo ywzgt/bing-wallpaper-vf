@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Kameldornbäume, Deadvlei, Namib-Naukluft-Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_DE-DE6613331232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_DE-DE2753356790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Scotts Bluff National Monument in Gering, Nebraska, USA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_DE-DE5756991570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

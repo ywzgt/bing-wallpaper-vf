@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Acacias à girafe, Deadvlei, parc Namib-Naukluft, Namibie (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_FR-FR9220930229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Zone sauvage des Boundary Waters Canoe Area, Minnesota, États-Unis (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_FR-FR7608099826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Monument national de Scotts Bluff, Gering, Nebraska, États-Unis (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_FR-FR7081718097_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-02 | [Árboles espina de camello, Deadvlei, Parque Namib-Naukluft, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_ES-ES0322345638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-01 | [Monumento Nacional Scotts Bluff en Gering, Nebraska, EE. UU. (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_ES-ES9472248274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-08-31 | [Vista aérea de Port Bo de Calella en la costa de Palafrugell, Gerona, Cataluña, España (© AlexKazachok2/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.Palafrugell_ES-ES9170936933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
