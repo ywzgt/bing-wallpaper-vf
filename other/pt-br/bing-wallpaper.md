@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-03 | [Árvores espinho-de-camelo, Deadvlei, Parque Namib-Naukluft, Namíbia (© Inge Johnsson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DeadvleiTrees_PT-BR2241595565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-02 | [Colinas onduladas de Palouse, Washington, EUA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_PT-BR8269290462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-01 | [Monumento Nacional Scotts Bluff em Gering, Nebraska, EUA (© Hawk Buckman/Getty Images)](https://www.bing.com/th?id=OHR.ScottsBluff_PT-BR7461504826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
