@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [ヨーホー国立公園, カナダ (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.YohoNP_JA-JP5965096200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [バウンダリー・ウォーターズ・カヌー・エリア・ウィルダネス, 米国 ミネソタ州 (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_JA-JP5876109313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-03 | [バウンダリー・ウォーター���・カヌー・エリア・ウィルダネス, 米国 ミネソタ州 (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_JA-JP5876109313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
