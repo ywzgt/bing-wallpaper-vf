@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-03 | [Boundary Waters Canoe Area Wilderness, Minnesota, USA (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_DE-DE6807349928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-02 | [Kameldornbäume, Deadvlei, Namib-Naukluft-Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_DE-DE6613331232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-01 | [Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrulliHouses_DE-DE2753356790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

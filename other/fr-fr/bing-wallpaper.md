@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-03 | [Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)](https://www.bing.com/th?id=OHR.MontSaintMichel_FR-FR8463268794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-02 | [Acacias à girafe, Deadvlei, parc Namib-Naukluft, Namibie (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_FR-FR9220930229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-01 | [Zone sauvage des Boundary Waters Canoe Area, Minnesota, États-Unis (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_FR-FR7608099826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
