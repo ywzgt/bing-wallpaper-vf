@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [Águas serenas da Boundary Waters Canoe Area Wilderness, Minnesota, EUA (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_PT-BR7389411612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [Árvores espinho-de-camelo, Deadvlei, Parque Namib-Naukluft, Namíbia (© Inge Johnsson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DeadvleiTrees_PT-BR2241595565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-02 | [Colinas onduladas de Palouse, Washington, EUA (© svetlana57/Getty Images)](https://www.bing.com/th?id=OHR.PalouseWA_PT-BR8269290462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
