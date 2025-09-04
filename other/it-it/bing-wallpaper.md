@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [Orsi grizzly, Parco Nazionale e Riserva di Katmai, Alaska, USA (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_IT-IT9855887848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [Tempio della Concordia, Agrigento, Sicilia (© Wirestock/iStock)](https://www.bing.com/th?id=OHR.AgrigentoSicilia_IT-IT0162455126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-02 | [Acacie delle giraffe, Deadvlei, Parco Namib-Naukluft, Namibia (© Inge Johnsson/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.DeadvleiTrees_IT-IT9675346789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

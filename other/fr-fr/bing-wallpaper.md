@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [Bagarre amicale de grizzlis, parc national Katmai, Alaska, États-Unis (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_FR-FR0316323134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)](https://www.bing.com/th?id=OHR.MontSaintMichel_FR-FR8463268794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-02 | [Acacias à girafe, Deadvlei, parc Namib-Naukluft, Namibie (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_FR-FR9220930229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-04 | [Raufende Grizzlybären, Katmai-Nationalpark, Alaska, USA (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_DE-DE4535845239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-03 | [Boundary Waters Canoe Area Wilderness, Minnesota, USA (© s.tomas/Shutterstock)](https://www.bing.com/th?id=OHR.MinnesotaWaters_DE-DE6807349928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-02 | [Kameldornbäume, Deadvlei, Namib-Naukluft-Park, Namibia (© Inge Johnsson/Alamy)](https://www.bing.com/th?id=OHR.DeadvleiTrees_DE-DE6613331232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
