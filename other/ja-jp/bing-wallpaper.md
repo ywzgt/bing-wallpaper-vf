@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-06 | [アカフトオハチドリ, 米国 カリフォルニア州 (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_JA-JP7090993703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-05 | [パシフィック・パーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_JA-JP6277978338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-04 | [ヨーホー国立公園, カナダ (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.YohoNP_JA-JP5965096200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
