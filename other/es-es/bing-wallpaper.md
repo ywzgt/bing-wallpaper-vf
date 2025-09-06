@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-06 | [Colibrí rufo, Golden Gate Park, San Francisco, California, EE. UU. (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_ES-ES7667920526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-05 | [Pacific Park, Muelle de Santa Monica, California, EE. UU. (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_ES-ES7586673768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-04 | [Lucha de osos pardos, Parque Nacional y Reserva Katmai, Alaska, EE. UU. (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_ES-ES0873710105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-06 | [Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)](https://www.bing.com/th?id=OHR.LilleMarket_FR-FR3271144048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-05 | [Pacific Park, plage d'État de Santa Monica, Californie, États-Unis (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_FR-FR5498949983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-04 | [Bagarre amicale de grizzlis, parc national Katmai, Alaska, États-Unis (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_FR-FR0316323134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
