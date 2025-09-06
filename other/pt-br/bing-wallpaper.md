@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-07 | [Beija-flor-ruivo no Golden Gate Park, São Francisco, Califórnia, Estados Unidos (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_PT-BR5721753783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-06 | [Névoa sobre a copa da Floresta Amazônica (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.DiaAmazonia_PT-BR5240863340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-05 | [Ursos-pardos lutando no Parque Nacional e Reserva de Katmai, Alasca, EUA (© Cavan Images/Adobe Stock)](https://www.bing.com/th?id=OHR.WrestlingBears_PT-BR2169243821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
