@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-07 | [グダニスク, ポーランド (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_JA-JP0907344323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-06 | [アカフトオハチドリ, 米国 カリフォルニア州 (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_JA-JP7090993703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-05 | [パシフィック・パーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_JA-JP6277978338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
