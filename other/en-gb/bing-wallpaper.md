@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-07 | [The Glasshouse International Centre for Music, Gateshead, England (© ChrisHepburn/iStock/Getty Images)](https://www.bing.com/th?id=OHR.GreatNorthRun2025_EN-GB8681982473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-06 | [Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_EN-GB7919839531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-05 | [Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)](https://www.bing.com/th?id=OHR.SunsetPier_EN-GB2472786230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
