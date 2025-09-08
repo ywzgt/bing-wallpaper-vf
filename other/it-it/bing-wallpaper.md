@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-08 | [library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_IT-IT9071511638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-07 | [Castel dell’Ovo, Baia di Napoli, Napoli, Campania (© florin1961/iStock)](https://www.bing.com/th?id=OHR.GaribaldiNapoli_IT-IT9017622092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-06 | [Danzica, Fiume Motława, Polonia (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_IT-IT8980051630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

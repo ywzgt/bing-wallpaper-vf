@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-08 | [Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_FR-FR3660186396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-07 | [Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_FR-FR3495478989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-06 | [Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)](https://www.bing.com/th?id=OHR.LilleMarket_FR-FR3271144048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
