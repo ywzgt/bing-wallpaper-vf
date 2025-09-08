@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-09 | [苔を運ぶキタリス, スイス (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_JA-JP3789357030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-08 | [ライブラリー＠オーチャード, シンガポール (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_JA-JP1251489199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-07 | [グダニスク, ポーランド (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_JA-JP0907344323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
