@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-09 | [Library@orchard, Singapura (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_PT-BR6559924297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-08 | [Gdansk às margens do rio Motława, Polônia (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_PT-BR6180639699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-07 | [Beija-flor-ruivo no Golden Gate Park, São Francisco, Califórnia, Estados Unidos (© jeremyborkat/Getty Images)](https://www.bing.com/th?id=OHR.RufousHummer_PT-BR5721753783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
