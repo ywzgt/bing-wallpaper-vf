@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-09 | [Scala a chiocciola del molo di Dún Chaoin, Contea di Kerry, Irlanda (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_IT-IT9116681695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-08 | [library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_IT-IT9071511638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-07 | [Castel dell’Ovo, Baia di Napoli, Napoli, Campania (© florin1961/iStock)](https://www.bing.com/th?id=OHR.GaribaldiNapoli_IT-IT9017622092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

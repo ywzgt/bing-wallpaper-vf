@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-09 | [Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_FR-FR3805105470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-08 | [Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_FR-FR3660186396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-07 | [Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BlueGdansk_FR-FR3495478989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

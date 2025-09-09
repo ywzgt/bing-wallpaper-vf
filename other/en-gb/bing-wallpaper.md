@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-09 | [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_EN-GB9077607879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-08 | [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://www.bing.com/th?id=OHR.OrchardLibrary_EN-GB8853232632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-07 | [The Glasshouse International Centre for Music, Gateshead, England (© ChrisHepburn/iStock/Getty Images)](https://www.bing.com/th?id=OHR.GreatNorthRun2025_EN-GB8681982473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
