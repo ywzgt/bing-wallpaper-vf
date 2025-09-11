@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-11 | [Geierfelsen (Peña Falcon) am Fluss Tajo im Nationalpark Monfragüe, Spanien (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_DE-DE4354679644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-10 | [Heuballen, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_DE-DE6716022558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-09 | [Ein Eurasisches Eichhörnchen trägt Moos, Schweiz (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_DE-DE3902212654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

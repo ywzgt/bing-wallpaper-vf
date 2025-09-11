@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-11 | [Peña Falcon sul fiume Tago nel Parco Nazionale di Monfragüe, Spagna (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_IT-IT9213887969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-10 | [Balle di fieno, North Yorkshire, Inghilterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_IT-IT9160860790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-09 | [Scala a chiocciola del molo di Dún Chaoin, Contea di Kerry, Irlanda (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_IT-IT9116681695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

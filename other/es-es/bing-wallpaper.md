@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-11 | [Vista desde el Salto del Gitano, Parque Nacional de Monfragüe, Cáceres, Extremadura, España (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ES-ES8041175238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-10 | [Pacas de heno, Yorkshire del Norte, Inglaterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_ES-ES7917729802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-09 | [Una ardilla roja euroasiática hembra que lleva musgo, Suiza (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://www.bing.com/th?id=OHR.SwissSquirrel_ES-ES7836274977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
