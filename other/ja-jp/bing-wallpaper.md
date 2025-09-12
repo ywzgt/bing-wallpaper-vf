@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-13 | [ポイント・レイズ国定海岸, 米国 カリフォルニア州 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_JA-JP7685899201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-12 | [種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)](https://www.bing.com/th?id=OHR.SpaceDay2025_JA-JP8112086826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-11 | [モンフラグエ国立公園にあるペニャ・ファルコン岩, スペイン (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_JA-JP6016561282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
