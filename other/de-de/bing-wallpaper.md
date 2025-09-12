@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-12 | [Gruppe von Spinnerdelfinen im Roten Meer bei Marsa Alam, Ägypten (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_DE-DE4891196756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-11 | [Geierfelsen (Peña Falcon) am Fluss Tajo im Nationalpark Monfragüe, Spanien (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_DE-DE4354679644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-10 | [Heuballen, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_DE-DE6716022558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-12 | [Branco di delfini stenella striata nel Mar Rosso, Marsa Alam, Egitto (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_IT-IT5393623378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-11 | [Peña Falcon sul fiume Tago nel Parco Nazionale di Monfragüe, Spagna (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_IT-IT9213887969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-10 | [Balle di fieno, North Yorkshire, Inghilterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_IT-IT9160860790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

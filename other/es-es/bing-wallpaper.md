@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-12 | [Manada de delfines giradores en el Mar Rojo, Marsa Alam, Egipto (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_ES-ES8128013547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-11 | [Vista desde el Salto del Gitano, Parque Nacional de Monfragüe, Cáceres, Extremadura, España (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ES-ES8041175238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-10 | [Pacas de heno, Yorkshire del Norte, Inglaterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_ES-ES7917729802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

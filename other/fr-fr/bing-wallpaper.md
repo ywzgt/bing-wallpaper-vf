@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-12 | [Groupe de dauphins à long bec dans la mer Rouge, Marsa Alam, Égypte (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_FR-FR4369584175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-11 | [Rocher Peña Falcón sur le fleuve Tage, parc national de Monfragüe, Espagne (© Daniel Viñé Garcia/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraJamon_FR-FR4206695043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-10 | [Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.YorkshireHay_FR-FR4007661841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
