@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-14 | [Una cascada en el Parque Nacional Olympic, Washington, EE. UU. (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_ES-ES8372999914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-13 | [Chimney Rock, Costa Nacional de Point Reyes, California, EE. UU. (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_ES-ES8209669177_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-12 | [Manada de delfines giradores en el Mar Rojo, Marsa Alam, Egipto (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpinnerDolphins_ES-ES8128013547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
