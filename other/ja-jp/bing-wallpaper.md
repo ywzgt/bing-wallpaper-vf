@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-15 | [アメリカワシミミズク (© Scott Suriano/Getty Images)](https://www.bing.com/th?id=OHR.AgedDay2025_JA-JP9424136979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-14 | [オリンピック国立公園, 米国 ワシントン州 (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_JA-JP8707934931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-13 | [ポイント・レイズ国定海岸, 米国 カリフォルニア州 (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_JA-JP7685899201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
