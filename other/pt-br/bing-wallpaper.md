@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-16 | [Dupla de aves pernilongo na França (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-15 | [Cachoeira no Parque Nacional Olympic, Washington, EUA (© Chris  Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_PT-BR6671892401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-14 | [Chimney Rock, Point Reyes National Seashore, Califórnia, EUA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_PT-BR6646395434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
