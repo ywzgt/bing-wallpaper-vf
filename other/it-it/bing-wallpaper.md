@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-15 | [Cavalieri d’Italia, Francia (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_IT-IT5616266756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-14 | [Parco Nazionale Olimpico, Washington, USA (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_IT-IT5534141652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-13 | [Chimney Rock, Point Reyes National Seashore, California, USA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_IT-IT5474043109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-15 | [Stelzenläufer, Frankreich (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_DE-DE5356832083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-14 | [Orangerie Gera, Thüringen (© luchschenF/Shutterstock)](https://www.bing.com/th?id=OHR.GeraOrangerie_DE-DE0955611584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-13 | [Chimney Rock, Point Reyes National Seashore, Kalifornien, USA (© Enrique Aguirre Aves/Getty Images)](https://www.bing.com/th?id=OHR.PointReyesSeashore_DE-DE5164774211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
