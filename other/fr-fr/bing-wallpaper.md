@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-16 | [Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-15 | [Échasses blanches, France (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_FR-FR6104514472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-14 | [Cascade dans le parc national Olympic, État de Washington, États-Unis (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_FR-FR5951351854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

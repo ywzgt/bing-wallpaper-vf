@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-16 | [Vista nocturna del sur de Estados Unidos a unos 360 kilómetros sobre la Tierra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_ES-ES8514798418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-15 | [Cigüeñuelas de alas negras, Francia (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_ES-ES8443490175_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-14 | [Una cascada en el Parque Nacional Olympic, Washington, EE. UU. (© Chris Moore/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.HohWaterfall_ES-ES8372999914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
