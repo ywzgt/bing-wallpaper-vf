@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-18 | [Praia do Arpoador, Rio de Janeiro (© marchello74/Getty Images)](https://www.bing.com/th?id=OHR.ArpoadorRJ_PT-BR5341950627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-17 | [Vista noturna da Golfo do México, 362 quilômetros acima da Terra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_PT-BR3466489488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-16 | [Dupla de aves pernilongo na França (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_PT-BR5689846497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
