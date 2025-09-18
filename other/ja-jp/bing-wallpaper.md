@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-19 | [サウザンド諸島 (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_JA-JP7633482914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-18 | [ダンキンの船着き場, アイルランド (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_JA-JP7345541610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-17 | [若いオスのヘラジカ, 米国 アラスカ州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_JA-JP2388659996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
