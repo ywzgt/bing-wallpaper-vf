@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-18 | [Serpentinenartiger Pfad, Dunquin Pier, County Kerry, Irland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_DE-DE4797885512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-17 | [Ein junger Elchbulle im Denali-Nationalpark, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_DE-DE0761999333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-16 | [Nachtansicht der Golfküstenstaaten aus 362 Kilometern Höhe über der Erde (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_DE-DE2800551844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

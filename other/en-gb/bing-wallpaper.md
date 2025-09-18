@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-18 | [Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_EN-GB3162997633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-17 | [A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_EN-GB3146356133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-16 | [A nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_EN-GB2737742012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

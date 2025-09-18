@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-18 | [Escaleras serpenteantes del muelle de Dunquin, condado de Kerry, Irlanda (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_ES-ES8742460168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-17 | [Un joven alce macho en el Parque Nacional Denali, Alaska, EE. UU. (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_ES-ES6683972972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-16 | [Vista nocturna del sur de Estados Unidos a unos 360 kilómetros sobre la Tierra (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_ES-ES8514798418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

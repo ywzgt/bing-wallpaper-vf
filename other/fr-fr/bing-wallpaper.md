@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-18 | [Escalier sinueux de Dunquin Pier, comté de Kerry, Irlande (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_FR-FR6571793587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-17 | [Jeune élan mâle, parc national de Denali, Alaska, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_FR-FR2257077158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-16 | [Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)](https://www.bing.com/th?id=OHR.OzoneEarth_FR-FR6213796059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
