@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-19 | [Thousand Islands, fiume San Lorenzo, confine tra Canada e USA (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_IT-IT3559325500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-18 | [Vista sul Porto di Genova, Genova, Liguria (© Luca Reina Mafaraci/Getty Images)](https://www.bing.com/th?id=OHR.GenovaPorto_IT-IT9490275029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-17 | [Giovane alce maschio nel Parco Nazionale di Denali, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YoungMoose_IT-IT1966102379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
