@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-20 | [Arquipélago das Mil Ilhas, Rio São Lourenço, fronteira EUA-Canadá (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_PT-BR6464136258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-19 | [Escadaria serpenteante do Cais de Dunquin, Condado de Kerry, Irlanda (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_PT-BR6766126699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-18 | [Praia do Arpoador, Rio de Janeiro (© marchello74/Getty Images)](https://www.bing.com/th?id=OHR.ArpoadorRJ_PT-BR5341950627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
