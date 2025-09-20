@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-20 | [Campo de arroz en el parque natural de la Albufera, Valencia, España (© Pablo Escuder Cano/Getty Images)](https://www.bing.com/th?id=OHR.PaellaDay_ES-ES0490054669_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-19 | [Región de las Mil Islas, río San Lorenzo, frontera entre EE. UU. y Canadá (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_ES-ES0457398976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-18 | [Escaleras serpenteantes del muelle de Dunquin, condado de Kerry, Irlanda (© Hugh O'Connor/Getty Images)](https://www.bing.com/th?id=OHR.DunquinIreland_ES-ES8742460168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
