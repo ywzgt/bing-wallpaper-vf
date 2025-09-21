@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-21 | [L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)](https://www.bing.com/th?id=OHR.EtretatBeach_FR-FR4685460454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-20 | [Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_FR-FR4212024061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-19 | [Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)](https://www.bing.com/th?id=OHR.BolDor_FR-FR4058003205_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

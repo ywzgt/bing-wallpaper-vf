@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-21 | [Seeotter, Prinz-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_DE-DE0331090947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-20 | [Hacker-Festzelt auf dem Oktoberfest, München, Bayern (© Westend61/Getty Images Plus)](https://www.bing.com/th?id=OHR.OktoberfestHackerFestzelt_DE-DE2583035265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-19 | [Thousand Islands, Sankt-Lorenz-Strom, Grenze zwischen den USA und Kanada (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_DE-DE0677147681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-21 | [Sea otters, Prince William Sound, Alaska, United States (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-GB2135978576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-20 | [Swing carousel at Oktoberfest, Munich, Bavaria, Germany (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_EN-GB1846284671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-19 | [Thousand Islands region, St Lawrence River, USA-Canada border (© benedek/Getty Images)](https://www.bing.com/th?id=OHR.ThousandIslands_EN-GB1501665871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
