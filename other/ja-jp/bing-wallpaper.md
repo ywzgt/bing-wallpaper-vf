@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-22 | [サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_JA-JP8804759807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-21 | [プリンス・ウィリアム湾, 米国 アラスカ州 (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_JA-JP8317371641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-20 | [テレーゼンヴィーゼの回転ブランコ, ドイツ (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_JA-JP7932270954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
