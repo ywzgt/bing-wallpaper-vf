@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-22 | [Álamos durante el otoño, Bosque Nacional Fishlake, Utah, EE. UU. (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_ES-ES0554126679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-21 | [Nutrias marinas, Prince William Sound, Alaska, EE. UU. (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_ES-ES0527606822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-20 | [Campo de arroz en el parque natural de la Albufera, Valencia, España (© Pablo Escuder Cano/Getty Images)](https://www.bing.com/th?id=OHR.PaellaDay_ES-ES0490054669_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

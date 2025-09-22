@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-22 | [Pini tremuli in autunno, Fishlake National Forest, Utah, USA (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_IT-IT3698686278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-21 | [Viale alberato, Pinerolo, Torino, Piemonte (© Diana Robinson Photography/Moment)](https://www.bing.com/th?id=OHR.TenutaPiemonte_IT-IT3634009863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-20 | [Giostra all'Oktoberfest, Monaco di Baviera, Germania (© LOOK-foto/Alamy)](https://www.bing.com/th?id=OHR.OktoberfestSwing_IT-IT3600717607_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
