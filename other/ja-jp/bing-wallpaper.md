@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [デビルスタワー, 米国 ワイオミング州 (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_JA-JP0426816004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-23 | [秋の七草 ハギ (© kororokerokero/Getty Images)](https://www.bing.com/th?id=OHR.AutumnEquinox2025_JA-JP9152081751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-22 | [サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_JA-JP8804759807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
