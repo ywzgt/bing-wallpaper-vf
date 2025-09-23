@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [Tucano-de-peito-amarelo na Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_PT-BR8747698753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-23 | [Árvore de ipê-amarelo em floração (© Wilton mitsuo miwa/Getty Images)](https://www.bing.com/th?id=OHR.Primavera25_PT-BR8233875845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-22 | [Lontras-marinhas em Prince William Sound, Alasca, EUA (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_PT-BR7598435461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
