@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-23 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_EN-GB8333466039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-22 | [Aspen trees during autumn, Fishlake National Forest, Utah, United States (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_EN-GB2838380564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-21 | [Sea otters, Prince William Sound, Alaska, United States (© Gerald Corsi/Getty Images)](https://www.bing.com/th?id=OHR.IceOtters_EN-GB2135978576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

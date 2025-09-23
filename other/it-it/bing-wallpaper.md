@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-23 | [Tucano carenato, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_IT-IT3771106703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-22 | [Pini tremuli in autunno, Fishlake National Forest, Utah, USA (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_IT-IT3698686278_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-21 | [Viale alberato, Pinerolo, Torino, Piemonte (© Diana Robinson Photography/Moment)](https://www.bing.com/th?id=OHR.TenutaPiemonte_IT-IT3634009863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
