@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [Monumento Nacional Devils Tower, Wyoming, EE. UU. (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_ES-ES0617575565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-23 | [Parapente sobre el Parque Nacional del Teide, Tenerife, Islas Canarias, España (© Rafal Michal Gadomski/ShutterStock)](https://www.bing.com/th?id=OHR.SportWeekTeide_ES-ES0590010437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-22 | [Álamos durante el otoño, Bosque Nacional Fishlake, Utah, EE. UU. (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_ES-ES0554126679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

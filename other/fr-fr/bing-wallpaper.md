@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-24 | [Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_FR-FR5273744579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-23 | [Toucan à carène, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.ToucanForest_FR-FR5096547078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-22 | [Peupliers faux-trembles en automne, forêt nationale de Fishlake, Utah, États-Unis (© Danita Delimont/Getty Images)](https://www.bing.com/th?id=OHR.AspenEquinox_FR-FR4843698159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
