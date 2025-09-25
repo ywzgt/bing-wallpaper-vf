@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-26 | [チビシマリス, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_JA-JP1455684810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-25 | [チットールガル城, インド (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_JA-JP1975287268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-24 | [デビルスタワー, 米国 ワイオミング州 (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_JA-JP0426816004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
