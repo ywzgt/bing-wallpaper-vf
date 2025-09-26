@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-26 | [La ardilla rayada, Parque Nacional Kootenai, Montana, EE. UU. (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_ES-ES0673938292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-25 | [Fuerte de Chittorgarh, Rajastán, India (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_ES-ES0644530390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-24 | [Monumento Nacional Devils Tower, Wyoming, EE. UU. (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_ES-ES0617575565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

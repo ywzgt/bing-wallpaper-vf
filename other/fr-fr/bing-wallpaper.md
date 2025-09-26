@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-26 | [Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_FR-FR1635534631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-25 | [Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_FR-FR5443907474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-24 | [Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_FR-FR5273744579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

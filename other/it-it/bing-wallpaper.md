@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-26 | [Scoiattolo minore, Foresta Nazionale di Kootenai, Montana, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_IT-IT3950595643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-25 | [Forte di Chittor, Rajasthan, India (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_IT-IT3892899630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-24 | [Torre del Diavolo, Wyoming, USA (© Laura Hedien/Getty Images)](https://www.bing.com/th?id=OHR.BearLodge_IT-IT3838142385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
