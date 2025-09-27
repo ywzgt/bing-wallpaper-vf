@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-28 | [Lagos Tank, Região Selvagem dos Lagos Alpinos, Washington, EUA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-27 | [Tâmia-pequena na Floresta Nacional de Kootenai, Montana, EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_PT-BR7323455735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-26 | [Forte de Chittorgarh, Rajastão, Índia (© chetansoni/Shutterstock)](https://www.bing.com/th?id=OHR.FortChittorgarh_PT-BR4240075767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
