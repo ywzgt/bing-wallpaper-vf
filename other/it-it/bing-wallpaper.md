@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-27 | [Laghi Tank, Alpine Lakes Wilderness, Washington, USA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_IT-IT8921224847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-26 | [Scoiattolo minore, Foresta Nazionale di Kootenai, Montana, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_IT-IT8837145822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-26 | [Scoiattolo minore, Foresta Nazionale di Kootenai, Montana, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_IT-IT3950595643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
