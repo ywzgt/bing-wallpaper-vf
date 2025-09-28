@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-29 | [豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-28 | [ピエンツァ, イタリア (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_JA-JP1964382138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-27 | [タンク・レイクス, 米国 ワシントン州 (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_JA-JP1667519475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
