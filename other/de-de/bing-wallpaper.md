@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-28 | [Die Stadt Pienza in der Toskana, Italien (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_DE-DE0925604328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-27 | [Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)](https://www.bing.com/th?id=OHR.BerlinAutumn_DE-DE0881465418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-26 | [Kleines Streifenhörnchen, Kootenai National Forest, Montana, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.AutumnChipmunk_DE-DE0842640974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
