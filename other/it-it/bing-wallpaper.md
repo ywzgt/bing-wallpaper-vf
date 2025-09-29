@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-29 | [Case arcobaleno nella città di Houten, Paesi Bassi (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_IT-IT9070932054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-28 | [Pienza, Provincia di Siena, Toscana (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_IT-IT9023162912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-27 | [Laghi Tank, Alpine Lakes Wilderness, Washington, USA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_IT-IT8921224847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
