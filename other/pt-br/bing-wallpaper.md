@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-30 | [Casas Arco-Íris na cidade de Houten, Países Baixos (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_PT-BR1748801440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-29 | [Cidade de Pienza, na Toscana, Itália (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-28 | [Lagos Tank, Região Selvagem dos Lagos Alpinos, Washington, EUA (© Austin Trigg/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.TankLakes_PT-BR9433679717_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
