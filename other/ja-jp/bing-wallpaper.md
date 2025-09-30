@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-01 | [クラーク山脈, 米国 カリフォルニア州 (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_JA-JP6457719277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-30 | [コアラ, オーストラリア (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_JA-JP6385601679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-29 | [豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ManekiNeko_JA-JP6063646197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
