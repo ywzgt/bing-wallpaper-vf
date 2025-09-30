@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-01 | [Coala em uma árvore de eucalipto, Parque Nacional Great Otway, Austrália (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_PT-BR2049021569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-30 | [Casas Arco-Íris na cidade de Houten, Países Baixos (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_PT-BR1748801440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-29 | [Cidade de Pienza, na Toscana, Itália (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_PT-BR0767999929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
