@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-09-30 | [Koala su un albero di eucalipto, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_IT-IT9137756909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-29 | [Case arcobaleno nella città di Houten, Paesi Bassi (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_IT-IT9070932054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-28 | [Pienza, Provincia di Siena, Toscana (© zpagistock/Getty Images)](https://www.bing.com/th?id=OHR.PienzaItaly_IT-IT9023162912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
