@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-01 | [Cordillera Clark, Sierra Nevada, Parque Nacional de Yosemite, California, EE. UU. (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_ES-ES0823562766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-09-30 | [Koala en un eucalipto, Parque Nacional Great Otway, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)](https://www.bing.com/th?id=OHR.EucalyptusKoala_ES-ES0797719606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-09-29 | [Casas arcoíris en la ciudad de Houten, Países Bajos (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_ES-ES0772668707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
