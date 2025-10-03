@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-03 | [Erica a Glen Brittle, Isola di Skye, Scozia (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_IT-IT9085939814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-02 | [Bolgheri, frazione di Castagneto Carducci, Livorno, Maremma, Toscana (© ©StevanZZ/iStock)](https://www.bing.com/th?id=OHR.ToscanaAutunno_IT-IT9368718519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-01 | [Catena montuosa Clark, Sierra Nevada, Parco Nazionale di Yosemite, California, USA (© Robb Hirsch/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.YosemiteClark_IT-IT9290949114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
