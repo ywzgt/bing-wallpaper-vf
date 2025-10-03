@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-04 | [Urze crescendo em Glen Brittle, Ilha de Skye, Escócia (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_PT-BR7113823627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-03 | [Oxbow Bend no Snake River, Parque Nacional de Grand Teton, Wyoming, EUA (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_PT-BR2338383870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-02 | [Praia de Porto de Galinhas, Pernambuco (© Ildo Frazao/Getty Images)](https://www.bing.com/th?id=OHR.PraiaPortoGalinhas_PT-BR2218477838_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
