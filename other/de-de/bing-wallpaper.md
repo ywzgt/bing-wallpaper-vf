@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-04 | [Die Hauptsolaranlagen der ISS, gesehen von der SpaceX Crew Dragon Endeavour (© NASA)  (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_DE-DE7375931305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-03 | [Brandenburger Tor bei Sonnenuntergang, Berlin (© Craig Hastings/Getty Images)](https://www.bing.com/th?id=OHR.BrandenburgGate_DE-DE4138430516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-02 | [Oxbow Bend am Snake River, Grand-Teton-Nationalpark, Wyoming, USA (© DanitaDelimont.com/AWL Images/SuperStock)](https://www.bing.com/th?id=OHR.OxbowBend_DE-DE1318690148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

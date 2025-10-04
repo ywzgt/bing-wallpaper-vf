@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-04 | [Pannelli solari della ISS visti dalla SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_IT-IT7184624651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-03 | [Erica a Glen Brittle, Isola di Skye, Scozia (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_IT-IT9085939814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-02 | [Bolgheri, frazione di Castagneto Carducci, Livorno, Maremma, Toscana (© ©StevanZZ/iStock)](https://www.bing.com/th?id=OHR.ToscanaAutunno_IT-IT9368718519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
