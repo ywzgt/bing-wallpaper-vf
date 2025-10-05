@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-05 | [Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_FR-FR0719163215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-04 | [Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)](https://www.bing.com/th?id=OHR.CamagueHorses_FR-FR8949135937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-03 | [Bruyère à Glen Brittle, île de Skye, Écosse (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_FR-FR0643714401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

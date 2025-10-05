@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-05 | [Catedral basílica de Nuestra Señora del Pilar, Zaragoza, España (© Botond Horvath/Shutterstock)](https://www.bing.com/th?id=OHR.ElPilarZaragoza_ES-ES2251401044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-04 | [Paneles solares principales de la ISS vistos desde SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_ES-ES0464086432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-03 | [Brezo creciendo en Glen Brittle, Isla de Skye, Escocia (© Adam Mowery/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.SkyeHeather_ES-ES0179378651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
