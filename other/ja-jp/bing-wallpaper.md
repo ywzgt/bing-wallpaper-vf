@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-06 | [錦江に映える安順橋と満月, 中国 (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_JA-JP7739273331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-05 | [森に佇むキンメフクロウ (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_JA-JP7686022274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-04 | [エンデバーから見た ISS のソーラーパネル (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_JA-JP7626531843_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
