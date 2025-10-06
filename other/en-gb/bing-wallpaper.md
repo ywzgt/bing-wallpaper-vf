@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-06 | [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_EN-GB4728597345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-05 | [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_EN-GB4585864931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-04 | [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_EN-GB3820575849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

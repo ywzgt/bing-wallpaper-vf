@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-06 | [Anshun-Brücke, beleuchtet zum Mondfest, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_DE-DE2900249010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-05 | [Raufußkauz in einem Wald in Mitteleuropa (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_DE-DE2816959094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-04 | [Die Hauptsolaranlagen der ISS, gesehen von der SpaceX Crew Dragon Endeavour (© NASA)  (© NASA)](https://www.bing.com/th?id=OHR.DragonEndeavour_DE-DE7375931305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

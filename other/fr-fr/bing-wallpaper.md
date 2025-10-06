@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-06 | [Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_FR-FR1659622087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-05 | [Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_FR-FR0719163215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-04 | [Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)](https://www.bing.com/th?id=OHR.CamagueHorses_FR-FR8949135937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
