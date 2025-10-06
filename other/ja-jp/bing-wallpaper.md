@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-07 | [スネフェルス山, 米国 コロラド州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_JA-JP7797192109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-06 | [錦江に映える安順橋と満月, 中国 (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_JA-JP7739273331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-05 | [森に佇むキンメフクロウ (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_JA-JP7686022274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
