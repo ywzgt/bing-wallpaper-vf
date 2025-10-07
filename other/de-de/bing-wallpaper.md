@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-07 | [Herbstfarben unterhalb des Mount Sneffels nahe Ridgway, Colorado, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_DE-DE7371815159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-06 | [Anshun-Brücke, beleuchtet zum Mondfest, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_DE-DE2900249010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-05 | [Raufußkauz in einem Wald in Mitteleuropa (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_DE-DE2816959094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-07 | [Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)](https://www.bing.com/th?id=OHR.CapAntibes_FR-FR2066318600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-06 | [Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)](https://www.bing.com/th?id=OHR.AnshunBridge_FR-FR1659622087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-05 | [Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_FR-FR0719163215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

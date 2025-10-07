@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-07 | [Colori autunnali ai piedi del Monte Sneffels vicino a Ridgway, Colorado, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_IT-IT7479755416_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-06 | [Funghi agarici ametistini, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_IT-IT7329865927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-05 | [Civetta capogrosso in una foresta dell'Europa centrale (© Ondrej Prosicky/Alamy)](https://www.bing.com/th?id=OHR.TeacherOwl_IT-IT7269776472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
