@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-10 | [モンリキ島, フィジー (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_JA-JP7889877935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-09 | [ジェームズ・ウェッブ宇宙望遠鏡が撮影した創造の柱 (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_JA-JP7847589500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-08 | [竜頭の滝, 栃木県 日光市 (© kecl/Getty images)](https://www.bing.com/th?id=OHR.Ryuzufalls2025_JA-JP6418303608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
