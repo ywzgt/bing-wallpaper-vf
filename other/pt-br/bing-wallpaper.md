@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-10 | [Pilares da Criação vistos pelo Telescópio Espacial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_PT-BR6044828934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-09 | [Polvo-do-dia, Maui, Havaí, EUA (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_PT-BR6333276319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-08 | [São Miguel das Missões, Rio Grande do Sul (© DircinhaSW/Getty Images)](https://www.bing.com/th?id=OHR.SaoMiguel_PT-BR6587333283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
