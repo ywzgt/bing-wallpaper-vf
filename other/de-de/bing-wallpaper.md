@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-09 | [Die Säulen der Schöpfung, betrachtet vom James-Webb-Weltraumteleskop (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_DE-DE3382075540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-08 | [Großer Blauer Krake, Maui, Hawaii, USA (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_DE-DE3244013803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-07 | [Herbstfarben unterhalb des Mount Sneffels nahe Ridgway, Colorado, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_DE-DE7371815159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

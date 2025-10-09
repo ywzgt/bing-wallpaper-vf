@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-09 | [I Pilastri della Creazione visti dal telescopio spaziale James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_IT-IT0673029544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-08 | [Polpo, Maui, Hawaii, USA (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_IT-IT0571963002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-07 | [Colori autunnali ai piedi del Monte Sneffels vicino a Ridgway, Colorado, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.RidgwayAspens_IT-IT7479755416_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

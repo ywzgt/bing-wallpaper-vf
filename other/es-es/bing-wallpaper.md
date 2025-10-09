@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-09 | [Los pilares de la creación vistos por el telescopio espacial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_ES-ES0926278571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-08 | [Pulpo diurno, Maui, Hawái, EE. UU. (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_ES-ES0861664902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-07 | [Villa de Saranac Lake, Montañas Adirondack, Nueva York, EE. UU. (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_ES-ES0795608317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

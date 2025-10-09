@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-09 | [Les Piliers de la Création vus par le télescope spatial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_FR-FR1852034040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-08 | [Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_FR-FR1796300491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-07 | [Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)](https://www.bing.com/th?id=OHR.CapAntibes_FR-FR2066318600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
