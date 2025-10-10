@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-10 | [Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_FR-FR1965594259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-09 | [Les Piliers de la Création vus par le télescope spatial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_FR-FR1852034040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-08 | [Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)](https://www.bing.com/th?id=OHR.OctopusCyanea_FR-FR1796300491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
