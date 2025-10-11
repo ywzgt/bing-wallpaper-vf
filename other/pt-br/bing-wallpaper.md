@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-12 | [Fêmea de pato-carolino, Estados Unidos (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_PT-BR4872632595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-11 | [Recife de coral ao redor de Monuriki, Ilhas Mamanuca, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_PT-BR5100753810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-10 | [Pilares da Criação vistos pelo Telescópio Espacial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_PT-BR6044828934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
