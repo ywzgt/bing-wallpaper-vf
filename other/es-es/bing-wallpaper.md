@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-11 | [El pato joyuyo, EE. UU. (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_ES-ES1058654365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-10 | [Arrecife de coral que rodea la isla de Monuriki, Islas Mamanuca, Fiyi (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_ES-ES0990792283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-09 | [Los pilares de la creación vistos por el telescopio espacial James Webb (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_ES-ES0926278571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

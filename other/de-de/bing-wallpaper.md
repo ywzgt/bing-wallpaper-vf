@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-11 | [Brautente (Weibchen), USA (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_DE-DE3532721036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-10 | [Korallenriff rund um die Insel Monuriki, Mamanuca-Inseln, Fidschi (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_DE-DE3464420542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-09 | [Die Säulen der Schöpfung, betrachtet vom James-Webb-Weltraumteleskop (© NASA)](https://www.bing.com/th?id=OHR.WebbPillars_DE-DE3382075540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
