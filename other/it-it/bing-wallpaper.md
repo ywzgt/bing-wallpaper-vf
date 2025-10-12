@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-12 | [Villaggio di Saranac Lake, Montagne Adirondack, New York, USA (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_IT-IT9519344894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-11 | [Lago Lagazzuolo, Valmalenco, Valle Valtellina, Lombardia (© Francesco Bergamaschi/Getty Images)](https://www.bing.com/th?id=OHR.LagoLagazuolo_IT-IT9428871019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-10 | [Barriera corallina, Isola di Monuriki, Isole Mamanuca, Figi (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_IT-IT0760985138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
