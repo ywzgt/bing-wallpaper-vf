@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-13 | [Balões artesanais de cabaça, Paraty, Rio de Janeiro (© Priscila Zambotto/Getty Images)](https://www.bing.com/th?id=OHR.DiaCriancas_PT-BR4646526292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-12 | [Fêmea de pato-carolino, Estados Unidos (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_PT-BR4872632595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-11 | [Recife de coral ao redor de Monuriki, Ilhas Mamanuca, Fiji (© David Wall/SuperStock)](https://www.bing.com/th?id=OHR.MonurikiFiji_PT-BR5100753810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
