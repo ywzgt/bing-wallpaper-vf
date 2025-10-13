@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-14 | [第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)](https://www.bing.com/th?id=OHR.RailwayDay2025_JA-JP0346908442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-13 | [イア村, グリース (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_JA-JP8051360298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-12 | [サラナック・レイク村, 米国 ニューヨーク州 (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_JA-JP8002477019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
