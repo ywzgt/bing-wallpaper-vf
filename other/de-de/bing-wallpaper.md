@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-13 | [Wasserfall in der Wimbachklamm, Bayern (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_DE-DE9807935907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-12 | [Saranac Lake, Adirondack Mountains, New York, USA (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_DE-DE3608042378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-11 | [Brautente (Weibchen), USA (© ps50ace/iStock/Getty Images)](https://www.bing.com/th?id=OHR.WoodDuckHen_DE-DE3532721036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
