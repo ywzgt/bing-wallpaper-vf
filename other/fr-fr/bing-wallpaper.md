@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-14 | [Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_FR-FR2366635460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-13 | [Gorges de Wimbachklamm, Bavière, Allemagne (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_FR-FR3043490046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-12 | [Village de Saranac Lake, Montagnes Adirondacks, New York, États-Unis (© DenisTangneyJr/Getty Images)](https://www.bing.com/th?id=OHR.SaranacLake_FR-FR2186767346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

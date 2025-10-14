@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-14 | [Pueblo de Oia, Santorini, Grecia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_ES-ES1170312678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-13 | [Desfiladero Wimbachklamm en el valle Wimbachtal, Ramsau bei Berchtesgaden, Baviera, Alemania (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ES-ES0526830866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-12 | [Fiesta Nacional de España, Plaza de Cibeles, Madrid, España (© Noppasin Wongchum/Getty Images)](https://www.bing.com/th?id=OHR.DaySpain_ES-ES2088635486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
