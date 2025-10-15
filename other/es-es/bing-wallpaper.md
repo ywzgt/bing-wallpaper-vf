@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-15 | [Hongos laccaria de amatista, Seabeck, Washington, EE. UU. (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_ES-ES1228402064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-14 | [Pueblo de Oia, Santorini, Grecia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_ES-ES1170312678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-13 | [Desfiladero Wimbachklamm en el valle Wimbachtal, Ramsau bei Berchtesgaden, Baviera, Alemania (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ES-ES0526830866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
