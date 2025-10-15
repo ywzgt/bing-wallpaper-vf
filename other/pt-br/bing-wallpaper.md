@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-16 | [Cogumelos laccaria amethystina em Seabeck, Washington, EUA (©  Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_PT-BR2131819157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-15 | [Vilarejo de Oia, Santorini, Grécia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_PT-BR4517893806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-14 | [Desfiladeiro de Wimbachklamm, Baviera, Alemanha (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.HinterseeWaterfall_PT-BR2829623135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
