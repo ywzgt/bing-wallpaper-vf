@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-17 | [ロック・リバー・フォールズ, 米国 ミシガン州 (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_JA-JP0295221799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-16 | [シベリアオオヤマネコ, シベリア (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_JA-JP8122329970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-15 | [ハウテン町, オランダ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.HoutenHouses_JA-JP0762629111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
