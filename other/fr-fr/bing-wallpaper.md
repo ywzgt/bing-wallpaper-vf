@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-16 | [Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_FR-FR2540232502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-15 | [Champignon laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_FR-FR2437866835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-14 | [Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_FR-FR2366635460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

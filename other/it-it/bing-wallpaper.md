@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-16 | [Lince eurasiatica, Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_IT-IT9885681179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-15 | [Fontana di Trevi, Piazza di Trevi, Roma (© RilindH/RooM)](https://www.bing.com/th?id=OHR.FontanaDiTrevi_IT-IT9781844919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-14 | [Villaggio di Oia, Santorini, Grecia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.OiaSantorini_IT-IT9704470316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
