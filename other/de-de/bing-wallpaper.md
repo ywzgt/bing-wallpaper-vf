@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-17 | [Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)](https://www.bing.com/th?id=OHR.MettlachAutumn_DE-DE9026182741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-16 | [Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_DE-DE4192979708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-15 | [Violette Lacktrichterlinge, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_DE-DE4085236718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
