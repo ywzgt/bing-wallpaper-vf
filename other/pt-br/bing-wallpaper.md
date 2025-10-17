@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Rock River Falls, Península Superior, Michigan, EUA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_PT-BR6243828889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Lince-euroasiático na Sibéria, Rússia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_PT-BR2004015502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-16 | [Cogumelos laccaria amethystina em Seabeck, Washington, EUA (©  Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.AmethystLaccaria_PT-BR2131819157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
