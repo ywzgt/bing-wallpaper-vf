@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)](https://www.bing.com/th?id=OHR.MettlachAutumn_DE-DE9026182741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-16 | [Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_DE-DE4192979708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

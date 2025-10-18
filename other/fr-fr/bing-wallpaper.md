@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Site néolithique de la colline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_FR-FR0576051334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)](https://www.bing.com/th?id=OHR.CorsicaSunshine_FR-FR8649215960_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-16 | [Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_FR-FR2540232502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

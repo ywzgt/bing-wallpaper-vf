@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Colina de Silbury, Avebury, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Rock River Canyon Wilderness, Península superior de Míchigan, EE. UU. (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_ES-ES6474484835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-16 | [Lince euroasiático, Siberia (© Mario Plechaty Photograph/Shutterstock)](https://www.bing.com/th?id=OHR.SiberianLynx_ES-ES1284959959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

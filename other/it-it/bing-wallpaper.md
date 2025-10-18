@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-18 | [Sito neolitico di Silbury Hill, Tilshead, Wiltshire, Inghilterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-17 | [Rock River Falls, Penisola Superiore, Michigan, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_IT-IT4967817075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-17 | [Rock River Falls, Penisola Superiore, Michigan, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_IT-IT3239553748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
