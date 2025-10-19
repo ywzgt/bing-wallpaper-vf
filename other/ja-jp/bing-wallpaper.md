@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_JA-JP1255329003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_JA-JP0862857490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [シルベリー・ヒル, イングランド (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_JA-JP0577938785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
