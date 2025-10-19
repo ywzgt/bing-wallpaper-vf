@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [Macieiras em Minnesota, EUA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_PT-BR5524058975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [Sítio neolítico de Silbury Hill em Tilshead, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_PT-BR5871845476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [Rock River Falls, Península Superior, Michigan, EUA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.RockRiverFalls_PT-BR6243828889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
