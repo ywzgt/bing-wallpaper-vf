@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [El perezoso didáctilo de Hoffmann, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_ES-ES9765798870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [Catedral de la Asunción, Jaén, Andalucía, España (© JoseIgnacioSoto/Getty Images)](https://www.bing.com/th?id=OHR.JaenCathedral_ES-ES4511407655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [Colina de Silbury, Avebury, Wiltshire, Inglaterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_ES-ES9628182073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

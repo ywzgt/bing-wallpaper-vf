@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [Monte Sirente, L’Aquila, Appennino abruzzese, Abruzzo (© ValerioMei/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.MonteVelino_IT-IT3560922998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [Melo, Minnesota, USA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_IT-IT5097872134_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [Sito neolitico di Silbury Hill, Tilshead, Wiltshire, Inghilterra (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_IT-IT5036622504_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

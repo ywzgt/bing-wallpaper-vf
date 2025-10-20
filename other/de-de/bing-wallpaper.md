@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-20 | [Hoffmann-Zweifingerfaultier, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_DE-DE8974751665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-19 | [Erntereife Äpfel, Minnesota, USA (© Tammi Mild/Getty Images)](https://www.bing.com/th?id=OHR.AppleHarvest_DE-DE2705439483_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-18 | [Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://www.bing.com/th?id=OHR.SilburyHill_DE-DE8918422000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
