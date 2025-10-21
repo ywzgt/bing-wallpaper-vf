@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-22 | [平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)](https://www.bing.com/th?id=OHR.HeianDay2025_JA-JP1910457007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-21 | [ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_JA-JP1552911829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-20 | [ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_JA-JP1255329003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
