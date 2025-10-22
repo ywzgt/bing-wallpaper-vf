@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-23 | [Rochas de Belogradchik, Bulgária (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_PT-BR2901045290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-22 | [Lamparina no Templo Dourado durante o Diwali, Amritsar, Índia (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_PT-BR3829249285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-21 | [Preguiça-de-hoffmann, Equador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_PT-BR5106074004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
