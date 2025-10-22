@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-22 | [Rochers de Belogradchik, Bulgarie (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_FR-FR6124284800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-21 | [Une diya au Temple d'Or pendant Diwali, Amritsar, Inde (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_FR-FR5342496143_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-20 | [Paresseux d’Hoffmann, Équateur (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_FR-FR9921272661_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

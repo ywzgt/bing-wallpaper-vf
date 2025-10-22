@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-22 | [Rocce di Belogradchik, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_IT-IT4526713367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-21 | [Una diya al Tempio d'Oro durante la Dīpāvalī, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_IT-IT5153375559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-20 | [Monte Sirente, L’Aquila, Appennino abruzzese, Abruzzo (© ValerioMei/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.MonteVelino_IT-IT3560922998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

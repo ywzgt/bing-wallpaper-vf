@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-22 | [Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_EN-GB3300175834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-21 | [A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.DiyaDiwali_EN-GB3120748109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-20 | [Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.HoffmansSloth_EN-GB2702154812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
