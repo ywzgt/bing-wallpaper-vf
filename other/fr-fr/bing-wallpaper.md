@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-24 | [Vue nocturne du paquebot Queen Mary, Long Beach, Californie, États-Unis (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_FR-FR8887233581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-23 | [Léopard des neiges avec ses petits, réserve de la biosphère du désert froid, Inde (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_FR-FR6410501585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-22 | [Rochers de Belogradchik, Bulgarie (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_FR-FR6124284800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

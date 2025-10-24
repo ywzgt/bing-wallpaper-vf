@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-24 | [Zucche in azienda agricola, Carolina del Nord, USA (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_IT-IT9478392413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-23 | [Leopardo delle nevi con cuccioli, Valle dello Spiti, India (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_IT-IT6712728115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-22 | [Rocce di Belogradchik, Bulgaria (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_IT-IT4526713367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-24 | [Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)](https://www.bing.com/th?id=OHR.StMangLibrary_DE-DE0881251342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-23 | [Schneeleopardin mit ihren Jungen, Spitital, Cold Desert Biosphere Reserve, Indien (© Oriol Alamany/naturepl.com)](https://www.bing.com/th?id=OHR.SnowLeopard_DE-DE9074654183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-22 | [Belogradtschik-Felsen, Bulgarien (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_DE-DE9798723831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
