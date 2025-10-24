@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-25 | [Vista noturna do RMS Queen Mary em Long Beach, Califórnia, EUA (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_PT-BR2038443007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-24 | [Parque Nacional da Chapada Diamantina, Bahia (© Marcio Dufranc/Stock)](https://www.bing.com/th?id=OHR.PondCave_PT-BR4920189612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-23 | [Rochas de Belogradchik, Bulgária (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_PT-BR2901045290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
