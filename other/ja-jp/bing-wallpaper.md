@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-25 | [マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_JA-JP4112991986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-24 | [クイーン・メリー, 米国 カリフォルニア州 (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_JA-JP3893109028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-23 | [八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)](https://www.bing.com/th?id=OHR.AomoriAutumn2025_JA-JP3668853549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
