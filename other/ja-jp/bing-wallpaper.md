@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-26 | [カボチャ農園, 米国 ノースカロライナ州 (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_JA-JP4335474767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_JA-JP4112991986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [クイーン・メリー, 米国 カリフォルニア州 (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_JA-JP3893109028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
