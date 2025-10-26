@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-27 | [オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_JA-JP4581712736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-26 | [カボチャ農園, 米国 ノースカロライナ州 (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_JA-JP4335474767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-25 | [マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_JA-JP4112991986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
