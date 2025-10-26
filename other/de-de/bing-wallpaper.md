@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-26 | [Kürbisfarm in North Carolina, USA (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_DE-DE1674202755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [Luftaufnahme des Moorgebiets im Martimoaapa-Moorreservat, Finnland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_DE-DE0136132064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)](https://www.bing.com/th?id=OHR.StMangLibrary_DE-DE0881251342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

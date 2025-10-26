@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-26 | [Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_FR-FR7536561457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [Vue aérienne de la tourbière, réserve de Martimoaapa, Finlande (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_FR-FR9588990995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [Vue nocturne du paquebot Queen Mary, Long Beach, Californie, États-Unis (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_FR-FR8887233581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

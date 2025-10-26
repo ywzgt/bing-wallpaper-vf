@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-26 | [Vista aérea de las turberas en la Reserva Martimoaapa Mire, Finlandia (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ES-ES0251068328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [Río Oca, Mundaka, Vizcaya, País Vasco, España (© Tuul and Bruno Morandi/Alamy)](https://www.bing.com/th?id=OHR.PaisVascoDay_ES-ES6776223688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [El transatlántico británico “RMS Queen Mary” en Long Beach, California, EE. UU. (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_ES-ES3516526290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-27 | [Clock tower of Emmanuel College, University of Cambridge, England (© Geography Photos/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.DSTEnds2025_EN-GB3762675856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-25 | [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_EN-GB3880674254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-24 | [Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)](https://www.bing.com/th?id=OHR.QueenMary_EN-GB3607133063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
