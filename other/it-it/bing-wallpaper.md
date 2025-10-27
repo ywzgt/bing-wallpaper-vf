@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-27 | [Corvus crassirostris, Monti Simien, Etiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_IT-IT9701842647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-26 | [Torre dell'Orologio di San Marco, Venezia, Veneto (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.ItalyClock_IT-IT0847273649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-25 | [Vista aerea della torbiera nella riserva naturale di Martimoaapa Mire, Finlandia (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_IT-IT0794218844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
