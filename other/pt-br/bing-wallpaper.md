@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-28 | [Corvo-de-bico-grosso, Montanhas Simien, Etiópia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_PT-BR7550569316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-27 | [Fazenda de abóboras na Carolina do Norte, EUA (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_PT-BR8901400722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-26 | [Vista aérea de turfeira na Reserva de Martimoaapa, Finlândia (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_PT-BR1421304664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
