@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-28 | [Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_FR-FR0275962088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-27 | [Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)](https://www.bing.com/th?id=OHR.ChampagneDay_FR-FR1389141387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-26 | [Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_FR-FR7536561457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

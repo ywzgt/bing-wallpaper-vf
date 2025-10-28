@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-28 | [Das Gotische Tor in den Adršpach-Teplice-Felsen, Tschechien (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_DE-DE1966832338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-27 | [Erzrabe, Simien-Nationalpark, Äthiopien (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_DE-DE9134207646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-26 | [Kürbisfarm in North Carolina, USA (© Matthew H Irvin/Getty Images)](https://www.bing.com/th?id=OHR.PumpkinFarm_DE-DE1674202755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

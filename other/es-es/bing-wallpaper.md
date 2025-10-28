@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-28 | [Puerta gótica en las rocas de Adršpach-Teplice, Bohemia, República Checa (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_ES-ES0482796188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-27 | [El cuervo picogordo, Montañas Simien, Etiopía (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_ES-ES0390865860_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-26 | [Vista aérea de las turberas en la Reserva Martimoaapa Mire, Finlandia (© romikatarina/Shutterstock)](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ES-ES0251068328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-29 | [The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_EN-GB3818536107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-28 | [Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_EN-GB3785387714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-27 | [Clock tower of Emmanuel College, University of Cambridge, England (© Geography Photos/Universal Images Group/Getty Images)](https://www.bing.com/th?id=OHR.DSTEnds2025_EN-GB3762675856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
