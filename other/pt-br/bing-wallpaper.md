@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Antigas árvores de til na Floresta do Fanal, Ilha da Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_PT-BR7092033197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Congresso Nacional ao pôr do sol, Brasília, Distrito Federal (© Diego Grandi/Shutterstock)](https://www.bing.com/th?id=OHR.PublicServ_PT-BR4483210857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [Corvo-de-bico-grosso, Montanhas Simien, Etiópia (© Ignacio Yufera/FLPA/Minden Pictures)](https://www.bing.com/th?id=OHR.AfricanRaven_PT-BR7550569316_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
