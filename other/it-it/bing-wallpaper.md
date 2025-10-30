@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Cammelli a Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_IT-IT9959541344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Ocotea foetens nella foresta di Fanal, Madeira, Portogallo (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_IT-IT1040239574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [La Porta Gotica, Rocce di Adršpach-Teplice, Repubblica Ceca (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_IT-IT0944419526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

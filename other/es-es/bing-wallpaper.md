@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Dromedarios en Jaisalmer, Rajasthan, India (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_ES-ES0743477785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Árboles antiguos en el Bosque de Fanal (Laurisilva de Madeira), Porto Moniz, isla de Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_ES-ES0574680440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [Puerta gótica en las rocas de Adršpach-Teplice, Bohemia, República Checa (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_ES-ES0482796188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

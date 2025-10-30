@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-30 | [Chameaux d’Arabie à Jaisalmer, Rajasthan, Inde (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_FR-FR0781642371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-29 | [Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_FR-FR0588492140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-28 | [Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)](https://www.bing.com/th?id=OHR.TepliceRocks_FR-FR0275962088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
