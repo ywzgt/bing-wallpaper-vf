@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-10-31 | [ブラン城, ルーマニア (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_JA-JP1493249630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-30 | [砂漠を歩くラクダたち, インド ラージャスターン州 (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_JA-JP5237549354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-29 | [マデイラ島のファナルの森, ポルトガル (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_JA-JP5058622515_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
