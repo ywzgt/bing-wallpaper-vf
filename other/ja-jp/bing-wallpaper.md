@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-01 | [イエローストーン国立公園, 米国 (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_JA-JP2014731306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-31 | [ブラン城, ルーマニア (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_JA-JP1493249630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-30 | [砂漠を歩くラクダたち, インド ラージャスターン州 (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_JA-JP5237549354_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
