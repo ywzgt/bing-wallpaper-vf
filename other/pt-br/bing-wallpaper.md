@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-01 | [Entrada do Castelo de Bran em Brașov, Romênia (© blue sky in my  pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_PT-BR1477730083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-31 | [Camelos em Jaisalmer, Rajastão, Índia (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_PT-BR6477108877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-30 | [Antigas árvores de til na Floresta do Fanal, Ilha da Madeira, Portugal (© Lukas Jonaitis/Shutterstock)](https://www.bing.com/th?id=OHR.FanalForest_PT-BR7092033197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
