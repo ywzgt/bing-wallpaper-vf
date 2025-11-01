@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-01 | [Bisons grasen an heißen Quellen im Yellowstone-Nationalpark, Wyoming, USA (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_DE-DE1694080486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-31 | [Eingang zum Schloss Bran, Brașov, Rumänien (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_DE-DE1129139069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-30 | [Kamele in Jaisalmer, Rajasthan, Indien (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_DE-DE2030410858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

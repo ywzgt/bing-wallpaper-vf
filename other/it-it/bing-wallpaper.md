@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-01 | [Bisonti al pascolo, Parco Nazionale di Yellowstone, Wyoming, USA (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_IT-IT4205256619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-31 | [Ingresso del Castello di Bran a Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_IT-IT4029236084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-31 | [Ingresso del Castello di Bran a Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_IT-IT5114720491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

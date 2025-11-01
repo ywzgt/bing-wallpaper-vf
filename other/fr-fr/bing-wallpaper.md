@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-01 | [Bisons près des sources chaudes de Yellowstone, Wyoming, États-Unis (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_FR-FR3050146396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-10-31 | [Entrée du château de Bran, Brașov, Roumanie (© blue sky in my pocket/Getty Images) Caption URL:](https://www.bing.com/th?id=OHR.BranCastle_FR-FR2815069618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-30 | [Chameaux d’Arabie à Jaisalmer, Rajasthan, Inde (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.PushkarFair_FR-FR0781642371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
