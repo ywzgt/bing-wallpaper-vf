@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-02 | [Bisontes pastando en aguas termales, Parque Nacional de Yellowstone, Wyoming, EE. UU. (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_ES-ES3027945894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-01 | [Foz de Arbaiun, Navarra, España (© Martín Zalba/500px/Getty Images)](https://www.bing.com/th?id=OHR.AutumSaints_ES-ES0641147491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-10-31 | [Entrada al castillo de Bran en Bran, Brașov, Rumania (© blue sky in my pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_ES-ES0559707677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
