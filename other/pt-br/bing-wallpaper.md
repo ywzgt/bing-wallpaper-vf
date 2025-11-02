@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-03 | [Folhas coloridas de bordo e floresta de bambu em Arashiyama, Quioto, Japão (© DoctorEgg/Getty Images)](https://www.bing.com/th?id=OHR.KyotoMaple_PT-BR7332494643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-02 | [Bisões-americanos pastando em fontes termais, Parque Nacional  de Yellowstone, Wyoming, EUA (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_PT-BR7966374292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-01 | [Entrada do Castelo de Bran em Brașov, Romênia (© blue sky in my  pocket/Getty Images)](https://www.bing.com/th?id=OHR.BranCastle_PT-BR1477730083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
