@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-04 | [Tower Bridge, Londres, Inglaterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_ES-ES3109579970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-03 | [Medusas nadando en el Pacífico, Guerrero, México (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_ES-ES0847480755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-02 | [Bisontes pastando en aguas termales, Parque Nacional de Yellowstone, Wyoming, EE. UU. (© Cheryl Ramalho/Getty Images)](https://www.bing.com/th?id=OHR.BisonSprings_ES-ES3027945894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
