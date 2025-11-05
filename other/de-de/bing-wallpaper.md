@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-05 | [Buchenwald Peña Roya, Naturpark Moncayo, Saragossa, Aragonien, Spanien (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_DE-DE8889308811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-04 | [Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_DE-DE5591169923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-03 | [Qualle schwimmt im Pazifik, Guerrero, Mexiko (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_DE-DE5340526951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

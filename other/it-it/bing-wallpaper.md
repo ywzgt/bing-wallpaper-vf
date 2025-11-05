@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-05 | [Foresta di faggi di Peña Roya, Parco Naturale del Moncayo, Saragozza, Aragona, Spagna (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_IT-IT4548812597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-04 | [Esibizione Frecce Tricolori a Palermo, Sicilia (© ph.antonio pulizzi/Getty Images)](https://www.bing.com/th?id=OHR.ForzeArmate_IT-IT4457176272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-03 | [Medusa nell’Oceano Pacifico, Guerrero, Messico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_IT-IT9520443495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

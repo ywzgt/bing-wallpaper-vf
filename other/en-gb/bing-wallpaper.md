@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-06 | [Guy Fawkes Night fireworks at Glasgow Green, Scotland (© mountaintreks/Shutterstock)](https://www.bing.com/th?id=OHR.GuyFawkesNight2025_EN-GB4093349756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-05 | [Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_EN-GB3663300679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-04 | [Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_EN-GB3540800984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
