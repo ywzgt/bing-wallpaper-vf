@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-06 | [Floresta de faias de Peña Roya, Parque Natural do Moncayo, Saragoça, Aragão, Espanha (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_PT-BR4993675900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-05 | [Tower Bridge, Londres, Inglaterra (© Nick Brundle  Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_PT-BR2443250615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-04 | [Água-viva nadando no Pacífico, Guerrero, México (© Christian  Vizl/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.MexicoJelly_PT-BR1868095241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
