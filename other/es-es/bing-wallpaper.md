@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-06 | [Faros de colores en el templo de Wat Phra That Hariphunchai, Lamphun, Tailandia (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_ES-ES1230113417_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-05 | [Hayedo de Peña Roya, Parque Natural del Moncayo, Zaragoza, Aragón, España (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_ES-ES3658220911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-04 | [Tower Bridge, Londres, Inglaterra (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TowerBridgeUK_ES-ES3109579970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
