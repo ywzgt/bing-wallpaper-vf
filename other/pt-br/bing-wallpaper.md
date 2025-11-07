@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-08 | [Antiga igreja barroca em Ouro Preto, Minas Gerais (©  Fred_Pinheiro/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.ChurchMG_PT-BR3242997817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-07 | [Lanternas coloridas no templo Wat Phra That Hariphunchai em Lamphun, Tailândia (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_PT-BR3447190776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-06 | [Floresta de faias de Peña Roya, Parque Natural do Moncayo, Saragoça, Aragão, Espanha (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_PT-BR4993675900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
