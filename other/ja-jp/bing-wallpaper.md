@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-08 | [バンドンビーチの海蝕岩, 米国 オレゴン州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_JA-JP1159899135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-07 | [エナガ, 日本 (© feathercollector/Shutterstock)](https://www.bing.com/th?id=OHR.Lidong2025_JA-JP0788996940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-06 | [ワット・プラタートハリプンチャイ寺院, タイ (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_JA-JP0402404581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
