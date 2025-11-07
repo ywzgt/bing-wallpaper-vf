@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-07 | [Ours polaire à Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_FR-FR5230824319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-06 | [Lanterne colorées au temple de Wat Phra That Hariphunchai, Lamphun, Thaïlande (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_FR-FR4768060525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-05 | [Forêt de hêtres de Añón de Moncayo, Parc naturel du Moncayo, Saragosse, Espagne (© David Santiago Garcia/DEEPOL by plainpicture)](https://www.bing.com/th?id=OHR.MoncayoAutumn_FR-FR2938988212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

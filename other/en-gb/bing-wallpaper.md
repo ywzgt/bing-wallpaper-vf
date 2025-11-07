@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-08 | [Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_EN-GB7735486202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-07 | [Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_EN-GB4246511086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-06 | [Guy Fawkes Night fireworks at Glasgow Green, Scotland (© mountaintreks/Shutterstock)](https://www.bing.com/th?id=OHR.GuyFawkesNight2025_EN-GB4093349756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
