@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-08 | [Felsformationen am Bandon Beach in Bandon, Oregon, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_DE-DE8120585985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-07 | [Eisbär in Churchill, Manitoba, Kanada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_DE-DE7018032776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-06 | [Bunte Laternen im Tempel Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_DE-DE6599353483_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

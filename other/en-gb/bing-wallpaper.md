@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-09 | [Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_EN-GB7955007948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-08 | [Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_EN-GB7735486202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-07 | [Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_EN-GB4246511086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

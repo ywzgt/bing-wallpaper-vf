@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-08 | [Faraglioni di Bandon Beach, Bandon, Oregon, USA (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_IT-IT4850548090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-07 | [Orso Polare, Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_IT-IT4740478745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-06 | [Lanterne colorate al tempio di Wat Phra That Hariphunchai, Lamphun, Thailandia (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_IT-IT4602897634_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
