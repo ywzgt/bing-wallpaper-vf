@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-09 | [Formações rochosas costeiras da Praia de Bandon, Oregon, EUA  (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_PT-BR3802198914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-08 | [Antiga igreja barroca em Ouro Preto, Minas Gerais (©  Fred_Pinheiro/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.ChurchMG_PT-BR3242997817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-07 | [Lanternas coloridas no templo Wat Phra That Hariphunchai em Lamphun, Tailândia (© MR. ANUJAK JAIMOOK/Getty Images)](https://www.bing.com/th?id=OHR.LanternsThailand_PT-BR3447190776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
