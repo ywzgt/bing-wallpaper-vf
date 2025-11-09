@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-10 | [Nuvens interestelares na Nebulosa da Lagoa, capturadas pelo Telescópio Espacial Hubble (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_PT-BR4213803811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-09 | [Formações rochosas costeiras da Praia de Bandon, Oregon, EUA  (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_PT-BR3802198914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-08 | [Antiga igreja barroca em Ouro Preto, Minas Gerais (©  Fred_Pinheiro/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.ChurchMG_PT-BR3242997817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
