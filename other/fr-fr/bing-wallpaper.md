@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-09 | [Nuages interstellaires dans la nébuleuse de la Lagune, capturés par le télescope spatial Hubble (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_FR-FR5468322424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-08 | [Pitons rocheux de la plage de Bandon, Oregon, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_FR-FR5359077798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-07 | [Ours polaire à Churchill, Manitoba, Canada (© karen crewe/Getty Images)](https://www.bing.com/th?id=OHR.WillowBear_FR-FR5230824319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
