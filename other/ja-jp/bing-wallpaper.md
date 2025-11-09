@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-10 | [松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)](https://www.bing.com/th?id=OHR.MatsumotoCastleDay2025_JA-JP3896283133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-09 | [ハッブル宇宙望遠鏡が撮影したラグーン星雲の星間雲 (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_JA-JP1393658321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-08 | [バンドンビーチの海蝕岩, 米国 オレゴン州 (© Grant Ordelheide/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BandonBeach_JA-JP1159899135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
