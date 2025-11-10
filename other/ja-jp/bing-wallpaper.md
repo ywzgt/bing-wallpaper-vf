@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-11 | [ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)](https://www.bing.com/th?id=OHR.BulgariaRocks_JA-JP2963566999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-10 | [松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)](https://www.bing.com/th?id=OHR.MatsumotoCastleDay2025_JA-JP3896283133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-09 | [ハッブル宇宙望遠鏡が撮影したラグーン星雲の星間雲 (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_JA-JP1393658321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
