@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-10 | [Festival Internacional de Cometas de Corralejo, La Oliva, Fuerteventura, Las Palmas, Canarias, España (© Tamara Kulikova/ShutterStock)](https://www.bing.com/th?id=OHR.KiteFuerteventura_ES-ES1949854266_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-09 | [Nubes interestelares en la Nebulosa de la Laguna, capturadas por el Telescopio Espacial Hubble (© ESA/NASA)](https://www.bing.com/th?id=OHR.LagoonNebula_ES-ES1874240487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-08 | [Complejo megalítico: Externsteine en el Bosque de Teutoburgo, Alemania (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_ES-ES1694019342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
