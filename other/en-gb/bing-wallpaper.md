@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-12 | [The Externsteine rock formation in the Teutoburg Forest, North Rhine-Westphalia, Germany (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_EN-GB9984773372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-11 | [Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, USA (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_EN-GB8796991019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-10 | [Poppy field (© Howard Double/iStock/Getty Images)](https://www.bing.com/th?id=OHR.RemembranceSunday2025_EN-GB8493824308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

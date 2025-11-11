@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-11 | [Ansicht der Felsen gegen den Himmel während des Sonnenuntergangs, Externsteine, Teutoburger Wald, Nordrhein-Westfalen (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_DE-DE9223604176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-10 | [Schwarzschwanz-Präriehunde in der Roberts Prairie Dog Town, Badlands-Nationalpark, South Dakota, USA (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_DE-DE5557386085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-09 | [Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)](https://www.bing.com/th?id=OHR.BerlinOberbaumbruecke_DE-DE8698967118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
