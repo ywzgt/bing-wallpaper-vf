@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-12 | [Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_FR-FR6041377541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-11 | [Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)](https://www.bing.com/th?id=OHR.Armistice_FR-FR5922039911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-10 | [Chiens de prairie à queue noire, Parc National des Badlands, Dakota du Sud, États-Unis (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_FR-FR5690606254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

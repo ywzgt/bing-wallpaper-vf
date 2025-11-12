@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-12 | [Colosseo, Roma, Lazio (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_IT-IT5258156974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-11 | [Complesso megalitico Externsteine, Foresta di Teutoburgo, Germania (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_IT-IT5120455636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-10 | [Castello di Rocca Calascio, Parco Nazionale del Gran Sasso e dei Monti della Laga, Abruzzo (© carlo alberto conti/Getty Images)](https://www.bing.com/th?id=OHR.CastleAbruzzo_IT-IT5062952309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
