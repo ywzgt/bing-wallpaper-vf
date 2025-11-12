@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-13 | [Jacaré-do-pantanal com uma borboleta pousada em  seu focinho, Pantanal (© Angelo Gandolfi/NPL)](https://www.bing.com/th?id=OHR.DiaPantanal_PT-BR4333976346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-12 | [Formação rochosa Externsteine na Floresta de Teutoburgo, Alemanha (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_PT-BR2037253677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-11 | [Cães-da-pradaria no Parque Nacional das Badlands, Dakota do Sul, EUA (© Greg Vaughn/Getty Images)](https://www.bing.com/th?id=OHR.PrairieDogTown_PT-BR5550124039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
