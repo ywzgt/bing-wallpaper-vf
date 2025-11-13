@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-14 | [Aloé-aljava à noite contra a Via Láctea, Keetmanshoop, Namíbia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_PT-BR2329488017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-13 | [Jacaré-do-pantanal com uma borboleta pousada em  seu focinho, Pantanal (© Angelo Gandolfi/NPL)](https://www.bing.com/th?id=OHR.DiaPantanal_PT-BR4333976346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-12 | [Formação rochosa Externsteine na Floresta de Teutoburgo, Alemanha (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_PT-BR2037253677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
