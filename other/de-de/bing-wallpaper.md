@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-13 | [Köcherbäume bei Nacht mit der Milchstraße, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_DE-DE9983425456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-12 | [Luftaufnahme des Kolosseums, Rom, Italien (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_DE-DE9770926344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-11 | [Ansicht der Felsen gegen den Himmel während des Sonnenuntergangs, Externsteine, Teutoburger Wald, Nordrhein-Westfalen (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_DE-DE9223604176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
