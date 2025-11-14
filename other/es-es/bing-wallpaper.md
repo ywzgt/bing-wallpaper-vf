@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-14 | [Madre manatí y cría, Crystal River, Florida, EE. UU. (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_ES-ES4491348488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-13 | [Árboles Quiver por la noche con la Vía Láctea, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_ES-ES2317019212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-12 | [Vista aérea del Coliseo, Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.ColosseumRome_ES-ES3360998875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
