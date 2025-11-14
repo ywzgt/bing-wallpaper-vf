@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-15 | [いろは坂, 栃木県 日光市 (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_JA-JP9540132956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-14 | [マナティー, 米国 フロリダ州 (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_JA-JP3549645655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-13 | [クイバーツリーの森, ナミビア (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_JA-JP4764495415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
