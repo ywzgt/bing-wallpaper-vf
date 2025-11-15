@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-15 | [La strada Irohazaka in autunno, Nikko, Tochigi, Giappone (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_IT-IT9755895022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-14 | [Percorso dell'acquedotto medievale, Perugia, Umbria (© Sean Pavone/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.PerugiaStreet_IT-IT9685190845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-13 | [Alberi faretra di notte con la Via Lattea, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_IT-IT5307684987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

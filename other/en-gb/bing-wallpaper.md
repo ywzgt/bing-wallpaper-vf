@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-16 | [Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-GB2923985391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-15 | [Mother manatee and calf, Crystal River, Florida, United States    (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_EN-GB2783659253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-14 | [Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_EN-GB0294703921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
