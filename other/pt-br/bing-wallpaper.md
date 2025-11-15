@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-16 | [Museu Nacional da República projetado por Oscar Niemeyer, Brasília (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.ProcRep_PT-BR2106067461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-15 | [Peixe-boi-marinho e filhote, Crystal River, Flórida, EUA (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_PT-BR6922634130_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-14 | [Aloé-aljava à noite contra a Via Láctea, Keetmanshoop, Namíbia (© Wim van den Heever/naturepl.com)](https://www.bing.com/th?id=OHR.AloeDichotoma_PT-BR2329488017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
