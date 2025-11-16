@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-16 | [Eine Traboule in Lyon, Frankreich (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_DE-DE6267505829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-15 | [Irohazaka-Straße im Herbst, Nikkō, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_DE-DE0981983291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-14 | [Rundschwanzseekuh mit Kalb, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeBaby_DE-DE5900789035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
