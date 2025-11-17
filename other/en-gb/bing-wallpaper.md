@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [Autumn colours in Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-GB3177635991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [A traboule in Lyon, France (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_EN-GB3858376593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_EN-GB2923985391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

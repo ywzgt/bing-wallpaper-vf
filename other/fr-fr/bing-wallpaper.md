@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-17 | [Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)](https://www.bing.com/th?id=OHR.AlpesAutumn_FR-FR0334744208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-16 | [Traboules du Vieux Lyon, Auvergne-Rhône-Alpes (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_FR-FR4995518705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-15 | [Route d'Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_FR-FR4919627765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

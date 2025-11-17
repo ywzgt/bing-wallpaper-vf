@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-17 | [Parco Nazionale Shenandoah, Virginia, USA (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_IT-IT9971763643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-16 | [Un traboule a Lione, Francia (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_IT-IT5997023386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-15 | [La strada Irohazaka in autunno, Nikko, Tochigi, Giappone (© oneinchpunch/Shutterstock)](https://www.bing.com/th?id=OHR.IrohazakaAutumn_IT-IT9755895022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
