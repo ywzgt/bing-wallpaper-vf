@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [Lophodytes cucullatus, Oregon, USA (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_IT-IT0039919280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [Parco Nazionale Shenandoah, Virginia, USA (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_IT-IT9971763643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Un traboule a Lione, Francia (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_IT-IT5997023386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

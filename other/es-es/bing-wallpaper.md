@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [La serreta capuchona, Oregón, EE. UU. (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_ES-ES5196368512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [Colores otoñales en el Parque Nacional Shenandoah, Virginia, EE. UU. (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_ES-ES5113798571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Bailaoras de Flamenco, España (© pepitoko/Getty Images)](https://www.bing.com/th?id=OHR.FlamencoDay_ES-ES7190621326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

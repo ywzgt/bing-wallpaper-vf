@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_FR-FR0461657893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)](https://www.bing.com/th?id=OHR.AlpesAutumn_FR-FR0334744208_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Traboules du Vieux Lyon, Auvergne-Rhône-Alpes (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_FR-FR4995518705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-18 | [Männlicher Kappensäger, Oregon, USA (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_DE-DE5996938724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-17 | [Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)](https://www.bing.com/th?id=OHR.GermanyOwl_DE-DE5134865756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-16 | [Eine Traboule in Lyon, Frankreich (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_DE-DE6267505829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
