@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-19 | [Ilha de Cataguás, Angra dos Reis, Rio de Janeiro (© VBC Imagens Aereas/Shutterstock)](https://www.bing.com/th?id=OHR.Cataguas_PT-BR6322961600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-18 | [Cores do outono no Parque Nacional de Shenandoah, Virgínia, EUA (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_PT-BR5028507460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-17 | [Passagens secretas em Lyon, França (© TPopova/Getty Images)](https://www.bing.com/th?id=OHR.LyonTraboules_PT-BR0512740637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
