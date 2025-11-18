@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-19 | [国会議事堂, ハンガリー (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_JA-JP4965401234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-18 | [オスのオウギアイサ, 米国 オレゴン州 (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_JA-JP4454078554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-17 | [シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_JA-JP4220647370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
