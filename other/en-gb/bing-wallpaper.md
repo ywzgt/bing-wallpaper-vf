@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-20 | [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_EN-GB3462285989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-19 | [Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-GB3336430731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-18 | [Autumn colours in Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahTrail_EN-GB3177635991_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
