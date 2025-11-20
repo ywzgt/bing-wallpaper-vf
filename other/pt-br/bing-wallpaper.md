@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-21 | [Arte de Saype na sede da ONU, Genebra, Suíça (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_PT-BR1234031890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-20 | [Parlamento de Budapeste, Hungria (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_PT-BR5218931767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-19 | [Ilha de Cataguás, Angra dos Reis, Rio de Janeiro (© VBC Imagens Aereas/Shutterstock)](https://www.bing.com/th?id=OHR.Cataguas_PT-BR6322961600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
