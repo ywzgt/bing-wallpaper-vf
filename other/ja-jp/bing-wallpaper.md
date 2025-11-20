@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-21 | [ゼニガタアザラシ, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_JA-JP5482157523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-20 | [Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_JA-JP5293768953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-19 | [国会議事堂, ハンガリー (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_JA-JP4965401234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
