@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-20 | [Dipinto di Saype, sede delle Nazioni Unite, Ginevra, Svizzera (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_IT-IT0227683943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-19 | [Palazzo del Parlamento, Budapest, Ungheria (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_IT-IT0096331851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-18 | [Lophodytes cucullatus, Oregon, USA (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_IT-IT0039919280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

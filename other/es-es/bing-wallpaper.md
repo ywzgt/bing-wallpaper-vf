@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-20 | [El artista Saype posa con su obra "World in Progress" en la sede de la ONU, Ginebra, Suiza (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_ES-ES5813016129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-19 | [Edificio del Parlamento Húngaro, Budapest, Hungría (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_ES-ES5288073856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-18 | [La serreta capuchona, Oregón, EE. UU. (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_ES-ES5196368512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-21 | [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_EN-GB3688069566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-20 | [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_EN-GB3462285989_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-19 | [Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_EN-GB3336430731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

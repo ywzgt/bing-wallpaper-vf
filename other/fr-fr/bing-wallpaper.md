@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-20 | [L’artiste Saype avec son œuvre de land art au siège de l’ONU, Genève, Suisse (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_FR-FR0826071049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-19 | [Parlement, Budapest, Hongrie (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_FR-FR0626557002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-18 | [Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.AutumnMerganser_FR-FR0461657893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
