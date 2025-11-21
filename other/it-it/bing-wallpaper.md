@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-21 | [Pino Loricato Fossilizzato del Pollino sulla Serra di Crispo, Calabria e Basilicata (© Renzi Tommaso tommyre00@hotmail.it/Moment)](https://www.bing.com/th?id=OHR.FestaAlbero_IT-IT0339248009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-20 | [Dipinto di Saype, sede delle Nazioni Unite, Ginevra, Svizzera (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_IT-IT0227683943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-19 | [Palazzo del Parlamento, Budapest, Ungheria (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.BudapestParliament_IT-IT0096331851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
