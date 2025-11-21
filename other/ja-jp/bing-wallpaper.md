@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-22 | [兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)](https://www.bing.com/th?id=OHR.Kenrokuen2025_JA-JP5771782879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-21 | [ゼニガタアザラシ, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_JA-JP5482157523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-20 | [Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_JA-JP5293768953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
