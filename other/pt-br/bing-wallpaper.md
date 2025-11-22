@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-23 | [Grande Buda de Leshan, Sujuão, China (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_PT-BR1954445961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-22 | [Focas-comuns no Parque Estadual Robert Moses, Long Island, Nova York, EUA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://www.bing.com/th?id=OHR.SealWaving_PT-BR1657752159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-21 | [Arte de Saype na sede da ONU, Genebra, Suíça (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://www.bing.com/th?id=OHR.SaypeGeneva_PT-BR1234031890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
