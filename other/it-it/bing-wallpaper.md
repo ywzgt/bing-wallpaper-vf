@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-23 | [Fossile di ammonite del Madagascar (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_IT-IT0517415518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-22 | [Buddha gigante di Leshan, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)](https://www.bing.com/th?id=OHR.LeshanBuddha_IT-IT0412372089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-21 | [Pino Loricato Fossilizzato del Pollino sulla Serra di Crispo, Calabria e Basilicata (© Renzi Tommaso tommyre00@hotmail.it/Moment)](https://www.bing.com/th?id=OHR.FestaAlbero_IT-IT0339248009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
