@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-25 | [Fontana di Trevi, Rione Trevi, Roma (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT0711532577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-24 | [Forte di Gwalior, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_IT-IT0586993308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-23 | [Fossile di ammonite del Madagascar (© ThomasLENNE/Shutterstock)](https://www.bing.com/th?id=OHR.MadgascarAmmonite_IT-IT0517415518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
