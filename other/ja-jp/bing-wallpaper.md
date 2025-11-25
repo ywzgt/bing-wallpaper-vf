@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-26 | [玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)](https://www.bing.com/th?id=OHR.TamagawaHotspring2025_JA-JP7774958074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-25 | [トレヴィの泉, イタリア (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_JA-JP7108167891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-24 | [グワーリヤル城, インド マディヤ・プラデーシュ州 (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_JA-JP6608183418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
