@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-26 | [Olivenhain in der Serra de Tramuntana, Mallorca, Balearische Inseln, Spanien (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_DE-DE7106057287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-25 | [Weihnachtsmarkt Erfurt, Thüringen (© Jareck/Getty Images)](https://www.bing.com/th?id=OHR.ErfurtChristmas_DE-DE4066993799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-24 | [Gwalior-Fort, Madhya Pradesh, Indien (© ImagesofIndia/Shutterstock)](https://www.bing.com/th?id=OHR.GwailorFort_DE-DE8713840866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

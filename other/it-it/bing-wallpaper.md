@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-26 | [Oliveto nella Serra de Tramuntana, Maiorca, Isole Baleari, Spagna (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_IT-IT4529942950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-25 | [Fontana di Trevi, Rione Trevi, Roma (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT4333845146_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-25 | [Fontana di Trevi, Rione Trevi, Roma (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_IT-IT0711532577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
