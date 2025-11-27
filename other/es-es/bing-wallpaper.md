@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-27 | [Muelle de Eastbourne, Sussex Oriental, Inglaterra (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ES-ES1099940063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-26 | [Olivos en la Sierra de Tramontana, Mallorca, Islas Baleares, España (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_ES-ES8682630168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-25 | [Fontana di Trevi en Roma, Italia (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_ES-ES1601085402_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

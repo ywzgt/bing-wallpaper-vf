@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-27 | [Jetée d’Eastbourne, East Sussex, Angleterre (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_FR-FR3918245967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-26 | [Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)](https://www.bing.com/th?id=OHR.HandmadeMarket_FR-FR3762412272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-25 | [La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)](https://www.bing.com/th?id=OHR.TreviFountain_FR-FR3611871379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
