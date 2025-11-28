@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-29 | [Val Brandet, Corteno Golgi, Brescia, Lombardy, Italy (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_EN-GB2140380754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-28 | [Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_EN-GB4779826792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-27 | [Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)](https://www.bing.com/th?id=OHR.OliveGrove_EN-GB4643116459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
