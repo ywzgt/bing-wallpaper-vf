@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-28 | [Val Brandet, Córteno Golgi, Brescia, Lombardia (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_IT-IT1654726815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-28 | [Val Brandet, Córteno Golgi, Brescia, Lombardia (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_IT-IT2625376488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-27 | [Molo di Eastbourne, East Sussex, Inghilterra (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_IT-IT4691451179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
