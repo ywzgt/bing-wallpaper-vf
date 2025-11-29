@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-29 | [Ciervo rojo en el Parque Nacional De Hoge Veluwe, Países Bajos (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_ES-ES0975453330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-28 | [Val Brandet, Brescia, Lombardía, Italia (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_ES-ES0870485112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-27 | [Muelle de Eastbourne, Sussex Oriental, Inglaterra (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ES-ES1099940063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
