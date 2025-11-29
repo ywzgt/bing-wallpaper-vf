@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-30 | [Veado-vermelho no Parque Nacional De Hoge Veluwe, Países Baixos (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_PT-BR9808049674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-29 | [Praia da Armação, Florianópolis, Santa Catarina (© André Damasco/Getty Images)](https://www.bing.com/th?id=OHR.PraiaFloripa_PT-BR9500409157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-28 | [Píer de Eastbourne, East Sussex, Inglaterra (© Tolga_TEZCAN/Getty Images)](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_PT-BR7338751404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
