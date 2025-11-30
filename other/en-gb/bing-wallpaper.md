@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-01 | [Fireworks over Edinburgh seen from Calton Hill, Scotland (© georgeclerk/E+/Getty Images)](https://www.bing.com/th?id=OHR.StAndrewsDay2025_EN-GB5442155816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-30 | [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_EN-GB4885545035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-29 | [Val Brandet, Corteno Golgi, Brescia, Lombardy, Italy (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_EN-GB2140380754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

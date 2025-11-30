@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-30 | [Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_FR-FR6920337470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-29 | [Cerf élaphe dans le parc national De Hoge Veluwe, Pays-Bas (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_FR-FR6754870424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-28 | [Val Brandet, Brescia, Lombardie, Italie (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_FR-FR6593189563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

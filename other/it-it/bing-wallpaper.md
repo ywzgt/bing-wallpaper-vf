@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-11-30 | [Mercatino di Natale, Lipsia, Sassonia, Germania (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_IT-IT2166339294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-29 | [Cervo rosso, Parco Nazionale De Hoge Veluwe, Paesi Bassi (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_IT-IT1796855659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-28 | [Val Brandet, Córteno Golgi, Brescia, Lombardia (© ClickAlps/Alamy)](https://www.bing.com/th?id=OHR.InvernoItalia_IT-IT1654726815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
