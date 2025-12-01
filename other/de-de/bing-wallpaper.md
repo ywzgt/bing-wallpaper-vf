@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-01 | [Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)](https://www.bing.com/th?id=OHR.AdventcalendarGermany_DE-DE4536925565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-30 | [Weihnachtsmarkt in Leipzig, Sachsen (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_DE-DE5264146684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-29 | [Rothirsch im Nationalpark De Hoge Veluwe, Niederlande (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_DE-DE5044539873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

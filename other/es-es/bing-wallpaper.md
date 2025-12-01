@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-01 | [Arco natural tallado en un iceberg, Antártida (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_ES-ES0463895614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-11-30 | [Mercado navideño en Leipzig, Alemania (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_ES-ES1066408557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-29 | [Ciervo rojo en el Parque Nacional De Hoge Veluwe, Países Bajos (© CreativeNature_nl/Getty Images)](https://www.bing.com/th?id=OHR.DeerVeluwe_ES-ES0975453330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
