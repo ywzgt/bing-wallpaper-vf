@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-02 | [Willow Lake et le mont Blackburn, Parc national et réserve de Wrangell–Saint-Élie, Alaska, États-Unis (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_FR-FR7610126878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-01 | [Arche naturelle sculptée dans un iceberg, Antarctique (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_FR-FR7424154136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-30 | [Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_FR-FR6920337470_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

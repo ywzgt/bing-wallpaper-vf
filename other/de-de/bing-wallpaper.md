@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-02 | [Willow Lake und Mount Blackburn, Wrangell-St.-Elias-Nationalpark und Schutzgebiet, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_DE-DE5594196403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-01 | [Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)](https://www.bing.com/th?id=OHR.AdventcalendarGermany_DE-DE4536925565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-30 | [Weihnachtsmarkt in Leipzig, Sachsen (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_DE-DE5264146684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

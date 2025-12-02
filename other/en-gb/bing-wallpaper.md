@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-03 | [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-GB5720057959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-02 | [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_EN-GB5572434301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-01 | [Fireworks over Edinburgh seen from Calton Hill, Scotland (© georgeclerk/E+/Getty Images)](https://www.bing.com/th?id=OHR.StAndrewsDay2025_EN-GB5442155816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

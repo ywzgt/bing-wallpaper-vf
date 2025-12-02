@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-02 | [Grullas canadienses, Refugio Nacional de Vida Silvestre Bosque del Apache, Nuevo México, EE. UU. (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_ES-ES1308288145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-01 | [Arco natural tallado en un iceberg, Antártida (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_ES-ES0463895614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-11-30 | [Mercado navideño en Leipzig, Alemania (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_ES-ES1066408557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
