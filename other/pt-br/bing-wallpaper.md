@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-03 | [Carnaval no Rio de Janeiro, RJ (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.SambaDay_PT-BR0875547071_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-02 | [Arco natural esculpido em um iceberg, Antártida (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_PT-BR0722727107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-01 | [Mercado de Natal em Leipzig, Alemanha (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_PT-BR0321672309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
