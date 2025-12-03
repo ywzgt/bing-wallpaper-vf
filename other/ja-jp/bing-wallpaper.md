@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-04 | [チーター, ケニア (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_JA-JP6984308413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-03 | [秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)](https://www.bing.com/th?id=OHR.ChichibuNightFestival2025_JA-JP8715169093_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-02 | [ウィロー湖とブラックバーン山, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_JA-JP5149786689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
