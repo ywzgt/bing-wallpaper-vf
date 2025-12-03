@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-03 | [Domaso, Lago di Como, Lombardia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_IT-IT9407440928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-02 | [Lago Willow e Monte Blackburn, Parco Nazionale e Riserva di Wrangell-St. Elias, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_IT-IT2902290451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-01 | [Arco naturale scolpito in un iceberg, Antartide (© Gabrielle/Adobe Stock)](https://www.bing.com/th?id=OHR.AntarcticArch_IT-IT2245369400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
