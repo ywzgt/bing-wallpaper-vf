@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-05 | [Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_EN-GB6062998879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-04 | [Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_EN-GB5902640405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-03 | [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://www.bing.com/th?id=OHR.LeipzigMarket_EN-GB5720057959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

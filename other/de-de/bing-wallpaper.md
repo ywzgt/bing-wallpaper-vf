@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-04 | [Gepard im Maasai Mara National Reserve, Narok, Kenia (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_DE-DE6320566908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-03 | [Kanadakraniche im Sonnenaufgang, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_DE-DE5915883756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-02 | [Willow Lake und Mount Blackburn, Wrangell-St.-Elias-Nationalpark und Schutzgebiet, Alaska, USA (© Patrick J. Endres/Getty Images)](https://www.bing.com/th?id=OHR.WillowLake_DE-DE5594196403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
