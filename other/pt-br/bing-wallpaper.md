@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-05 | [Guepardo na Reserva Nacional Maasai Mara, Narok, Quênia (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_PT-BR1635774221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-04 | [Grous-canadenses ao nascer do sol no Bosque del Apache National Wildlife Refuge, Novo México, EUA (© Jack Dykinga/Minden Pictures)](https://www.bing.com/th?id=OHR.BosqueCranes_PT-BR1405246976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-03 | [Carnaval no Rio de Janeiro, RJ (© Richard I'Anson/Getty Images)](https://www.bing.com/th?id=OHR.SambaDay_PT-BR0875547071_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
