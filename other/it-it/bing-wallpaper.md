@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-05 | [Sito Maya a Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_IT-IT0133653708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-04 | [Ghepardo nella Riserva Nazionale Masai Mara, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_IT-IT9936285996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-03 | [Domaso, Lago di Como, Lombardia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_IT-IT9407440928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
