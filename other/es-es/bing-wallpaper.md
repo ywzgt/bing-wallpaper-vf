@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-06 | [Palacio de las Cortes, Madrid, España (© marcp_dmoz on Flickr/Getty Images)](https://www.bing.com/th?id=OHR.ConstitutionSpainDay_ES-ES1916135600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-05 | [Sitio arqueológico Maya de Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_ES-ES1717432720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-04 | [Guepardo en la Reserva Nacional Maasai Mara, Narok, Kenia (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_ES-ES1632145491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

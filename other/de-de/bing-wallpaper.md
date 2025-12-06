@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-06 | [Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)](https://www.bing.com/th?id=OHR.NicholasChocolate_DE-DE9261454162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-05 | [Maya-Stätte von Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_DE-DE5994746462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-04 | [Gepard im Maasai Mara National Reserve, Narok, Kenia (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_DE-DE6320566908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

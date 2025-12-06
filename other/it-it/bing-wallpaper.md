@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-06 | [Parco Nazionale delle Everglades, Florida, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_IT-IT0190194789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-05 | [Sito Maya a Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_IT-IT0133653708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-04 | [Ghepardo nella Riserva Nazionale Masai Mara, Narok, Kenya (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_IT-IT9936285996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
