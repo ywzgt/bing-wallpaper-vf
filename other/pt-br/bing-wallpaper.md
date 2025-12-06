@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-07 | [Teias de aranha no Parque Nacional Everglades, Flórida, EUA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_PT-BR9624463483_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-06 | [Sítio Maia de Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_PT-BR9370514600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-05 | [Guepardo na Reserva Nacional Maasai Mara, Narok, Quênia (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.CheetahMound_PT-BR1635774221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
