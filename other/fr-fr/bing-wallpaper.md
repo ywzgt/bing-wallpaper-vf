@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-07 | [Forêt de pins, Alsace, Grand Est (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_FR-FR8797751398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-06 | [Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)](https://www.bing.com/th?id=OHR.StrasbourgNicolas_FR-FR8648061434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-05 | [Site maya de Copán, Honduras (© diegograndi/Getty Images)](https://www.bing.com/th?id=OHR.CopanRuins_FR-FR8056709701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
