@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-08 | [Weihnachtsbeleuchtung an den Gebäuden von Domaso am Comer See, Italien (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_DE-DE7407205236_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-07 | [Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_DE-DE5663948524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-06 | [Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)](https://www.bing.com/th?id=OHR.NicholasChocolate_DE-DE9261454162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

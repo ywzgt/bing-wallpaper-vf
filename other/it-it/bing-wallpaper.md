@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-08 | [Santa Maria del Fiore, Firenze, Toscana (© Dan74/Shutterstock)](https://www.bing.com/th?id=OHR.FirenzeNeve_IT-IT0358482518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-07 | [Pineta, Alsazia, Francia (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_IT-IT0276846659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-06 | [Parco Nazionale delle Everglades, Florida, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesSunrise_IT-IT0190194789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
