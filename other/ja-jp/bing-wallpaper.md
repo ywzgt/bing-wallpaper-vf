@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-09 | [バルデス半島のグアナコ, アルゼンチン (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_JA-JP7586440652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-08 | [ドマーゾ, イタリア (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_JA-JP6780343312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-07 | [白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)](https://www.bing.com/th?id=OHR.Daxue2025_JA-JP6833558565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
