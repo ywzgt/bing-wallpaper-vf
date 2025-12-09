@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-09 | [Guanaco, Punta Norte, Penisola di Valdés, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_IT-IT0450906187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-08 | [Santa Maria del Fiore, Firenze, Toscana (© Dan74/Shutterstock)](https://www.bing.com/th?id=OHR.FirenzeNeve_IT-IT0358482518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-07 | [Pineta, Alsazia, Francia (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_IT-IT0276846659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

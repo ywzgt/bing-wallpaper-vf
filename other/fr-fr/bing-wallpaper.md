@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-09 | [Guanaco, Punta Norte, Péninsule Valdés, Argentine (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_FR-FR9248267589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-08 | [Illuminations de Noël sur les bâtiments de Domaso, lac de Côme, Italie (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_FR-FR9116499676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-07 | [Forêt de pins, Alsace, Grand Est (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_FR-FR8797751398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
