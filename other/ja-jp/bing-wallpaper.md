@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-11 | [黄金色に染めるエベレスト, ネパール  (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_JA-JP3566583579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-10 | [メスキータ, スペイン アンダルシア州 (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_JA-JP3405653486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-09 | [バルデス半島のグアナコ, アルゼンチン (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_JA-JP7586440652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
