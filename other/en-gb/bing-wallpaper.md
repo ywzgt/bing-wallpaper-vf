@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-11 | [Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_EN-GB6957554963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-10 | [Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_EN-GB8598553400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-09 | [Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_EN-GB6672805340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

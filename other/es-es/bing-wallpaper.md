@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-10 | [Interior de la Mezquita-Catedral de Córdoba, Andalucía, España (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_ES-ES0926965367_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-09 | [Guanaco, Punta Norte, Península Valdés, Argentina (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_ES-ES5630891489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-08 | [Luces navideñas en edificios de Domaso, Lago de Como, Italia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ComoChristmas_ES-ES2097586747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
