@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-12 | [雪のような白い斑点模様のポインセチア (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_JA-JP0214216812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-11 | [黄金色に染めるエベレスト, ネパール  (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_JA-JP3566583579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-10 | [メスキータ, スペイン アンダルシア州 (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_JA-JP3405653486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
