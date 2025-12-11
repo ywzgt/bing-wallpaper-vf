@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-11 | [Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_FR-FR9669906927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-10 | [Intérieur de la Mosquée-Cathédrale de Cordoue, Andalousie, Espagne (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_FR-FR9536997294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-09 | [Guanaco, Punta Norte, Péninsule Valdés, Argentine (© Sylvain Cordier/naturepl.com)](https://www.bing.com/th?id=OHR.LlamaDay_FR-FR9248267589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
