@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-12 | [Gefleckter Weihnachtsstern (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_DE-DE7616872771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-11 | [Der Gipfel des Mount Everest bei Sonnenuntergang, gesehen vom Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_DE-DE5000653393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-10 | [Innenraum der Mezquita-Kathedrale von Córdoba, Andalusien, Spanien (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_DE-DE5800559694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

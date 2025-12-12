@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-12 | [Stella di Natale (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT0030863548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-11 | [La vetta del Monte Everest al tramonto, vista da Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_IT-IT0574844074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-10 | [Grande Moschea e Cattedrale di Córdoba, Andalusia, Spagna (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_IT-IT0518392649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
