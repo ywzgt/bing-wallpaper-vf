@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Poinsétia, a planta que colore o Natal (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_PT-BR8754988281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [Monte Everest ao pôr do sol, visto de Renjo La Pass, no Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_PT-BR2321595835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-11 | [Interior da Mesquita-Catedral de Córdova, Andaluzia, Espanha (© Elena Zolotova/Getty Images)](https://www.bing.com/th?id=OHR.CordobaCathedral_PT-BR2100403879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
