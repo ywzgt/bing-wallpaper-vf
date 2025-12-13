@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Merced River, Yosemite-Nationalpark, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_DE-DE7894807438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [Gefleckter Weihnachtsstern (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_DE-DE7616872771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-11 | [Der Gipfel des Mount Everest bei Sonnenuntergang, gesehen vom Renjo La, Nepal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_DE-DE5000653393_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

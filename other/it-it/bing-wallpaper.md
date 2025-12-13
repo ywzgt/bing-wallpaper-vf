@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Fiume Merced, Parco Nazionale di Yosemite, California, USA (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_IT-IT0817875707_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [Stella di Natale (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT1139304078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-12 | [Stella di Natale (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_IT-IT0030863548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

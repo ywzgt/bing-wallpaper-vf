@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-13 | [Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)](https://www.bing.com/th?id=OHR.RacletteDay_FR-FR1340553802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-12 | [Plante Poinsettia dite Étoile de Noël (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_FR-FR0741474217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-11 | [Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)](https://www.bing.com/th?id=OHR.EverestGlow_FR-FR9669906927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
