@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-15 | [Chapim-de-penacho-cinzento pousado em ramos de pinheiro, Massachusetts, EUA (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_PT-BR8020048731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-14 | [Rio Merced, Parque Nacional de Yosemite, Califórnia, EUA (© Ron e Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_PT-BR8418720917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-13 | [Poinsétia, a planta que colore o Natal (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_PT-BR8754988281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
