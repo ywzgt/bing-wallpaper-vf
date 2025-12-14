@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-14 | [Grauhäubchenmeise auf einem Kiefernast, Massachusetts, USA (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_DE-DE8240500684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-13 | [Merced River, Yosemite-Nationalpark, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_DE-DE7894807438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-12 | [Gefleckter Weihnachtsstern (© DigiPub/Getty Images)](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_DE-DE7616872771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
