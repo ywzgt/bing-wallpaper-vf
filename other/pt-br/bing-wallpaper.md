@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-17 | [Gnomos artesanais em um mercado de Natal (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_PT-BR4901751398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-16 | [Decorações luminosas no canal Spiegelgracht, Amsterdã, Países Baixos (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_PT-BR5962118640_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-15 | [Chapim-de-penacho-cinzento pousado em ramos de pinheiro, Massachusetts, EUA (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_PT-BR8020048731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
