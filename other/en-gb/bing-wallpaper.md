@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-17 | [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_EN-GB0782931323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-16 | [Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_EN-GB0625197619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-15 | [Royal Pavilion, Brighton, England (© by Andrea Pucci/Moment/Getty Images)](https://www.bing.com/th?id=OHR.BrightonRoyalPavilion2025_EN-GB0413792609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

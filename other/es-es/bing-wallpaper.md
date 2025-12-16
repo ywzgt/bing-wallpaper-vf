@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-16 | [Gnomos hechos a mano en un mercado navideño (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_ES-ES4014499424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-15 | [Luces de Navidad en el canal Spiegelgracht, Ámsterdam, Países Bajos (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_ES-ES3912023749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-14 | [Reno durante la nevada invernal, Laponia, Finlandia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_ES-ES3822671431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-16 | [Volo della Stazione Spaziale sopra la punta meridionale dell'Italia (© NG Images/Alamy)](https://www.bing.com/th?id=OHR.ItalySpaceDay_IT-IT1038189118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-15 | [Decorazioni luminose sul canale Spiegelgracht, Amsterdam, Paesi Bassi (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_IT-IT0966951501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-14 | [Gnomi fatti a mano in un mercatino di Natale (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_IT-IT0880472693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
