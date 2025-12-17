@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-17 | [Eurasisches Eichhörnchen in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_DE-DE9962417509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-16 | [Handgefertigte Wichtel auf einem Weihnachtsmarkt (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_DE-DE8958661114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-15 | [Lichtdekorationen am Spiegelgracht-Kanal, Amsterdam, Niederlande (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.AmsterdamLights_DE-DE8640101096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
