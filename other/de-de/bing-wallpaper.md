@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-18 | [Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)](https://www.bing.com/th?id=OHR.OstfrieslandWinter_DE-DE7440932341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-17 | [Eurasisches Eichhörnchen in Northumberland, England (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_DE-DE9962417509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-16 | [Handgefertigte Wichtel auf einem Weihnachtsmarkt (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_DE-DE8958661114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-18 | [Luz del amanecer a través de árboles helados, Suecia (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_ES-ES4279169138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-17 | [Ardilla roja euroasiática en Northumberland, Inglaterra (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_ES-ES4169839587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-16 | [Gnomos hechos a mano en un mercado navideño (© Veronika Seppanen/Shutterstock)](https://www.bing.com/th?id=OHR.ChristmasGnomes_ES-ES4014499424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
