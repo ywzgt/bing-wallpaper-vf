@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-19 | [ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_JA-JP1791938778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-18 | [太陽の神殿, 米国 ユタ州 (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_JA-JP1654490549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-17 | [キタリス, イングランド (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_JA-JP1466167178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
