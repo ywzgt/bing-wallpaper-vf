@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-19 | [Paesaggio innevato a Bormio, Sondrio, Lombardia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_IT-IT9940500837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-18 | [Tempio del Sole, Parco Nazionale Capitol Reef, Utah, USA (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_IT-IT9862752275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-17 | [Scoiattolo rosso nel Northumberland, Inghilterra (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_IT-IT9640811523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-19 | [Paisaje nevado en Bormio, Lombardía, Italia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_ES-ES9743879453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-18 | [Luz del amanecer a través de árboles helados, Suecia (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_ES-ES4279169138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-17 | [Ardilla roja euroasiática en Northumberland, Inglaterra (© Michael_Conrad/Getty Images)](https://www.bing.com/th?id=OHR.FrostySquirrel_ES-ES4169839587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
