@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-20 | [Mona Vale Rockpool, Sydney, Austrália (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_PT-BR3761325411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-19 | [Templo do Sol, Parque Nacional Capitol Reef, Utah, EUA (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_PT-BR4139226561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-18 | [Raposa-vermelha, Canadá (© RT-Images/Getty Images)](https://www.bing.com/th?id=OHR.RedFoxVulpes_PT-BR4619865412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
