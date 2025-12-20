@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-20 | [Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)](https://www.bing.com/th?id=OHR.FetNav_FR-FR1160112574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-19 | [Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_FR-FR0908929457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-18 | [Étoiles de Herrnhut, Allemagne (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_FR-FR0647392410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

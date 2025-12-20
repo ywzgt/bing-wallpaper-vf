@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-21 | [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-GB1419415106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-20 | [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_EN-GB1277241027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-19 | [Temple of the Sun, Capitol Reef National Park, Utah, USA (© Austin Cronnelly/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.CathedralValley_EN-GB1105265816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
