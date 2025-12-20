@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-21 | [屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)](https://www.bing.com/th?id=OHR.WinterSolstice2025_JA-JP2351386518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-20 | [星型のランプ, ドイツ (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_JA-JP2184605933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-19 | [ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_JA-JP1791938778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
