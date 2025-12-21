@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-21 | [Morgendämmerung durch frostige Bäume, Schweden (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_DE-DE1312651216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-20 | [Weihnachtsstern-Laternen, Deutschland (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_DE-DE0755319910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-19 | [Verschneite Landschaft in Bormio, Lombardei, Italien (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_DE-DE0438792611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

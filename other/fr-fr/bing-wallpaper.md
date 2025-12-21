@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-21 | [Lumière de l’aube à travers les arbres givrés, Suède (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_FR-FR1371775798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-20 | [Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)](https://www.bing.com/th?id=OHR.FetNav_FR-FR1160112574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-19 | [Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)](https://www.bing.com/th?id=OHR.YosemiteWinter_FR-FR0908929457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

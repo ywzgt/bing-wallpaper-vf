@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-21 | [Luce dell'alba tra gli alberi gelati, Svezia (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_IT-IT0210098439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-20 | [Lanterne natalizie a forma di stella, Germania (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_IT-IT0134710984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-19 | [Paesaggio innevato a Bormio, Sondrio, Lombardia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.BormioItaly_IT-IT9940500837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
