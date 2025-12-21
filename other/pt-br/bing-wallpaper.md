@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-22 | [Periquito-de-encontro-amarelo em uma árvore de manga no Pantanal (© Uwe-Bergwitz/Getty Images)](https://www.bing.com/th?id=OHR.Chevroned_PT-BR2327788537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-21 | [Lanternas de Natal em forma de estrela, Alemanha (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_PT-BR3547621816_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-20 | [Mona Vale Rockpool, Sydney, Austrália (© jamenpercy/Getty Images)](https://www.bing.com/th?id=OHR.MonaValePool_PT-BR3761325411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
