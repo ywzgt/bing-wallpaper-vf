@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-23 | ['The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_EN-GB1726876299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-22 | [Dawn light through frosty trees, Sweden (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_EN-GB1586766616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-21 | [Christmas star lanterns, Germany (© artas/Getty Images)](https://www.bing.com/th?id=OHR.StarLanterns_EN-GB1419415106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
