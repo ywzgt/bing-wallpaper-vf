@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-23 | [Capilla nevada con árbol de Navidad en los Alpes bávaros, Alemania (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_ES-ES4634628234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-22 | [“El Cascanueces” interpretado por la Ópera y Ballet Estatal de Turquía en Ankara, Turquía (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_ES-ES4457376290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-21 | [Lago de Covadonga, Asturias, España (© emiliozv/Getty Images)](https://www.bing.com/th?id=OHR.WinterCovadonga_ES-ES5041137538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

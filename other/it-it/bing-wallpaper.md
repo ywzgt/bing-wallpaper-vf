@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-23 | [Renne durante una nevicata invernale, Lapponia, Finlandia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_IT-IT0404647782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-22 | [“Lo Schiaccianoci” interpretato dall'Opera e Balletto di Stato turco ad Ankara, Turchia (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_IT-IT0262984454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-21 | [Luce dell'alba tra gli alberi gelati, Svezia (© Schon/Getty Images)](https://www.bing.com/th?id=OHR.SwedenSolstice_IT-IT0210098439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
