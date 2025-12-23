@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [Rena em uma nevasca de inverno, Lapônia, Finlândia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_PT-BR1670775077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-23 | [“O Quebra-Nozes”, apresentado pela Ópera e Balé Estatal da Turquia em Ancara, Turquia (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_PT-BR2095396672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-22 | [Periquito-de-encontro-amarelo em uma árvore de manga no Pantanal (© Uwe-Bergwitz/Getty Images)](https://www.bing.com/th?id=OHR.Chevroned_PT-BR2327788537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
