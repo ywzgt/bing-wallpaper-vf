@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [クリスマスツリーで飾られた礼拝堂, ドイツ (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_JA-JP2947590238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-23 | [ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)](https://www.bing.com/th?id=OHR.TokyoTower2025_JA-JP2794529209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-22 | [雪の中を進むトナカイ, フィンランド (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_JA-JP2648977140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
