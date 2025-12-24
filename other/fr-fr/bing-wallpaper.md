@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [Chapelle avec sapin de Noël dans les Alpes bavaroises, Allemagne (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_FR-FR3119291708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-23 | [Renne sous la neige, Laponie, Finlande (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_FR-FR2344358270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-22 | [« Casse-Noisette » interprété par l’Opéra et Ballet d’État turc à Ankara, Turquie (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_FR-FR1757697936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

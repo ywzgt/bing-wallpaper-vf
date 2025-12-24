@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [Canto de la Sibila, Catedral-Basílica de Santa María de Mallorca, Islas Baleares, España (© Daniel OUDIN/Alamy)](https://www.bing.com/th?id=OHR.SibylSongMallorca_ES-ES5129981423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-23 | [Capilla nevada con árbol de Navidad en los Alpes bávaros, Alemania (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_ES-ES4634628234_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-22 | [“El Cascanueces” interpretado por la Ópera y Ballet Estatal de Turquía en Ankara, Turquía (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_ES-ES4457376290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

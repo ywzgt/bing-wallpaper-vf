@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [Kapelle und Weihnachtsbaum in winterlicher Landschaft, Elmau, Bayern (© Michael Thaler/Shutterstock)](https://www.bing.com/th?id=OHR.ElmauSnow_DE-DE2680814765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-23 | [Rentiere während des Schneefalls im Winter, Lappland, Finnland (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_DE-DE2067489685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-22 | [„Der Nussknacker“, aufgeführt vom Türkischen Staatsballett und der Türkischen Staatsoper in Ankara, Türkei (© Anadolu/Getty Images)](https://www.bing.com/th?id=OHR.NutcrackerAnkara_DE-DE1822801355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
