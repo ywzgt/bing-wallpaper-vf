@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-26 | [Árvore de Natal na cidade do Rio de Janeiro (© Ruy Barbosa Pinto/Getty Images)](https://www.bing.com/th?id=OHR.XmasRio_PT-BR9436214235_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-25 | [Capela e árvore de Natal nos Alpes da Baviera, Alemanha (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_PT-BR9995437015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-24 | [Rena em uma nevasca de inverno, Lapônia, Finlândia (© Roberto Moiola/Getty Images)](https://www.bing.com/th?id=OHR.ReindeerFinland_PT-BR1670775077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
