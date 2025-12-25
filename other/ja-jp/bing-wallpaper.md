@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-26 | [ソールズベリー大聖堂, イングランド (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_JA-JP8756136772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-25 | [クリスマスマーケットのスノードーム, ドイツ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_JA-JP3196648040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-24 | [クリスマスツリーで飾られた礼拝堂, ドイツ (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_JA-JP2947590238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
