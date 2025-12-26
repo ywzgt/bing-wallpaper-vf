@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-27 | [凍結するスペリオル湖, 米国 ミネソタ州 (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_JA-JP0628295807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-26 | [ソールズベリー大聖堂, イングランド (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_JA-JP8756136772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-25 | [クリスマスマーケットのスノードーム, ドイツ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_JA-JP3196648040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
