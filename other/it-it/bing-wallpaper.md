@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-26 | [Cattedrale di Salisbury, Wiltshire, Inghilterra (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_IT-IT1269440144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-25 | [Albero di Natale, Piazza del Duomo, Milano, Lombardia (© Xantana/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.MilanoNatale_IT-IT0776124040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-24 | [Cappella innevata con albero di Natale nelle Alpi bavaresi, Germania (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.ElmauChapel_IT-IT0705069498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

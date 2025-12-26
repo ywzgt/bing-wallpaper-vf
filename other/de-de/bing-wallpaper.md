@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-26 | [Kathedrale von Salisbury, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_DE-DE2989262973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-25 | [Schneekugeln auf einem Weihnachtsmarkt in Heidelberg, Baden-Württemberg (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_DE-DE3146908571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-24 | [Kapelle und Weihnachtsbaum in winterlicher Landschaft, Elmau, Bayern (© Michael Thaler/Shutterstock)](https://www.bing.com/th?id=OHR.ElmauSnow_DE-DE2680814765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
