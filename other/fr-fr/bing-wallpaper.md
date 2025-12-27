@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-27 | [Plaques de glace sur le lac Supérieur, Minnesota, États-Unis (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_FR-FR4676327003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-26 | [Nuuk, Groenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_FR-FR4321343444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-25 | [Boules à neige sur un marché de Noël à Heidelberg, Allemagne (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_FR-FR4387473652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

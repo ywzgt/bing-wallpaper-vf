@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-27 | [Placas de hielo a lo largo del Lago Superior, Grand Marais, Minnesota, EE. UU. (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_ES-ES4840040779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-26 | [Catedral de Salisbury, Wiltshire, Inglaterra (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_ES-ES4611953486_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-25 | [Bolas de nieve en un mercado navideño en Heidelberg, Alemania (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.SantaGlobe_ES-ES4718622311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
