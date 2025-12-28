@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-29 | [アブガムレンツ聖グリゴル教会, トルコ (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_JA-JP3058730246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-28 | [アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_JA-JP0902135263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-27 | [凍結するスペリオル湖, 米国 ミネソタ州 (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_JA-JP0628295807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
