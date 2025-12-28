@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-28 | [Schwarzweißer Vari auf Madagaskar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_DE-DE7591770209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-27 | [Platteneis entlang des Oberen Sees, Grand Marais, Minnesota, USA (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_DE-DE3366559163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-26 | [Kathedrale von Salisbury, Wiltshire, England (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_DE-DE2989262973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

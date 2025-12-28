@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-28 | [Lemure dal collare bianco e nero, Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_IT-IT1435281157_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-27 | [Lago Superiore, Grand Marais, Minnesota, USA (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_IT-IT1352171889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-26 | [Cattedrale di Salisbury, Wiltshire, Inghilterra (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_IT-IT1269440144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
