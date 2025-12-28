@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-29 | [Varecia-preto-e-branco em Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_PT-BR6904572079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-28 | [Placas de gelo no Lago Superior, Grand Marais, Minnesota, EUA  (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_PT-BR7439066938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-27 | [Catedral de Salisbury, Wiltshire, Inglaterra (© Julian Elliott Photography/Getty Images)](https://www.bing.com/th?id=OHR.WiltshireDawn_PT-BR7681463999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
