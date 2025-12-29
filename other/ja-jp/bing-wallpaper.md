@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-30 | [古徳沼, 茨城県 那珂市 (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_JA-JP3625883145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-29 | [アブガムレンツ聖グリゴル教会, トルコ (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_JA-JP3058730246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-28 | [アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)](https://www.bing.com/th?id=OHR.MistyPineForest_JA-JP0902135263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
