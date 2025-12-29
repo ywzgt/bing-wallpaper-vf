@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-29 | [Markus Eisenbichler (GER) beim ersten Sprung am zweiten Tag der Vierschanzentournee, 30. Dezember 2016, Oberstdorf, Bayern (© Adam Pretty/Getty Images)](https://www.bing.com/th?id=OHR.SkijumpingEisenbichler_DE-DE4421399020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-28 | [Schwarzweißer Vari auf Madagaskar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_DE-DE7591770209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-27 | [Platteneis entlang des Oberen Sees, Grand Marais, Minnesota, USA (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_DE-DE3366559163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

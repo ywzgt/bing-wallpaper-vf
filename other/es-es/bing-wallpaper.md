@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-29 | [Iglesia de San Gregorio en las ruinas de Ani, Kars, Turquía (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_ES-ES0462839984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-28 | [Lémur rufo blanco y negro en Madagascar (© Cyrielle Beaubois/Getty Images)](https://www.bing.com/th?id=OHR.RuffedLemur_ES-ES4805768745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-27 | [Placas de hielo a lo largo del Lago Superior, Grand Marais, Minnesota, EE. UU. (© wanderluster/Getty Images)](https://www.bing.com/th?id=OHR.SuperiorIceMN_ES-ES4840040779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
