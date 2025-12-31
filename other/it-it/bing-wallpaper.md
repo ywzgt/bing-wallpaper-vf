@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-31 | [Capodanno, Venezia (© Marco Secchi/Collaboratore/Getty Images News)](https://www.bing.com/th?id=OHR.AnnoNuovo_IT-IT2133696487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-30 | [Cigni selvatici, stagno di Kotoku, Giappone (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_IT-IT1972442165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-29 | [Chiesa di San Gregorio nelle rovine di Ani, Kars, Turchia (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_IT-IT1549681594_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

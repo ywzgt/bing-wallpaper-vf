@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-31 | [Reloj de la Puerta del Sol antes de Nochevieja, Madrid (© Pablo Blazquez Dominguez/Getty Images)](https://www.bing.com/th?id=OHR.NewYearES_ES-ES0875645687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-30 | [Cisnes cantores, estanque Kotoku, Japón (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_ES-ES6742186728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-29 | [Iglesia de San Gregorio en las ruinas de Ani, Kars, Turquía (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_ES-ES0462839984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

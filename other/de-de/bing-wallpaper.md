@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-31 | [Silvester, Oberbaumbrücke, Berlin (© spreephoto.de/Getty Images)](https://www.bing.com/th?id=OHR.GermanyNewYear_DE-DE8479244811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-30 | [Singschwäne, Kotoku-Teich, Japan (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_DE-DE3934541892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-29 | [Markus Eisenbichler (GER) beim ersten Sprung am zweiten Tag der Vierschanzentournee, 30. Dezember 2016, Oberstdorf, Bayern (© Adam Pretty/Getty Images)](https://www.bing.com/th?id=OHR.SkijumpingEisenbichler_DE-DE4421399020_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

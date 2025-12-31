@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-31 | [Le nouvel an à Paris, France (© Kiran Ridley/Getty Images)](https://www.bing.com/th?id=OHR.FireworksParis_FR-FR0850151117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-30 | [Cygnes chanteurs, Kotoku, Japon (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_FR-FR9912215229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-29 | [Église Saint-Grégoire à Ani, Kars, Turquie (© Kenan Talas/Getty Images)](https://www.bing.com/th?id=OHR.AniTurkey_FR-FR6681755589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
