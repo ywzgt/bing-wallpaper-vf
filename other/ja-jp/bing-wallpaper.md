@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-01 | [えびす岩・大黒岩, 北海道 (© Ambling Images/Alamy)](https://www.bing.com/th?id=OHR.NewYearSunrise2026_JA-JP4680541723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-31 | [輪王寺の梵鐘, 宮城県 仙台市 (© Grandbrothers/Alamy)](https://www.bing.com/th?id=OHR.Omisoka2026_JA-JP3799587419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-30 | [古徳沼, 茨城県 那珂市 (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_JA-JP3625883145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
