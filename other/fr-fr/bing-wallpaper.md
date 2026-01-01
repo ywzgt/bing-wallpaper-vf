@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-01 | [Un renard polaire endormi (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_FR-FR1449445493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-12-31 | [Le nouvel an à Paris, France (© Kiran Ridley/Getty Images)](https://www.bing.com/th?id=OHR.FireworksParis_FR-FR0850151117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-30 | [Cygnes chanteurs, Kotoku, Japon (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_FR-FR9912215229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

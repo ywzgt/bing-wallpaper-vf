@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-02 | [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-GB6138913529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-01 | [National Monument of Scotland, Edinburgh (© Serge_Bertasius/iStock/Getty Images)](https://www.bing.com/th?id=OHR.Hogmanay2025_EN-GB7784153227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-31 | [Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_EN-GB2256410683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
