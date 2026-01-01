@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-02 | [Raposa-do-ártico dormindo (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_PT-BR5772637703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-01 | [Fogos de artifício na praia de Copacabana, Rio de Janeiro (© BrasilNut1/Getty Images)](https://www.bing.com/th?id=OHR.AnoNovo_PT-BR5981161158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-31 | [Cisnes-bravos, Lago Kotoku, Kantō, Japão (© Martin Bailey/Shutterstock)](https://www.bing.com/th?id=OHR.JapanSwans_PT-BR6213616732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
