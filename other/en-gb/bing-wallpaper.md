@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-03 | [Aerial view of Venice, Italy (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_EN-GB4183487465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-02 | [Arctic fox sleeping (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_EN-GB6138913529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-01 | [National Monument of Scotland, Edinburgh (© Serge_Bertasius/iStock/Getty Images)](https://www.bing.com/th?id=OHR.Hogmanay2025_EN-GB7784153227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

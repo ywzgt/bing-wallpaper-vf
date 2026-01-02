@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-02 | [Luftaufnahme von Venedig, Italien (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_DE-DE5335643211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-01 | [Frostbedeckte Bäume entlang des Flusses Loisach, Kochelsee, Bayern (© Malorny/Getty Images)](https://www.bing.com/th?id=OHR.LoisachWinter_DE-DE1878852056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-12-31 | [Silvester, Oberbaumbrücke, Berlin (© spreephoto.de/Getty Images)](https://www.bing.com/th?id=OHR.GermanyNewYear_DE-DE8479244811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
