@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-04 | [Catarata de Staubbach em Lauterbrunnen, Cantão de Berna, Suíça (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_PT-BR5257129794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-03 | [Vista aérea de Veneza, Itália (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_PT-BR5561968411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-02 | [Raposa-do-ártico dormindo (© Chansak Joe/Getty Images)](https://www.bing.com/th?id=OHR.NewYearFox_PT-BR5772637703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
