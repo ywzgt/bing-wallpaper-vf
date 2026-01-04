@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-05 | [ロンドロジ私営動物保護区, 南アフリカ (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_JA-JP8577579873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-04 | [キングスマウンテン, 米国 アラスカ州 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_JA-JP5338011772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-03 | [ラウターブルンネン, スイス (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_JA-JP5166517859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
