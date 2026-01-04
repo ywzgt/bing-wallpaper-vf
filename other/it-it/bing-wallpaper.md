@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-04 | [Kings Mountain, Montagne Chugach, Alaska, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_IT-IT1181015259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-03 | [Cascata di Staubbach a Lauterbrunnen, Cantone di Berna, Svizzera (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_IT-IT1107060773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-02 | [Branco di impala, Riserva naturale di Londolozi, Sudafrica (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_IT-IT2418246080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

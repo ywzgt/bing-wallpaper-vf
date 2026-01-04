@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-04 | [Kings Mountain, Chugach Mountains, Alaska, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_DE-DE9482861580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-03 | [Staubbachfälle in Lauterbrunnen, Kanton Bern, Schweiz (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_DE-DE9271807830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-02 | [Luftaufnahme von Venedig, Italien (© Clement Leonard/Getty Images)](https://www.bing.com/th?id=OHR.VeniceView_DE-DE5335643211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
