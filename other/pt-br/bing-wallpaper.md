@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-06 | [Impalas na Reserva Privada de Londolozi, África do Sul  (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_PT-BR9661107144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-05 | [Kings Mountain, Montes Chugach, Alasca, EUA  (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_PT-BR9875785873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-04 | [Catarata de Staubbach em Lauterbrunnen, Cantão de Berna, Suíça (© pongnathee kluaythong/Getty Images)](https://www.bing.com/th?id=OHR.LauterbrunnenValley_PT-BR5257129794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
