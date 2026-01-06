@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-07 | [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-GB6899770664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-06 | [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-GB6756876287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-05 | [Kings Mountain, Chugach Mountains, Alaska, United States (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.KingMountain_EN-GB6606181740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
