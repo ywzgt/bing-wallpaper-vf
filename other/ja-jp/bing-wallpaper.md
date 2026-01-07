@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-08 | [ウェスト・ピア, イギリス (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_JA-JP6092282753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-07 | [アーチーズ国立公園, 米国 ユタ州 (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_JA-JP5889672492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-06 | [ヌーク, デンマーク (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_JA-JP5673892352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
