@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-07 | [Arche encadrée par North Window, parc national des Arches, États-Unis (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_FR-FR3181488413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-06 | [Château de Versailles, France (© Mistervlad/Shutterstock)](https://www.bing.com/th?id=OHR.EpiphanyDay_FR-FR4715294698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-05 | [Troupeau d’impalas, réserve de Londolozi, Afrique du Sud (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_FR-FR4421344601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

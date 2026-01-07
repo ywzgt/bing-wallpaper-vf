@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-07 | [Arco Turret, North Window, Arches National Park, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_IT-IT3144069771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-06 | [Città Alta di Bergamo avvolta dalla nebbia, Lombardia (© Gambarini Gianandrea/Shutterstock)](https://www.bing.com/th?id=OHR.BefanaItalia_IT-IT3087185120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-05 | [Nuuk, Groenlandia (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_IT-IT0748358151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

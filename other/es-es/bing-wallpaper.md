@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-07 | [Arco Turret enmarcado por la Ventana Norte en el Parque Nacional de los Arcos, Utah, EE. UU. (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_ES-ES3608770963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-06 | [Reyes Magos, Sevilla, Andalucía (© Carol La Rosa/ShutterStock)](https://www.bing.com/th?id=OHR.ReyesMagos_ES-ES2955520279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-05 | [Manada de impalas, Reserva de Londolozi, Sudáfrica (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_ES-ES2728272877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

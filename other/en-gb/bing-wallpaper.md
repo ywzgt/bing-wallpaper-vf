@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-08 | [Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_EN-GB3921180413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-07 | [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-GB6899770664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-06 | [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ImpalaRooibok_EN-GB6756876287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
