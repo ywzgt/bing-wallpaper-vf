@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-08 | [Starenschwarm über den Ruinen des Westpiers in Brighton, England (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_DE-DE1125578660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-07 | [Turret Arch, eingerahmt vom North Window im Arches-Nationalpark, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_DE-DE1434072687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-06 | [Nuuk, Grönland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_DE-DE1784214919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

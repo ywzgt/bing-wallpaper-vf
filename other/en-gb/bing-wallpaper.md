@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-09 | [Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)](https://www.bing.com/th?id=OHR.TuftedTitmouse_EN-GB7363670202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-08 | [Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_EN-GB3921180413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-07 | [Nuuk, Greenland (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_EN-GB6899770664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

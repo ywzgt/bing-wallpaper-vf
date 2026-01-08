@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-08 | [Storni sopra le rovine del West Pier di Brighton, Inghilterra (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_IT-IT4386633806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-07 | [Arco Turret, North Window, Arches National Park, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_IT-IT4777755103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-07 | [Arco Turret, North Window, Arches National Park, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_IT-IT3144069771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
