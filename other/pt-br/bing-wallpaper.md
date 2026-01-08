@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-09 | [Revoada de esturnídeos sobre as ruínas do West Pier de Brighton, Inglaterra (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_PT-BR8948857815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-08 | [Pôr do sol em Fernando de Noronha (© Stephanie Kenner/Getty Images)](https://www.bing.com/th?id=OHR.NoronhaSunset_PT-BR9160496041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-07 | [Nuuk, Groenlândia (© nevereverro/Getty Images)](https://www.bing.com/th?id=OHR.NuukGreenland_PT-BR9430819124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
