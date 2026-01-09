@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-09 | [Basílica de San Francisco de Paula, Nápoles, Italia (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_ES-ES4865830331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-08 | [Estorninos sobre las ruinas del Muelle Oeste de Brighton, Inglaterra (© Philip Reeve/Photodisc/Getty Images)](https://www.bing.com/th?id=OHR.StarlingBrighton2025_ES-ES4605556261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-07 | [Arco Turret enmarcado por la Ventana Norte en el Parque Nacional de los Arcos, Utah, EE. UU. (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.OldRockArch_ES-ES3608770963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
