@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-12 | [ガーラ湯沢スキー場, 新潟県 (© Metta Bunkeaw/Alamy)](https://www.bing.com/th?id=OHR.SkiDay2026_JA-JP1055394608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-11 | [シャウエン, モロッコ (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_JA-JP9617982350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-10 | [マッターホルン, アルプス山脈 (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_JA-JP8773317185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
