@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-11 | [Murs bleus de Chefchaouen, Maroc (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_FR-FR4860652279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-10 | [Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_FR-FR4667476850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-09 | [Coucher de soleil à Bonifacio, Corse, France (© Wirestock/Getty Images)](https://www.bing.com/th?id=OHR.CorsicaDay_FR-FR4522810421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

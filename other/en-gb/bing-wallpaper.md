@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-12 | [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_EN-GB1561607331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-11 | [The Matterhorn reflected in Lake Stellisee, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_EN-GB1417688844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-10 | [Giant redwood trees in Muir Woods National Monument, California, USA (© photo by canderson/Getty Images)](https://www.bing.com/th?id=OHR.MuirWoodsMonument_EN-GB2101130312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
