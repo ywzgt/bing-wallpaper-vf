@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-12 | [Eurasischer Fischotter mit Jungtier, Estland (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_DE-DE8031426610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-11 | [Blaue Mauern von Chefchaouen, Marokko (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_DE-DE7800774459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-10 | [Das Matterhorn spiegelt sich bei Sonnenaufgang im Stellisee, Zermatt, Schweiz (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_DE-DE7583590264_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-12 | [Nutria euroasiática junto a su cría, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_ES-ES5291684262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-11 | [Fachadas azules de Chauen, Marruecos (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_ES-ES5067762597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-10 | [El monte Cervino reflejado en el lago Stellisee al amanecer, Zermatt, Suiza (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_ES-ES4973515891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
