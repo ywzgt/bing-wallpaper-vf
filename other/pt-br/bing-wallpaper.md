@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-13 | [Lontra-europeia e filhote, Estônia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_PT-BR2784694559_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-12 | [Paredes azuis de Chefchaouen, Marrocos (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_PT-BR3236946182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-11 | [Matterhorn refletido no Lago Stellisee ao amanhecer, Zermatt, Suíça (© Andy Trowbridge/naturepl.com)](https://www.bing.com/th?id=OHR.MatterhornSunrise_PT-BR3935856361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
