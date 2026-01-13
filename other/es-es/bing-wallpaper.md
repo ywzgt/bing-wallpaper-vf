@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-13 | [Valle de Clwyd, Gales, Reino Unido (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_ES-ES5513593147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-12 | [Nutria euroasiática junto a su cría, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_ES-ES5291684262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-11 | [Fachadas azules de Chauen, Marruecos (© AnetteAndersen/Getty Images)](https://www.bing.com/th?id=OHR.BlueMorocco_ES-ES5067762597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
