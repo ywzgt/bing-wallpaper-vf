@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-14 | [パラミディ要塞, ギリシャ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_JA-JP0089449076_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-13 | [クレイド渓谷, イギリス ウェールズ (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_JA-JP9906263295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-12 | [ガーラ湯沢スキー場, 新潟県 (© Metta Bunkeaw/Alamy)](https://www.bing.com/th?id=OHR.SkiDay2026_JA-JP1055394608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
