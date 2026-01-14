@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-15 | [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_EN-GB2038729302_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-14 | [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_EN-GB1888088613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-13 | [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_EN-GB1734376903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

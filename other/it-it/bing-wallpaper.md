@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-14 | [Scalinata della fortezza di Palamidi, Nauplia, Grecia (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_IT-IT3360933956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-13 | [Valle del Clwyd, Galles (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_IT-IT9889506987_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-12 | [Cratere nel Parco Nazionale dell'Etna, Catania, Sicilia (© PATMALUPHOTO/Adobe Stock)](https://www.bing.com/th?id=OHR.EtnaSiciliaNeve_IT-IT1228064958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
