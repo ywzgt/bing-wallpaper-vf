@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-15 | [レーヌ, ノルウェー (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_JA-JP0217422028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-14 | [パラミディ要塞, ギリシャ (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_JA-JP0089449076_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-13 | [クレイド渓谷, イギリス ウェールズ (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_JA-JP9906263295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
