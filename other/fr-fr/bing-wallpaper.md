@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-15 | [Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_FR-FR6255114546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-14 | [Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_FR-FR5605647086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-13 | [Vallée de Clwyd, Pays de Galles (© Valerie Blencowe/Getty Images)](https://www.bing.com/th?id=OHR.WalesWinter_FR-FR5382261184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
