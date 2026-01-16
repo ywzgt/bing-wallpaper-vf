@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-16 | [Leopard im Etosha-Nationalpark, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_DE-DE0061843984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-15 | [Das Fischerdorf Reine, Norwegen (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_DE-DE8669629627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-14 | [Die Treppe der Festung Palamidi, Nafplio, Griechenland (© George Pachantouris/Getty Images)](https://www.bing.com/th?id=OHR.PalamidiFortress_DE-DE8463442485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
