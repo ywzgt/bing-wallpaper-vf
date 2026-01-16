@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-16 | [Cerfs cachés dans la forêt (© AB Photography/Getty images)](https://www.bing.com/th?id=OHR.DeerWinter_FR-FR0583142086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-16 | [Cerf cachés dans la forêt (© AB Photography/Getty images)](https://www.bing.com/th?id=OHR.DeerWinter_FR-FR0583142086_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-15 | [Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_FR-FR6255114546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
