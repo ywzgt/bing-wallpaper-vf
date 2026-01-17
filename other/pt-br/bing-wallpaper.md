@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-18 | [Basílica de São Francisco de Paula, Nápoles, Itália (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_PT-BR5152958001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-17 | [Leopardo no Parque Nacional Etosha, Namíbia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_PT-BR5495755355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-16 | [Fitas do Bonfim em Salvador, Bahia (© Lazyllama/Alamy)](https://www.bing.com/th?id=OHR.Bonfim_PT-BR7860220146_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
