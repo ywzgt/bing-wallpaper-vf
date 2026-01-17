@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-18 | [ホワイトサンズ国立公園, 米国 ニューメキシコ州 (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_JA-JP0644225456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-17 | [サン・フランチェスコ・ディ・パオラ聖堂, イタリア (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_JA-JP0488733664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-16 | [ユーラシアカワウソ, エストニア (© Sven Zacek/naturepl.com)](https://www.bing.com/th?id=OHR.SnowOtters_JA-JP0357169871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
