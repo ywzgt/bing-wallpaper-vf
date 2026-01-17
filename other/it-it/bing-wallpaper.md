@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-17 | [Vista aerea di Napoli da Piazza del Plebiscito (© Aerial_Views/E+)](https://www.bing.com/th?id=OHR.WorldPizza_IT-IT4174875702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-16 | [Leopardo nel Parco Nazionale di Etosha, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_IT-IT4096642676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-15 | [Il villaggio di pescatori di Reine, Norvegia (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_IT-IT3436243502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

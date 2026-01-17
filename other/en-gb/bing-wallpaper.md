@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-18 | [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-GB2516304754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-17 | [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://www.bing.com/th?id=OHR.EtoshaLeopard_EN-GB2310527142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-16 | [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_EN-GB2185341004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-17 | [Faro de Punta Nati, Ciudadela, Menorca, España (© Jorge Garcia Argazkiak/Getty Images)](https://www.bing.com/th?id=OHR.Menorca_ES-ES6251409346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-16 | [Ardilla roja euroasiática (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_ES-ES5927701913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-15 | [El pueblo pesquero de Reine, Noruega (© Roberto Moiola/Cavan Images/SuperStock)](https://www.bing.com/th?id=OHR.ReineSunrise_ES-ES5820604211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
