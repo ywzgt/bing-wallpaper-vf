@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-18 | [Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_FR-FR3833859459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-17 | [Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_FR-FR0794724932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-16 | [Cerfs cachés dans la forêt (© AB Photography/Getty images)](https://www.bing.com/th?id=OHR.DeerWinter_FR-FR9698040180_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
