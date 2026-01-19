@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-20 | [Praia de Alter do Chão, Santarém, Pará (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.AlterPara_PT-BR8119560973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-19 | [Parque Nacional de White Sands, Novo México, EUA (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_PT-BR0724108799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-18 | [Basílica de São Francisco de Paula, Nápoles, Itália (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_PT-BR5152958001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
