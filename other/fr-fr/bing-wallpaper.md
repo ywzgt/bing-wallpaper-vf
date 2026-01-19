@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-19 | [Le lac Abraham en hiver, Alberta, Canada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_FR-FR1152470154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-18 | [Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_FR-FR3833859459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-17 | [Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_FR-FR0794724932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

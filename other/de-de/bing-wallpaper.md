@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-19 | [Gefrorener Abraham Lake, Alberta, Kanada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_DE-DE1244248308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-18 | [White-Sands-Nationalpark, New Mexico, USA (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_DE-DE0810654725_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-17 | [Basilika San Francesco di Paola, Neapel, Italien (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_DE-DE0460748064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

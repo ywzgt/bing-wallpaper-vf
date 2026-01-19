@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-20 | [Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_EN-GB2806407133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-19 | [Scots pine forest, Ashdown Forest, England (© James Warwick/The Image Bank/Getty Images)](https://www.bing.com/th?id=OHR.PoohDay2026_EN-GB2644442653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-18 | [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_EN-GB2516304754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

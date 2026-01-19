@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-19 | [Lago Abraham, Alberta, Canada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_IT-IT4374269111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-18 | [Parco Nazionale delle Sabbie Bianche, Nuovo Messico, USA (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_IT-IT4233174692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-17 | [Vista aerea di Napoli da Piazza del Plebiscito (© Aerial_Views/E+)](https://www.bing.com/th?id=OHR.WorldPizza_IT-IT4174875702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
