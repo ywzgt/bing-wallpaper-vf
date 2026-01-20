@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [赤褐色の毛並みが美しいキタリス (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_JA-JP1197927538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)](https://www.bing.com/th?id=OHR.Daikan2026_JA-JP0917583221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)](https://www.bing.com/th?id=OHR.ExternsteineSunset_JA-JP0787932101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

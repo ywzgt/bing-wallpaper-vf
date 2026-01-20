@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-20 | [Pinguino Gentoo, Isola Petermann, Antartide (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_IT-IT4262045366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Pinguino Gentoo, Isola Petermann, Antartide (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_IT-IT4498026851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [Lago Abraham, Alberta, Canada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_IT-IT4374269111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
