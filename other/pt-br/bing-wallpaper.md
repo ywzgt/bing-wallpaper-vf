@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [Pinguim-gentoo, Ilha Petermann, Antártida (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_PT-BR0423220256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Praia de Alter do Chão, Santarém, Pará (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.AlterPara_PT-BR8119560973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [Parque Nacional de White Sands, Novo México, EUA (© Francesco Carucci/Getty Images)](https://www.bing.com/th?id=OHR.WhiteSandsNM_PT-BR0724108799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
