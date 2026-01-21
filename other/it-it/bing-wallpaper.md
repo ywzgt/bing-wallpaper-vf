@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [Scoiattolo rosso eurasiatico (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_IT-IT4115553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Pinguino Gentoo, Isola Petermann, Antartide (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_IT-IT4262045366_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-20 | [Pinguino Gentoo, Isola Petermann, Antartide (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_IT-IT4498026851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

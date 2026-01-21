@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-21 | [Eurasisches Eichhörnchen (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_DE-DE1679110073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-20 | [Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_DE-DE1468306141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-19 | [Gefrorener Abraham Lake, Alberta, Kanada (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_DE-DE1244248308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
