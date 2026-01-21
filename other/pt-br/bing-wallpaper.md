@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-22 | [Esquilo-vermelho-eurasiático (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_PT-BR0149336681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-21 | [Pinguim-gentoo, Ilha Petermann, Antártida (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_PT-BR0423220256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-20 | [Praia de Alter do Chão, Santarém, Pará (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.AlterPara_PT-BR8119560973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
