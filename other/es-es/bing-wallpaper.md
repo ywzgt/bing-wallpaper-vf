@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-22 | [Karlovy Vary, Bohemia, República Checa (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_ES-ES6866349820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-21 | [Palacio de Cristal del Retiro, Madrid, España (© All rights reserved - Copyright/Getty Images)](https://www.bing.com/th?id=OHR.FITUR_ES-ES6773132633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-20 | [Pingüino Gentoo, Isla Petermann, Antártida (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_ES-ES6551563961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-22 | [Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)](https://www.bing.com/th?id=OHR.Mimramfootbridge_DE-DE7428215729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-21 | [Eurasisches Eichhörnchen (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_DE-DE1679110073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-20 | [Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)](https://www.bing.com/th?id=OHR.IciclePenguin_DE-DE1468306141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
