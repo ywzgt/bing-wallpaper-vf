@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-23 | [Weidende Schafe im Schnee, Island (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_DE-DE7690872056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-22 | [Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)](https://www.bing.com/th?id=OHR.Mimramfootbridge_DE-DE7428215729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-21 | [Eurasisches Eichhörnchen (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_DE-DE1679110073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

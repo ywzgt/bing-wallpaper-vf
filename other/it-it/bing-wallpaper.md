@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-23 | [Pecore al pascolo nella neve, Islanda (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_IT-IT3552522867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-22 | [Karlovy Vary, Boemia, Repubblica Ceca (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_IT-IT4150505640_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-21 | [Scoiattolo rosso eurasiatico (© Galina Jacyna/Getty Images)](https://www.bing.com/th?id=OHR.BerrySquirrel_IT-IT4115553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
