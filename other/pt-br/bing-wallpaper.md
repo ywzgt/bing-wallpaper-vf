@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-25 | [Vila de Andermatt nos Alpes, Suíça (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_PT-BR2683096769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-24 | [Ovelhas na neve, Islândia (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_PT-BR6680059407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-23 | [Karlovy Vary, Boêmia, Tchéquia (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_PT-BR9942350940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
