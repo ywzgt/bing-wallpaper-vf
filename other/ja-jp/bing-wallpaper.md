@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-24 | [アンデルマット, スイス (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_JA-JP9574225546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-23 | [雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_JA-JP9416029074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-22 | [カルロヴィ・ヴァリ, チェコ (© Henryk Sadura/Getty Images)](https://www.bing.com/th?id=OHR.KarlovyVary_JA-JP1329702586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
