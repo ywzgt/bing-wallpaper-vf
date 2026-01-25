@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-25 | [Burns National Heritage Park, Ayr, Ayrshire, Scozia (© Alister Firth/Alamy)](https://www.bing.com/th?id=OHR.BurnsPark_IT-IT3697470063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-24 | [Torre di Pisa, Pisa, Toscana (© seng chye teo/Moment)](https://www.bing.com/th?id=OHR.PisaTower_IT-IT3619940805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-23 | [Pecore al pascolo nella neve, Islanda (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.IcelandSheep_IT-IT3552522867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
