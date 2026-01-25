@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-26 | [アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_JA-JP9895459899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-25 | [バーンズ国立遺産公園, スコットランド (© Alister Firth/Alamy)](https://www.bing.com/th?id=OHR.BurnsPark_JA-JP9708968769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-24 | [アンデルマット, スイス (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_JA-JP9574225546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
