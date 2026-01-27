@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-28 | [ワンガヌイ国立公園, ニュージーランド (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_JA-JP0176066803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-27 | [ニシハイイロペリカン, ギリシャ (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_JA-JP5723564956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-26 | [アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)](https://www.bing.com/th?id=OHR.BubblesAbraham_JA-JP9895459899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
