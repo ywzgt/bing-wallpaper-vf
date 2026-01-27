@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-27 | [Krauskopfpelikane, Kerkini-See, Griechenland (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_DE-DE9659953215_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-26 | [Schneebedecktes Schloss Neuschwanstein bei Hohenschwangau, Bayern (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_DE-DE8806606737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-25 | [Burns National Heritage Park, Ayr, Ayrshire, Schottland (© Alister Firth/Alamy)](https://www.bing.com/th?id=OHR.BurnsPark_DE-DE8456925914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
