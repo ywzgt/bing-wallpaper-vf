@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-28 | [Pelicanos-crespos no Lago Kerkini, Grécia (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_PT-BR5399288780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-27 | [Castelo de Neuschwanstein, Baviera, Alemanha (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_PT-BR5083137761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-26 | [Ponte Estaiada, São Paulo, SP (© Carlos Alkmin/Getty images)](https://www.bing.com/th?id=OHR.AnniversarySP_PT-BR3102321116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
