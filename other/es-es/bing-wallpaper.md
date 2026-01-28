@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-28 | [Parque Nacional Whanganui, Manawatu-Whanganui, Nueva Zelanda (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_ES-ES1389152194_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-27 | [Pelícanos ceñudos, Lago Kerkini, Grecia (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_ES-ES2127597270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-26 | [Ochagavía cubierta de nieve, Navarra, España (© PhotosTime/Getty Images)](https://www.bing.com/th?id=OHR.Navarra_ES-ES9772390059_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
