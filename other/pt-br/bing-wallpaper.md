@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-30 | [Prefeitura de Milwaukee, Wisconsin, Estados Unidos (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_PT-BR7635077740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-29 | [Parque Nacional Whanganui, Retaruke, Nova Zelândia (© Matthew Micah Wright/Getty Images)](https://www.bing.com/th?id=OHR.WhanganuiPark_PT-BR6611388869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-28 | [Pelicanos-crespos no Lago Kerkini, Grécia (© Guy Edwardes/naturepl.com)](https://www.bing.com/th?id=OHR.DalmationPelicans_PT-BR5399288780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
