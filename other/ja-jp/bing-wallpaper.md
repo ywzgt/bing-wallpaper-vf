@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-31 | [ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)](https://www.bing.com/th?id=OHR.IceFestival2026_JA-JP1189462193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-30 | [セント・マイケルズ・マウント, イングランド (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_JA-JP9057356830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-29 | [ミルウォーキー市庁舎, 米国 ウィスコンシン州 (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_JA-JP0738561179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
