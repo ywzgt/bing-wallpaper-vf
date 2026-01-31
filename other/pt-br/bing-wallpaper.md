@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-01 | [Zebras-da-planície, Parque Nacional de Etosha, Namíbia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_PT-BR9612132259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-31 | [Monte St. Michael em Marazion, Cornualha, Inglaterra (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_PT-BR8735847757_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-30 | [Prefeitura de Milwaukee, Wisconsin, Estados Unidos (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_PT-BR7635077740_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
