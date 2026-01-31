@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-31 | [Zebre delle pianure, Parco Nazionale di Etosha, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_IT-IT4234811619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-30 | [Andermatt, Svizzera (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_IT-IT7291559000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-29 | [Merlo tra frutti di bosco (© Paolino Massimiliano Manuel/iStock/Getty Images)](https://www.bing.com/th?id=OHR.ItalyBlackbird_IT-IT4018019243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

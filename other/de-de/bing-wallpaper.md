@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-01-31 | [Steppenzebras, Etosha-Nationalpark, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_DE-DE4542235434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-30 | [St. Michael’s Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_DE-DE4570450459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-29 | [Achtstöckiges offenes Atrium im Rathaus von Milwaukee, Wisconsin, USA (© lavin photography/Getty Images)](https://www.bing.com/th?id=OHR.MilwaukeeHall_DE-DE1517819604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
