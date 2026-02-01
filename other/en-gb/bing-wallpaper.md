@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-02 | [Colourful house in Olinda, Brazil (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_EN-GB3341173663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-01 | [Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_EN-GB2928302935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-31 | [St Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_EN-GB2680243066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-01 | [Buntes Haus in Olinda, Brasilien (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_DE-DE3587898033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-31 | [Steppenzebras, Etosha-Nationalpark, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_DE-DE4542235434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-30 | [St. Michael’s Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_DE-DE4570450459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

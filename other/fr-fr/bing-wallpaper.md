@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-01 | [Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_FR-FR0828345948_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-01-31 | [Des zèbres des plaines, Parc National d’Etosha, Namibie (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_FR-FR8636454138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-30 | [St. Michael's Mount à Marazion, Cornouailles, Angleterre, Royaume-Uni (© Baxter Bradford/robertharding/Getty Images)](https://www.bing.com/th?id=OHR.StMichaelsCornwall_FR-FR8333014700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
