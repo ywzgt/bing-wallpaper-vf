@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-02 | [アルプスマーモット, オーストリア (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_JA-JP1553270450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-01 | [セイタカシギ, フランス (© Antonio Sementa/500px/Getty Images)](https://www.bing.com/th?id=OHR.Echasse_JA-JP1351434706_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-31 | [ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)](https://www.bing.com/th?id=OHR.IceFestival2026_JA-JP1189462193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
