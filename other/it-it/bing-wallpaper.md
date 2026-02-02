@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-02 | [Marmotte alpine, Parco Nazionale degli Alti Tauri, Austria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_IT-IT4461801484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-01 | [Casa colorata, Olinda, Pernambuco, Brasile (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_IT-IT4333912850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-01-31 | [Zebre delle pianure, Parco Nazionale di Etosha, Namibia (© Mogens Trolle/Shutterstock)](https://www.bing.com/th?id=OHR.EtoshaZebra_IT-IT4234811619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
