@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-04 | [Castillo de Neuschwanstein, Baviera, Alemania (© www.fredconcha.com @ All Rights Reserved/Getty Images)](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_ES-ES8143316489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-03 | [Bahía Esmeralda e isla Fannette, lago Tahoe, California, EE. UU. (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_ES-ES4459822597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-02 | [Marmotas alpinas, Parque Nacional Hohe Tauern, Austria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_ES-ES4070068615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

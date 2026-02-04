@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-04 | [Le milan royal sous la neige (© Carl Mckie/500px/Getty Images)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_FR-FR1936767123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-03 | [Emerald Bay et Fanette Island, Lac Tahoe, Californie, États-Unis (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_FR-FR1712253597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-02 | [Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)](https://www.bing.com/th?id=OHR.BretagneCrepe_FR-FR4282491151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

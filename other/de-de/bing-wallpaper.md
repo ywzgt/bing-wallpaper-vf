@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-04 | [Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.HamburgSpeicherstadt_DE-DE2204805313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-03 | [Emerald Bay und Fannette Island, Lake Tahoe, Kalifornien, USA (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_DE-DE2043843466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-02 | [Alpenmurmeltiere, Nationalpark Hohe Tauern, Österreich (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_DE-DE4432571270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
