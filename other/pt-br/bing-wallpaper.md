@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-05 | [Milhafre-real na neve (© Carl Mckie/500px/Getty Images)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_PT-BR2333314404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-04 | [Emerald Bay e Ilha Fanette, Lake Tahoe, Califórnia, Estados Unidos (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_PT-BR0814646829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-03 | [Marmotas-alpinas, Parque Nacional Hohe Tauern, Áustria (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.AlpineMarmots_PT-BR0573834201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
