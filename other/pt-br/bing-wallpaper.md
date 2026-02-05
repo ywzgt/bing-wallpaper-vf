@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-06 | [Tanques de evaporação de sal na ilha de Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_PT-BR2481485521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-05 | [Milhafre-real na neve (© Carl Mckie/500px/Getty Images)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_PT-BR2333314404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-04 | [Emerald Bay e Ilha Fanette, Lake Tahoe, Califórnia, Estados Unidos (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_PT-BR0814646829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
