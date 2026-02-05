@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-06 | [Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_EN-GB4895639801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-05 | [Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)](https://www.bing.com/th?id=OHR.AndermattSwiss_EN-GB4496349406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-04 | [Emerald Bay and Fannette Island, Lake Tahoe, California, USA (© Bill Stevenson/Cavan Images)](https://www.bing.com/th?id=OHR.FanetteIsland_EN-GB4097522391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
