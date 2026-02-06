@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-07 | [大通公園, 札幌市 (© Reuters/Kimimasa Mayama)](https://www.bing.com/th?id=OHR.SapporoSnowFestival2026_JA-JP9875467944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-06 | [ラ・グセラ峰, イタリア (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_JA-JP8605769992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-05 | [ゴゾ島, マルタ共和国 (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_JA-JP9601510868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
