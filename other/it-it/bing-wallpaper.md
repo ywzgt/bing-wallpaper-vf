@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-06 | [Cortina d’Ampezzo, Veneto (© Алексей Облов/Moment)](https://www.bing.com/th?id=OHR.CortinaOlimpiadi_IT-IT1161240762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-05 | [Bacini di evaporazione del sale sull'isola di Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_IT-IT4724990773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-04 | [Nibbio reale nella neve (© Carl Mckie/500px/Getty Images)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_IT-IT4671101896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
