@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-08 | [Salar de Uyuni na Bolívia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_PT-BR5319110687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-07 | [Pico Ra Gusela no Passo Giau, Itália (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_PT-BR4269836464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-06 | [Tanques de evaporação de sal na ilha de Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_PT-BR2481485521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
