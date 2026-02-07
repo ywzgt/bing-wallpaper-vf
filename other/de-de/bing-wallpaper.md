@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-07 | [Salzebene Salar de Uyuni, Bolivien (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_DE-DE1726865557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-06 | [Gipfel Ra Gusela am Giau-Pass nahe Cortina d’Ampezzo, Italien (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_DE-DE5864987336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-05 | [Salzpfannen auf der Insel Gozo, Malta (© Marius Roman/Getty Images)](https://www.bing.com/th?id=OHR.MaltaSalt_DE-DE3076934153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
