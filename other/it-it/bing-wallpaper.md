@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-08 | [Corfù, Grecia (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_IT-IT2512677240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-07 | [Salina del Salar de Uyuni, Bolivia (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_IT-IT0441176057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-06 | [Cortina d’Ampezzo, Veneto (© Алексей Облов/Moment)](https://www.bing.com/th?id=OHR.CortinaOlimpiadi_IT-IT1161240762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-08 | [Corfou de nuit, Grèce (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_FR-FR6104979945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-07 | [Salar d'Uyuni, Bolivie  (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_FR-FR3839950538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-06 | [Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_FR-FR7292387386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
