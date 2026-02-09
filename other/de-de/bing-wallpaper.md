@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-09 | [Amur‑Leopardkatze, Russland (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_DE-DE2297035168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-08 | [Korfu bei Nacht, Griechenland (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_DE-DE1940142224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-07 | [Salzebene Salar de Uyuni, Bolivien (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.SalarUyuni_DE-DE1726865557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
