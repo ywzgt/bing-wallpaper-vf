@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-11 | [Ilhas de Es Vedrà e Es Vedranell, Ibiza, Espanha (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_PT-BR9549468001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-10 | [Gato-leopardo na Rússia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_PT-BR7297895046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-09 | [Cidade de Corfu, Corfu, Grécia (© whitewizzard/Getty Images)](https://www.bing.com/th?id=OHR.CorfuGreece_PT-BR5783395484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
