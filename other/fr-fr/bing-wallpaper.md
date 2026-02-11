@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-11 | [Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)](https://www.bing.com/th?id=OHR.NiceFestival_FR-FR9995350802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-10 | [Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_FR-FR6531751588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-09 | [Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_FR-FR6480726195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

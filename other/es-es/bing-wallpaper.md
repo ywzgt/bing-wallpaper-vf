@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-11 | [Vista del atardecer de San Andrés y Playa de Las Teresitas, Tenerife (© EP-stock/Getty Images)](https://www.bing.com/th?id=OHR.ReinaCarnaval_ES-ES2850086580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-10 | [La formación rocosa “Ojo del Dragón” en la playa de Uttakleiv, Noruega (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_ES-ES7325680371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-09 | [Gato leopardo del Amur, Rusia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_ES-ES2611815677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

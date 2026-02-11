@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-11 | [Salzpfannen im Badwater Basin, Death‑Valley‑Nationalpark, Kalifornien, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_DE-DE3152128237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-10 | [Felsinseln Es Vedrà und Es Vedranell, Ibiza, Spanien (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_DE-DE2745456055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-09 | [Amur‑Leopardkatze, Russland (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_DE-DE2297035168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-11 | [Saline nel Badwater Basin, Valle della Morte, California, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_IT-IT4791088413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-10 | [Isole di Es Vedrà ed Es Vedranell, Ibiza, Spagna (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_IT-IT7799437749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-09 | [Gatto leopardo dell'Amur, Russia (© Valeriy Maleev/naturepl.com)](https://www.bing.com/th?id=OHR.LeopardCat_IT-IT7517648612_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
