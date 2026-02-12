@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-13 | [第3タイ・ラオス友好橋 (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_JA-JP1407443629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-12 | [オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)](https://www.bing.com/th?id=OHR.Olinda_JA-JP1273177244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-11 | [白梅の花 (© EarthScapeImageGraphy/Getty Images)](https://www.bing.com/th?id=OHR.MitoPlumFestival2026_JA-JP1087345056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
