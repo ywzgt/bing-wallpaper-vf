@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-12 | [Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)](https://www.bing.com/th?id=OHR.BerlinaleHall_DE-DE3416408525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-11 | [Salzpfannen im Badwater Basin, Death‑Valley‑Nationalpark, Kalifornien, USA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_DE-DE3152128237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-10 | [Felsinseln Es Vedrà und Es Vedranell, Ibiza, Spanien (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_DE-DE2745456055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
