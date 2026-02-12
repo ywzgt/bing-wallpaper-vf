@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-13 | [Atobá-de-pés-azuis, Ilhas Galápagos, Equador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_PT-BR0902787838_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-12 | [Salinas da Bacia de Badwater, Parque Nacional do Vale da Morte, Califórnia, EUA (© Jim Patterson/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.BadwaterFlats_PT-BR0386889966_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-11 | [Ilhas de Es Vedrà e Es Vedranell, Ibiza, Espanha (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_PT-BR9549468001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
