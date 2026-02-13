@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-13 | [Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_FR-FR5704773652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-12 | [Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_FR-FR2410210068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-11 | [Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)](https://www.bing.com/th?id=OHR.NiceFestival_FR-FR9995350802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-13 | [Tercer Puente de la Amistad entre Tailandia y Laos (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_ES-ES2971245764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-12 | [Piquero de patas azules, Islas Galápagos, Ecuador (© Karine Aigner/TANDEM Stills + Motion)](https://www.bing.com/th?id=OHR.DarwinBooby_ES-ES2893793809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-11 | [Vista del atardecer de San Andrés y Playa de Las Teresitas, Tenerife (© EP-stock/Getty Images)](https://www.bing.com/th?id=OHR.ReinaCarnaval_ES-ES2850086580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
