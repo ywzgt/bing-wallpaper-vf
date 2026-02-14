@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-14 | [Tränendes Herz (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_DE-DE3786630140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-13 | [Dritte Thailändisch‑Laotische Freundschaftsbrücke, die Laos und Thailand verbindet (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_DE-DE8245998463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-12 | [Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)](https://www.bing.com/th?id=OHR.BerlinaleHall_DE-DE3416408525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
