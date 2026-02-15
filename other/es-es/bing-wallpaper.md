@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-15 | [Islotes de Es Vedrá y Es Vedranell, Ibiza (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_ES-ES3095870118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-14 | [Corazones sangrantes (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_ES-ES3038334122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-13 | [Tercer Puente de la Amistad entre Tailandia y Laos (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_ES-ES2971245764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

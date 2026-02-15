@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-15 | [Baleines à bosse à Monterey, Californie, États-Unis (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_FR-FR2588165622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-14 | [Cœurs de Marie (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_FR-FR1591236824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-13 | [Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_FR-FR5704773652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

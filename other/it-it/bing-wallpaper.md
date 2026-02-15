@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-15 | [Balene megattere, Baia di Monterey, California, USA (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_IT-IT5095312358_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-14 | [Verona, Veneto (© Jan Hendrik/Shutterstock/Getty Images)](https://www.bing.com/th?id=OHR.SanValentino_IT-IT4953032598_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-13 | [Terzo ponte dell'amicizia tra Thailandia e Laos (© chaiyut samsuk/Getty Images)](https://www.bing.com/th?id=OHR.FriendshipBridge_IT-IT0003771526_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
