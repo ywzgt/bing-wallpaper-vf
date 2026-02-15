@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-16 | [アカトビ (© Carl Mckie/500px/Getty Images)](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_JA-JP2834863474_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-15 | [海面から飛び出すザトウクジラ, 米国 カリフォルニア州 (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_JA-JP5360073142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-14 | [ハート型のケマンソウ, カナダ オンタリオ州 (© Dorene Hookey/Cavan Images)](https://www.bing.com/th?id=OHR.ValentineHearts_JA-JP1565993875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
