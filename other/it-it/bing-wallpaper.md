@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-16 | [Formazione rocciosa Dragon's Eye, spiaggia di Uttakleiv, Norvegia (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_IT-IT5246962899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-15 | [Balene megattere, Baia di Monterey, California, USA (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_IT-IT5095312358_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-14 | [Verona, Veneto (© Jan Hendrik/Shutterstock/Getty Images)](https://www.bing.com/th?id=OHR.SanValentino_IT-IT4953032598_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
