@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-17 | [Lago e montanhas nevadas em Banff, Alberta, Canadá (© Herbert Rong/Getty Images)](https://www.bing.com/th?id=OHR.BanffWinter_PT-BR7066922976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-16 | [Baleias-jubarte na Baía de Monterey, Califórnia, EUA (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_PT-BR6399797691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-15 | [Escola de samba São Clemente no Sambódromo do Rio de Janeiro, 2016 (© YASUYOSHI CHIBA/AFP via Getty Images)](https://www.bing.com/th?id=OHR.Carnaval26_PT-BR4981816549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
