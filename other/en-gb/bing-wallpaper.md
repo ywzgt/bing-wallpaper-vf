@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-18 | [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-GB0911837862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-17 | [York, England (© CHUNYIP WONG/iStock/Getty Images)](https://www.bing.com/th?id=OHR.JorvikVikingFestival2026_EN-GB0705464256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-16 | [Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_EN-GB9754437276_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

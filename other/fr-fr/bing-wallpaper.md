@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-17 | [Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_FR-FR2946545684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-16 | [Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)](https://www.bing.com/th?id=OHR.Bornand_FR-FR4225399243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-15 | [Baleines à bosse à Monterey, Californie, États-Unis (© Kiliii Fish/Cavan Images)](https://www.bing.com/th?id=OHR.MontereyHumpbacks_FR-FR2588165622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

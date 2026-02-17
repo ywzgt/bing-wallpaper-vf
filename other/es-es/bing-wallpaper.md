@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-17 | [Faroles rojos para celebrar el Año Nuevo chino (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_ES-ES3189574771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-16 | [Banff, Alberta, Canadá (© Herbert Rong/Getty Images)](https://www.bing.com/th?id=OHR.BanffWinter_ES-ES3143885243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-15 | [Islotes de Es Vedrá y Es Vedranell, Ibiza (© L. Apolli/Getty Images)](https://www.bing.com/th?id=OHR.IbizaIslets_ES-ES3095870118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
