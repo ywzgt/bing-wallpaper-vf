@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-18 | [Cavalli di Przewalski (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_IT-IT6104947665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-17 | [Lanterne rosse per festeggiare il Capodanno cinese (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_IT-IT2070900260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-16 | [Formazione rocciosa Dragon's Eye, spiaggia di Uttakleiv, Norvegia (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_IT-IT5246962899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

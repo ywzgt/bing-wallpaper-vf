@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-19 | [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_EN-GB1150597463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-18 | [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_EN-GB0911837862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-17 | [York, England (© CHUNYIP WONG/iStock/Getty Images)](https://www.bing.com/th?id=OHR.JorvikVikingFestival2026_EN-GB0705464256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

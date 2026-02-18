@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-18 | [Przewalski-Pferde (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_DE-DE2303566149_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-17 | [Rote Laternen zum chinesischen Neujahr (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_DE-DE3336246364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-16 | [Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)](https://www.bing.com/th?id=OHR.RoseMondayCologne_DE-DE4534942479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
