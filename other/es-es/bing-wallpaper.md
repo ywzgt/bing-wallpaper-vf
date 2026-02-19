@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-19 | [La Alhambra durante el invierno en Granada (© David Skinner/Getty Images)](https://www.bing.com/th?id=OHR.GranadaAlhambra_ES-ES3338584785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-18 | [Caballos de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ES-ES3293960401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-17 | [Faroles rojos para celebrar el Año Nuevo chino (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_ES-ES3189574771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
