@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-20 | [ホーステール滝, 米国 カリフォルニア州 (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_JA-JP8340862281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-19 | [ウッタクレイヴ海岸, ノルウェー (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_JA-JP3484187300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-18 | [モウコノウマ (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_JA-JP3314314525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
