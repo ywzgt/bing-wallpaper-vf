@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-20 | [Formação rochosa Olho do Dragão na praia de Uttakleiv, Noruega (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_PT-BR9453939614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-19 | [Savana em Piritiba, Bahia (© Gervanio Guimaraes/Getty Images)](https://www.bing.com/th?id=OHR.SavanaBA_PT-BR8450191150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-18 | [Lanternas vermelhas no Ano Novo Chinês, Taiwan (© Gins Wang/Getty Images)](https://www.bing.com/th?id=OHR.NewYearLantern_PT-BR7587558127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
