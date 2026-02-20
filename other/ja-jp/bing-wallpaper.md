@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-21 | [アカギツネ, 米国 ワイオミング州 (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_JA-JP8453720368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-20 | [ホーステール滝, 米国 カリフォルニア州 (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_JA-JP8340862281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-19 | [ウッタクレイヴ海岸, ノルウェー (© reisegraf/Getty Images)](https://www.bing.com/th?id=OHR.DragonsEyeRock_JA-JP3484187300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
