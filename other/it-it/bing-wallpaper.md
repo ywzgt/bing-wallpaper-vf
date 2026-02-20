@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-20 | [Cascata Horsetail, Parco Nazionale di Yosemite, California, USA (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_IT-IT7705285382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-19 | [Cima Ra Gusela, Passo Giau, Cortina d'Ampezzo, Veneto (© Tomasz Podolski/Getty Images)](https://www.bing.com/th?id=OHR.GiauPass_IT-IT5498738884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-18 | [Cavalli di Przewalski (© Nemyrivskyi Viacheslav/Getty Images)](https://www.bing.com/th?id=OHR.PrzewalskisHorse_IT-IT6104947665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
