@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-22 | [マム・トーの丘, イングランド (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_JA-JP8500587140_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-21 | [アカギツネ, 米国 ワイオミング州 (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_JA-JP8453720368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-20 | [ホーステール滝, 米国 カリフォルニア州 (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_JA-JP8340862281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
