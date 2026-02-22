@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-22 | [Colina de Mam Tor, Derbyshire, Inglaterra (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_ES-ES3653407360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-21 | [Zorro rojo bajo la nieve, parque nacional de Grand Teton, Wyoming, EE. UU. (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_ES-ES3808150258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-20 | [Cascada Horsetail, parque nacional de Yosemite, California, EE. UU. (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_ES-ES3757807854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

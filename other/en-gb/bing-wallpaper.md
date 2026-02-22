@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-23 | [The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_EN-GB1525919580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-22 | [Red fox, Grand Teton National Park, Wyoming, United States (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_EN-GB1287383886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-21 | [Horsetail Fall, Yosemite National Park, California, United States (© Jorge Villalba/Getty Images)](https://www.bing.com/th?id=OHR.AdamsFirefall_EN-GB5806562123_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

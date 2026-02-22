@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-22 | [Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_DE-DE1078293930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-21 | [Rotfuchs im Schneefall, Grand‑Teton‑Nationalpark, Wyoming, USA (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_DE-DE7543648384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-20 | [Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)](https://www.bing.com/th?id=OHR.SwanHesse_DE-DE7086737425_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
