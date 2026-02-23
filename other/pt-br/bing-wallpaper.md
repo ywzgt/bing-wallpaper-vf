@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-24 | [Garça-branca-grande, Alta Baviera, Alemanha (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_PT-BR4509525188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-23 | [Vista aérea das Cataratas do Iguaçu, Foz do Iguaçu, Paraná (© NidoHuebl/Getty Images)](https://www.bing.com/th?id=OHR.IgFalls_PT-BR4551523679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-22 | [Raposa-vermelha no Parque Nacional de Grand Teton, Wyoming, EUA (© Radomir Jakubowski/naturepl.com)](https://www.bing.com/th?id=OHR.TetonFox_PT-BR4620358232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
