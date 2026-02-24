@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-25 | [メンデンホール氷河の氷の洞窟, 米国 アラスカ州 (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_JA-JP8678792509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-24 | [スイレン, メキシコ (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_JA-JP8645849779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-23 | [富士山, 静岡県 (© Cravetiger/Getty Images)](https://www.bing.com/th?id=OHR.MountFuji2026_JA-JP8594170652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
