@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-24 | [Nenúfares en el Gran Cenote, Tulum, México (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_ES-ES4152870735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-23 | [Garza blanca, Alta Baviera, Alemania (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_ES-ES3880948724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-22 | [Colina de Mam Tor, Derbyshire, Inglaterra (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_ES-ES3653407360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

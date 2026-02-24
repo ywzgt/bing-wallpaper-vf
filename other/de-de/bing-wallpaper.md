@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-24 | [Seerosen im Gran Cenote, Tulum, Mexiko (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_DE-DE2753544781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-23 | [Silberreiher, Oberbayern, Deutschland (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_DE-DE1964732811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-22 | [Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://www.bing.com/th?id=OHR.MamTorSunrise_DE-DE1078293930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
