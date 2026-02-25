@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-26 | [Caverna de gelo na geleira Mendenhall, Alasca, Estados Unidos (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_PT-BR4400767586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-25 | [Lírios-d’água no Gran Cenote, Tulum, México (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_PT-BR4448345675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-24 | [Garça-branca-grande, Alta Baviera, Alemanha (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_PT-BR4509525188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
