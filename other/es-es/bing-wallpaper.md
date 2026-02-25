@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-25 | [Cueva de hielo en el glaciar Mendenhall, Alaska, EE. UU. (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_ES-ES4408750630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-24 | [Nenúfares en el Gran Cenote, Tulum, México (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_ES-ES4152870735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-23 | [Garza blanca, Alta Baviera, Alemania (© Konrad Wothe/naturepl.com)](https://www.bing.com/th?id=OHR.BavariaEgret_ES-ES3880948724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

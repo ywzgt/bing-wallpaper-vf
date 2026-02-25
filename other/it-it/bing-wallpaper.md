@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-25 | [Grotta di ghiaccio, ghiacciaio Mendenhall, Alaska, USA (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_IT-IT7827640897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-24 | [Spiaggia di Sanremo, Liguria (© fbxx/iStock/Getty Images)](https://www.bing.com/th?id=OHR.SanremoLiguria_IT-IT4317774368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-23 | [Ninfee, Grand Cenote, Tulum, Messico (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_IT-IT7765619476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
