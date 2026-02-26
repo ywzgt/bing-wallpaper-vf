@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-26 | [Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_DE-DE4032299807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-25 | [Eishöhle im Mendenhall‑Gletscher, Alaska, USA (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_DE-DE4105330129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-24 | [Seerosen im Gran Cenote, Tulum, Mexiko (© Christian Vizl/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.TulumLilies_DE-DE2753544781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
