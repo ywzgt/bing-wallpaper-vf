@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-28 | [Filhote de urso-polar sobre o gelo, Refúgio Nacional de Vida Selvagem do Ártico, Alasca, Estados Unidos (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_PT-BR4178932499_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-27 | [Grand Canyon e o Rio Colorado, Arizona, Estados Unidos (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_PT-BR8623216224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-26 | [Caverna de gelo na geleira Mendenhall, Alasca, Estados Unidos (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_PT-BR4400767586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
