@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-27 | [Cachorro de oso polar, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_ES-ES5029887843_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-26 | [Gran Cañón y río Colorado, Arizona, EE. UU. (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_ES-ES4658848615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-25 | [Cueva de hielo en el glaciar Mendenhall, Alaska, EE. UU. (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_ES-ES4408750630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

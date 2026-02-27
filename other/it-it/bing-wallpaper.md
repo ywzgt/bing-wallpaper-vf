@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-27 | [Cucciolo di orso polare, Arctic National Wildlife Refuge, Alaska, USA (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_IT-IT4577678073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-26 | [Grand Canyon e fiume Colorado, Arizona, USA (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_IT-IT7877559254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-25 | [Grotta di ghiaccio, ghiacciaio Mendenhall, Alaska, USA (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_IT-IT7827640897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

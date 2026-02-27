@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-02-27 | [Ours polaire sur la banquise, Refuge Faunique National de l’Arctique, Alaska, États-Unis (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_FR-FR4145142371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-26 | [Le Grand Canyon et le fleuve Colorado, Arizona, États-Unis (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_FR-FR2170146238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-25 | [Grotte de glace du Glacier Mendenhall, Alaska, États-Unis (© Designpics/Adobe Stock)](https://www.bing.com/th?id=OHR.MendenhallCave_FR-FR9944506951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
