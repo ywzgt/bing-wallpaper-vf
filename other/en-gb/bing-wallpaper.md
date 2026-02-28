@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-01 | [Olo'upena Falls, island of Moloka'i, Hawaii, United States (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-GB4616495104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-28 | [Polar bear cub, Arctic National Wildlife Refuge, Alaska, United States (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_EN-GB4371536451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-27 | [Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)](https://www.bing.com/th?id=OHR.GrandSunset_EN-GB4172876731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
