@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-01 | [イビサ島, スペイン (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_JA-JP8835307227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-28 | [オロウペナ滝, 米国 ハワイ州 (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_JA-JP0587758979_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-27 | [ホッキョクグマの子, 米国 アラスカ州 (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_JA-JP8771161198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
