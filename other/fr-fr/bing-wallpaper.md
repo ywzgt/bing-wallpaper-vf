@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-01 | [Ibiza, Îles Baléares, Espagne (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_FR-FR4421004317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-28 | [Les chutes d’Olo'upena, Île de Moloka'i, Hawaï, États-Unis (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_FR-FR3490700079_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-27 | [Ours polaire sur la banquise, Refuge Faunique National de l’Arctique, Alaska, États-Unis (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_FR-FR4145142371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

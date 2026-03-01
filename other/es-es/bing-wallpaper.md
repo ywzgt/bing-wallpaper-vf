@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-01 | [Ibiza, Islas Baleares (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_ES-ES6059429912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-02-28 | [Sevilla, Andalucía (© Sarmad Al Lawati/Shutterstock)](https://www.bing.com/th?id=OHR.andaluciasevilla_ES-ES3883487322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-27 | [Cachorro de oso polar, Refugio Nacional de Vida Silvestre del Ártico, Alaska, EE. UU. (© Steven Kazlowski/naturepl.com)](https://www.bing.com/th?id=OHR.ArcitcCub_ES-ES5029887843_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
