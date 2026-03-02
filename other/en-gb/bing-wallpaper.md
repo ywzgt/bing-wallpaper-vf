@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Harbour and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_EN-GB6229613519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [St Davids Cathedral, Pembrokeshire, Wales (© Terence Waeland/Alamy)](https://www.bing.com/th?id=OHR.StDavidsDay2026_EN-GB5978747461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Olo'upena Falls, island of Moloka'i, Hawaii, United States (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_EN-GB4616495104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

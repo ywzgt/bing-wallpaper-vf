@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-02 | [Hafen und Longtail‑Boote auf Ko Samui, Thailand (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_DE-DE5695333511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-01 | [Ibiza, Balearische Inseln, Spanien (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_DE-DE6256697714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-02-28 | [Oloʻupena‑Wasserfälle an der Nordküste der Insel Molokaʻi, Hawaii, USA (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_DE-DE5017042185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
