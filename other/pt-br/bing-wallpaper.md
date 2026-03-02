@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Porto e barcos de cauda longa em Ko Samui, Tailândia (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_PT-BR3822247577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [Bondinho e Pão de Açúcar no Rio de Janeiro (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.AnivRio_PT-BR3855636507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Cachoeira Olo’upena, ilha de Molokai, Havaí, Estados Unidos (© Andrew Aylett/Getty Images)](https://www.bing.com/th?id=OHR.OloupenaFalls_PT-BR4023643923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
