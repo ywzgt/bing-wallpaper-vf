@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Bébé éléphant jouant avec sa mère, Réserve nationale du Masai Mara, Kenya (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_FR-FR5508838935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [Bateaux à longue queue sur le port de Ko Samui, Thaïlande (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_FR-FR4647225820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Ibiza, Îles Baléares, Espagne (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_FR-FR4421004317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

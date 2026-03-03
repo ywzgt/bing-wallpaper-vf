@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-03 | [Cucciolo di elefante africano con la madre, Riserva Nazionale del Masai Mara, Kenya (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_IT-IT4786028229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-02 | [Piazza Vincenzo Bellini, Catania, Sicilia (© KavalenkavaVolha/iStock)](https://www.bing.com/th?id=OHR.PiazzaCatania_IT-IT5422643580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-01 | [Ibiza, Isole Baleari Spagna (© tokar/Shutterstock)](https://www.bing.com/th?id=OHR.BalearesDay_IT-IT5306710674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
