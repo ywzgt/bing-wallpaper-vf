@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-04 | [紫クロッカス, ブルガリア (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_JA-JP8929761168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-03 | [竹筒から顔をのぞかせる可愛いひな人形 (© Bong Grit/Getty Images)](https://www.bing.com/th?id=OHR.HinaMatsuri2026_JA-JP1524445029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-02 | [サムイ島, タイ (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_JA-JP8871404355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
