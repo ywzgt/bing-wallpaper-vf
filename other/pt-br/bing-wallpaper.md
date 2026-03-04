@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-05 | [Flores roxas de açafrão, Sete Lagos de Rila, Bulgária (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_PT-BR8047390781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-04 | [Filhote de elefante-africano com a mãe, Reserva Nacional Maasai Mara, Quênia (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_PT-BR3778884532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-03 | [Porto e barcos de cauda longa em Ko Samui, Tailândia (© Foto2rich/Shutterstock)](https://www.bing.com/th?id=OHR.SamuiThailand_PT-BR3822247577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
