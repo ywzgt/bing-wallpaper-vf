@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-04 | [Fiori di croco viola, Sette Laghi di Rila, Bulgaria (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_IT-IT4861499603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-03 | [Cucciolo di elefante africano con la madre, Riserva Nazionale del Masai Mara, Kenya (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_IT-IT4786028229_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-02 | [Piazza Vincenzo Bellini, Catania, Sicilia (© KavalenkavaVolha/iStock)](https://www.bing.com/th?id=OHR.PiazzaCatania_IT-IT5422643580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
