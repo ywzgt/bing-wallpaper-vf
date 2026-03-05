@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-06 | [集合住宅「ザ・ウェイブ」, デンマーク (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_JA-JP3181035967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-05 | [ギョレメ国立公園, トルコ (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_JA-JP8961447363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-04 | [紫クロッカス, ブルガリア (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_JA-JP8929761168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
