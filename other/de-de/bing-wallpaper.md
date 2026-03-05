@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-05 | [Abendstimmung über Göreme, Kappadokien, Türkei (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_DE-DE6248447800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-04 | [Violette Krokusse an den Sieben Rila‑Seen, Bulgarien (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_DE-DE6081650633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-03 | [Afrikanisches Elefantenkalb mit Mutter im Masai‑Mara‑Nationalreservat, Kenia (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_DE-DE5859439374_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

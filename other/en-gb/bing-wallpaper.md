@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-06 | [Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_EN-GB6866115691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-05 | [Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_EN-GB6687558312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-04 | [African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)](https://www.bing.com/th?id=OHR.BabyElephant_EN-GB6477641376_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
