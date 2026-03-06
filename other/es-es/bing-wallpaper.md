@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-06 | [Complejo residencial The Wave, Vejle, Dinamarca (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_ES-ES1179544868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-05 | [Atardecer sobre Göreme, Capadocia, Turquía (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_ES-ES6859912248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-04 | [Flores de crocus púrpuras, Siete Lagos de Rila, Bulgaria (© Maya Karkalicheva/Getty Images)](https://www.bing.com/th?id=OHR.RilaCrocuses_ES-ES6661275101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
