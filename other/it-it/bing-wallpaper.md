@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-07 | [Basilica reale pontificia di San Francesco di Paola, Napoli, Campania (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_IT-IT2953708039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-06 | [The Wave, Vejle, Danimarca (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_IT-IT6019644027_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-05 | [Göreme, Cappadocia, Turchia (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_IT-IT4720927286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

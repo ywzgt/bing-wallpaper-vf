@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-07 | [Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_DE-DE6585110286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-06 | [Das Wohngebäude Bølgen „The Wave“ in Vejle, Dänemark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_DE-DE5579252511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-05 | [Abendstimmung über Göreme, Kappadokien, Türkei (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_DE-DE6248447800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

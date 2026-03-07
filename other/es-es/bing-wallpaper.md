@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-07 | [Amanecer en el Brocken, Parque Nacional de Harz, Sajonia-Anhalt, Alemania (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_ES-ES7835866143_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-06 | [Complejo residencial The Wave, Vejle, Dinamarca (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_ES-ES1179544868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-05 | [Atardecer sobre Göreme, Capadocia, Turquía (© ONNAJA/Getty Images)](https://www.bing.com/th?id=OHR.GoremeTwilight_ES-ES6859912248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
