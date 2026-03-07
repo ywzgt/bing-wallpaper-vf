@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-08 | [ウルム市庁舎の天文時計, ドイツ (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_JA-JP3640087811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-07 | [ブロッケン山, ドイツ (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_JA-JP0540053898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-06 | [集合住宅「ザ・ウェイブ」, デンマーク (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_JA-JP3181035967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
