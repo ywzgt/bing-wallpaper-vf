@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [Relógio astronômico na Prefeitura de Ulm, Ulm, Alemanha (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_PT-BR5948990509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [Espreguiçadeiras na praia de Vai, Creta, Grécia (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_PT-BR0607622385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [Edifício residencial The Wave, Vejle, Dinamarca (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_PT-BR4401858909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
