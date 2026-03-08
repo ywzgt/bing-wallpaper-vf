@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-08 | [Jeune cormoran (© GiovanniCaruso/GettyImages)](https://www.bing.com/th?id=OHR.BirdCormorant_FR-FR1361604516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-07 | [Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)](https://www.bing.com/th?id=OHR.LacGentau_FR-FR1000142702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-06 | [Projet résidentiel The Wave, Vejle, Danemark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_FR-FR0622592721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

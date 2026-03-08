@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon, United States (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_EN-GB6516927034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [The Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_EN-GB9355519414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)](https://www.bing.com/th?id=OHR.WaveDenmark_EN-GB5644835999_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
