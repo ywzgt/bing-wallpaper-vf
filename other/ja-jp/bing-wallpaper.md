@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [アザラシ, スコットランド (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_JA-JP4638317955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [ウルム市庁舎の天文時計, ドイツ (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_JA-JP3640087811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [ブロッケン山, ドイツ (© imageBROKER/AVTG/Getty Images)](https://www.bing.com/th?id=OHR.BrockenSunrise_JA-JP0540053898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
