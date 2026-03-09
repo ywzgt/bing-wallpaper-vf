@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [Schlafende Kegelrobbe am Strand, Orkneyinseln, Schottland (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_DE-DE4413060426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.StuttgartSchlossplatz_DE-DE6255862063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_DE-DE6585110286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

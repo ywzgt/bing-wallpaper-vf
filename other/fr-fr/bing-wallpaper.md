@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [Phoque gris endormi sur la plage, Îles Orcades, Écosse (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_FR-FR1712539976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [Jeune cormoran (© GiovanniCaruso/GettyImages)](https://www.bing.com/th?id=OHR.BirdCormorant_FR-FR1361604516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)](https://www.bing.com/th?id=OHR.LacGentau_FR-FR1000142702_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

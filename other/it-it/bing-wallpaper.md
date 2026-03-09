@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-09 | [Foca grigia che dorme sulla spiaggia, Isole Orcadi, Scozia (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_IT-IT6211764298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-08 | [Mimosa (© d!g!tALE by Alessandro Ciabini/Moment)](https://www.bing.com/th?id=OHR.FestaDellaDonna_IT-IT6097435290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-07 | [Basilica reale pontificia di San Francesco di Paola, Napoli, Campania (© javarman3/Getty Images)](https://www.bing.com/th?id=OHR.NaplesBasilica_IT-IT2953708039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
