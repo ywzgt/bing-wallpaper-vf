@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-10 | [Zumaia, Guipúzcoa, País Vasco (© David González Rebollo/Getty Images)](https://www.bing.com/th?id=OHR.Zumaia_ES-ES4174062610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-09 | [Foca gris durmiendo en la playa, islas Orcadas, Escocia (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_ES-ES1870560603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-08 | [Reloj astronómico del Ayuntamiento de Ulm, Alemania (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_ES-ES1689465791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

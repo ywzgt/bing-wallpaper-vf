@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-10 | [Geothermisches Becken Bláhver in Hveravellir, Island (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_DE-DE6750493768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-09 | [Schlafende Kegelrobbe am Strand, Orkneyinseln, Schottland (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_DE-DE4413060426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-08 | [Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)](https://www.bing.com/th?id=OHR.StuttgartSchlossplatz_DE-DE6255862063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
