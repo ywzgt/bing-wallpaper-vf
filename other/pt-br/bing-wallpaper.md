@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-11 | [Piscina geotérmica Bláhver, Hveravellir, Islândia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_PT-BR6780313478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-10 | [Foca-cinzenta dormindo na praia das Ilhas Órcades, Escócia (© Andrew Mason/Minden Pictures)](https://www.bing.com/th?id=OHR.NappingSeal_PT-BR6613486097_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-09 | [Relógio astronômico na Prefeitura de Ulm, Ulm, Alemanha (© Tomekbudujedomek/Getty Images)](https://www.bing.com/th?id=OHR.UlmClock_PT-BR5948990509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
