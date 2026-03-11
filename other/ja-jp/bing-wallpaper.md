@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-12 | [東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)](https://www.bing.com/th?id=OHR.TodaijiTempleOmizutori2026_JA-JP4273263363_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-11 | [復興の願いが書かれた灯籠, 宮城県 名取市 (© NurPhoto/Getty Images)](https://www.bing.com/th?id=OHR.TohokuEarthquakeMemorial2026_JA-JP5225999611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-10 | [クヴェラヴェトリル地熱地帯の地熱プール, アイスランド (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_JA-JP4910368485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
