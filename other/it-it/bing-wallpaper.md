@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-12 | [Tarabuso del sole, in parata nuziale presso il nido, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_IT-IT0154345813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-11 | [Peschi in fiore, Cieza, Murcia, Spagna (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_IT-IT0094086704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-10 | [Pozza termale Bláhver a Hveravellir, Islanda (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_IT-IT6322735073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

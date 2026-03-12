@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-12 | [Garza de sol exhibiéndose en el nido, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_ES-ES1944682433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-11 | [Melocotoneros en flor, Cieza, Murcia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_ES-ES2051621542_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-10 | [Zumaia, Guipúzcoa, País Vasco (© David González Rebollo/Getty Images)](https://www.bing.com/th?id=OHR.Zumaia_ES-ES4174062610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

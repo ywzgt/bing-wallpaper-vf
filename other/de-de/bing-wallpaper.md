@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-12 | [Junger Sonnenralle beim Flügelspreizen am Nest, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_DE-DE7333956665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-11 | [Pfirsichblüte in Cieza, Murcia, Spanien (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_DE-DE6974968795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-10 | [Geothermisches Becken Bláhver in Hveravellir, Island (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.SpringIceland_DE-DE6750493768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
