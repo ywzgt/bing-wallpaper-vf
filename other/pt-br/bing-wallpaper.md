@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-14 | [Abóbadas da Igreja Notre-Dame de Bon-Port, Les Sables-d'Olonne, França (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_PT-BR9914185170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-13 | [Jovem pavãozinho-do-pará no ninho, Equador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_PT-BR9017596322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-12 | [Pessegueiros em flor, Cieza, Múrcia, Espanha (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_PT-BR7415455807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
