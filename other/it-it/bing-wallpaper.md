@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-13 | [Volte della chiesa di Notre Dame de Bon-Port, Les Sables-d'Olonne, Francia (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_IT-IT6457526698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-12 | [Tarabuso del sole, in parata nuziale presso il nido, Ecuador (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_IT-IT0154345813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-11 | [Peschi in fiore, Cieza, Murcia, Spagna (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.PeachBloom_IT-IT0094086704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
