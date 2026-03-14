@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-15 | [パシフィック・リム国立公園, カナダ (© EmilyNorton/Getty Images)](https://www.bing.com/th?id=OHR.PacificRimNP_JA-JP9772026876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-14 | [ラニョン・クォイト, イングランド (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_JA-JP6001769606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-13 | [ノートルダム・ド・ボン＝ポルト教会, フランス (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_JA-JP5730260896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
