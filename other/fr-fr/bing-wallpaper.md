@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-14 | [Lanyon Quoit, dolmen néolithique à Cornwall, Angleterre (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_FR-FR8803174117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-13 | [Voûtes de Notre-Dame de Bon-Port, Les Sables-d'Olonne (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_FR-FR8462470705_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-12 | [Caurale soleil faisant sa parade nuptiale, Équateur (© Andy Rouse/naturepl.com)](https://www.bing.com/th?id=OHR.SunbitternEcuador_FR-FR2457278888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
