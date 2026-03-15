@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-15 | [Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)](https://www.bing.com/th?id=OHR.KoenigsseeFog_DE-DE0451394349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-14 | [Lanyon Quoit, neolithischer Dolmen in Cornwall, England (© Helen Hotson/Alamy)](https://www.bing.com/th?id=OHR.CornwallDolmen_DE-DE0215801252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-13 | [Gewölbe der Kirche Notre‑Dame‑de‑Bon‑Port, Les Sables‑d’Olonne, Frankreich (© Helmut Meyer zur Capellen/Alamy)](https://www.bing.com/th?id=OHR.VendeeVaults_DE-DE9788483793_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
