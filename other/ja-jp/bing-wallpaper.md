@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-19 | [ハリモグラ, オーストラリア (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_JA-JP8184314558_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-18 | [トム・マッコール・ウォーター��ロント・パーク, 米国 オレゴン州 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_JA-JP9732254183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-18 | [トム・マッコール・ウォーターフロント・パーク, 米国 オレゴン州 (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_JA-JP9732254183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
