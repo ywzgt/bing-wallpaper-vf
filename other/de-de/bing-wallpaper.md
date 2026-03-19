@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-19 | [Kurzschnabel-Ameisenigel, Adelaide Hills, Australien (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_DE-DE8869849686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-18 | [Kirschblüten im Tom McCall Waterfront Park, Portland, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_DE-DE2538549747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-17 | [Ringfort Grianán von Aileach, County Donegal, Irland (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_DE-DE1298272044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

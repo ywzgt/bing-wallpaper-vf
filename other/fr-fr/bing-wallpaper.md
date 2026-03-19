@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-19 | [L’échidné à nez court, Adelaide Hills, Australie (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_FR-FR9218839171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-18 | [Cerisiers en fleur à Tom McCall Waterfront Park, Portland, États-Unis (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_FR-FR9680778495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-17 | [Grianan d’Aileach, fort circulaire, Donegal, Irlande (© Lukassek/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_FR-FR9519864850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
