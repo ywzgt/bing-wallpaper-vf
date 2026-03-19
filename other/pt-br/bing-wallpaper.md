@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-20 | [Equidna-de-focinho-curto, Adelaide Hills, Austrália (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_PT-BR2206823018_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-19 | [Vista aérea do Rio Negro, Parque Nacional dos Lençóis Maranhenses, Maranhão (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.AerialLencois_PT-BR2485824651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-18 | [Forte Grianán de Aileach, Donegal, Irlanda (© aluxum/Getty Images)](https://www.bing.com/th?id=OHR.DonegalFort_PT-BR2211224155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
