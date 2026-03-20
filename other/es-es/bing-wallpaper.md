@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-20 | [Abubilla descansando sobre una piedra (© Brais Seara/Getty Images)](https://www.bing.com/th?id=OHR.Equinox_ES-ES5576771883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-19 | [Equidna de hocico corto, colinas de Adelaida, Australia (© Etienne Littlefair/naturepl.com)](https://www.bing.com/th?id=OHR.EchidnaAustralia_ES-ES3815108716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-18 | [Cerezos en flor en el Parque Tom McCall Waterfront, Portland, Oregón, EE. UU. (© Eric Vogt/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PortlandBlossoms_ES-ES3666469155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
