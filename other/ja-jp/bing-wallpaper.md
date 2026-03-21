@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-22 | [タンガニーカ湖, タンザニア (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_JA-JP1905215650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-21 | [レテア森林, ルーマニア (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://www.bing.com/th?id=OHR.LeteaForest_JA-JP1668119659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-20 | [スノードロップ花 (© klagyivik/Getty Images)](https://www.bing.com/th?id=OHR.SpringSnowdrops_JA-JP8554533353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
