@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-23 | [Lago Tanganica, África (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_PT-BR0806966127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-22 | [Floresta de Letea, Delta do Danúbio, Romênia (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://www.bing.com/th?id=OHR.LeteaForest_PT-BR9172551270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-21 | [Flores fura-neve na primavera (© klagyivik/Getty Images)](https://www.bing.com/th?id=OHR.SpringSnowdrops_PT-BR8736805900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
