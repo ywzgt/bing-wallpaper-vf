@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-23 | [Tormenta eléctrica sobre cactus saguaro, desierto de Sonora, Arizona, EE. UU. (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_ES-ES8362757569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-22 | [Lago Tanganica, África (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_ES-ES6407504319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-21 | [Bosque de Letea, delta del Danubio, Rumanía (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://www.bing.com/th?id=OHR.LeteaForest_ES-ES5974566570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

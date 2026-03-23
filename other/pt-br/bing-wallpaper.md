@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-24 | [Tempestade elétrica sobre cactos saguaro, Deserto de Sonora, Arizona, EUA (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_PT-BR1308043729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-23 | [Lago Tanganica, África (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_PT-BR0806966127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-22 | [Floresta de Letea, Delta do Danúbio, Romênia (© Wild Wonders of Europe/Widstrand/Nature Picture Library)](https://www.bing.com/th?id=OHR.LeteaForest_PT-BR9172551270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
