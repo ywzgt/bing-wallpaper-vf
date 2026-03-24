@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-24 | [Fiori di ciliegio, Parco dei Fiori di Ciliegio del Lago Orientale, Wuhan, Cina (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_IT-IT4463324478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-23 | [Saguaro e tempesta, Deserto di Sonora, Arizona, USA (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_IT-IT4419770010_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-22 | [Lago Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_IT-IT3818481809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

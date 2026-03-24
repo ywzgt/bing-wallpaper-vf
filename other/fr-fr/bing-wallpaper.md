@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-24 | [Cerisiers en fleurs au jardin des cerisiers du Lac de l’Est, Wuhan, Chine (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_FR-FR2577196492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-23 | [Orage sur des cactus saguaro, désert de Sonora, Arizona, États-Unis (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_FR-FR7587104975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-22 | [Lac Tanganyika, Afrique (© BEST-BACKGROUNDS/NASA/Shutterstock)](https://www.bing.com/th?id=OHR.TanganyikaWater_FR-FR4249922863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
