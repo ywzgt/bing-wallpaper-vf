@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-25 | [マナティー, 米国 フロリダ州 (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_JA-JP3825784405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-24 | [東湖桜花園, 中国 (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_JA-JP2678725444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-23 | [ベンケイチュウ, 米国 アリゾナ州 (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_JA-JP6793978883_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
