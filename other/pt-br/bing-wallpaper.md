@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-26 | [Peixes-boi jovens em uma nascente de água doce, Rio Crystal, Flórida, EUA (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_PT-BR2930629898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-25 | [Cerejeiras em flor no Parque das Cerejeiras do Lago Leste, Wuhan, China (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_PT-BR0828436894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-24 | [Tempestade elétrica sobre cactos saguaro, Deserto de Sonora, Arizona, EUA (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_PT-BR1308043729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
