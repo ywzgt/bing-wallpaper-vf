@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-25 | [Manatíes en un manantial de agua dulce, Crystal River, Florida, EE. UU. (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_ES-ES0435279848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-24 | [Cerezos en flor en el parque East Lake Cherry Blossom, Wuhan, China (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_ES-ES4267381622_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-23 | [Tormenta eléctrica sobre cactus saguaro, desierto de Sonora, Arizona, EE. UU. (© Jack Dykinga/Nature Picture Library)](https://www.bing.com/th?id=OHR.SonoranStorm_ES-ES8362757569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
