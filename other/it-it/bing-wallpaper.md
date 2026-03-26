@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-26 | [Ponte sospeso Logan Creek, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_IT-IT4625300484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-25 | [Cattedrale Santa Maria del Fiore, Firenze, Toscana (© Lindrik/iStock/Getty Images Plus)](https://www.bing.com/th?id=OHR.DanteDay_IT-IT4553177654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-24 | [Fiori di ciliegio, Parco dei Fiori di Ciliegio del Lago Orientale, Wuhan, Cina (© Zhang Qiao/VCG/Getty Images)](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_IT-IT4463324478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
