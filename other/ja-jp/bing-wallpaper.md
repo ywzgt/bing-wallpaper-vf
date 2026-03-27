@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-28 | [アフリカスイギュウ, タンザニア (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_JA-JP4477954927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-27 | [日本一早い桜、沖縄 (© @hapidayss/Getty Images)](https://www.bing.com/th?id=OHR.SakuraDay2026_JA-JP6970025028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-26 | [ローガン・クリーク吊り橋, カナダ (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_JA-JP4033681513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
