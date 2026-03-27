@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-28 | [Radio City Music Hall, Nova York, EUA (© Clarence Holmes Photography/Alamy)](https://www.bing.com/th?id=OHR.RadioCityHall_PT-BR3869502799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-27 | [Ponte suspensa Logan Creek, Trilha da Costa Oeste, Vancouver, Canadá (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_PT-BR3480636440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-26 | [Peixes-boi jovens em uma nascente de água doce, Rio Crystal, Flórida, EUA (© Gregory Sweeney/Getty Images)](https://www.bing.com/th?id=OHR.ManateeSpring_PT-BR2930629898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
