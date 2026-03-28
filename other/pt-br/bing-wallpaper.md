@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-29 | [Búfalo-africano, Cratera de Ngorongoro, Tanzânia (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_PT-BR4918930179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-28 | [Radio City Music Hall, Nova York, EUA (© Clarence Holmes Photography/Alamy)](https://www.bing.com/th?id=OHR.RadioCityHall_PT-BR3869502799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-27 | [Ponte suspensa Logan Creek, Trilha da Costa Oeste, Vancouver, Canadá (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_PT-BR3480636440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
