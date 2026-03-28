@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-29 | [ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_JA-JP4636734313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-28 | [アフリカスイギュウ, タンザニア (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_JA-JP4477954927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-27 | [日本一早い桜、沖縄 (© @hapidayss/Getty Images)](https://www.bing.com/th?id=OHR.SakuraDay2026_JA-JP6970025028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
