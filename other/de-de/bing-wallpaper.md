@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-28 | [Afrikanischer Büffel, Ngorongoro-Krater, Tansania (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_DE-DE9916963289_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-27 | [Radio City Music Hall in New York City, USA (© Clarence Holmes Photography/Alamy)](https://www.bing.com/th?id=OHR.RadioCityHall_DE-DE9579600716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-26 | [Logan Creek Suspension Bridge, West Coast Trail, Kanada (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.LoganCreek_DE-DE9430213551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
