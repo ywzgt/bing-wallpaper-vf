@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-30 | [アネハヅル, インド (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.IndiaCranes_JA-JP0130275400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-29 | [ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_JA-JP4636734313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-28 | [アフリカスイギュウ, タンザニア (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_JA-JP4477954927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
