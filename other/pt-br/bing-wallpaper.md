@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-31 | [Grou-pequeno, Índia (© Axel Gomille/Nature Picture Library)](https://www.bing.com/th?id=OHR.IndiaCranes_PT-BR8548033158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-30 | [Vista aérea do Forte de Santa Maria, Salvador, Bahia (© Uiler Costa/Shutterstock)](https://www.bing.com/th?id=OHR.AniverSalvador_PT-BR9414211573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-29 | [Búfalo-africano, Cratera de Ngorongoro, Tanzânia (© jesuss8/500px/Getty Images)](https://www.bing.com/th?id=OHR.CapeBuffalo_PT-BR4918930179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
