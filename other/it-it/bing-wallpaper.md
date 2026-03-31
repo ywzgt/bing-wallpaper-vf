@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-03-31 | [Paradise Cave, Parco Nazionale di Phong Nha-Kẻ Bàng, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_IT-IT3577786918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-03-30 | [Lago Federa, Cortina d'Ampezzo, Belluno, Veneto (© Elena-studio/iStock)](https://www.bing.com/th?id=OHR.DolomitiSpring_IT-IT3295923422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-29 | [Faro di Peggy's Point, costa atlantica, Nuova Scozia, Canada (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_IT-IT5137466865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
