@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-02 | [Muscardin à l’entrée de leur nid, Normandie (© slowmotiongli/Getty Images)](https://www.bing.com/th?id=OHR.MuscardinNest_FR-FR5342153518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-01 | [Rainette japonaise au cœur d’une fleur de liseron rose (© Tetsuya Tanooka/Getty Images)](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_FR-FR2900221891_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-31 | [Grotte du Paradis, Parc national de Phong Nha–Ke Bang, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_FR-FR2965632202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

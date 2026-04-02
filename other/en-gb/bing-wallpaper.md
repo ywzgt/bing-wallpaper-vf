@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-02 | [Wildflower bloom, Central Valley, California, United States (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_EN-GB6670488836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-01 | [Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)](https://www.bing.com/th?id=OHR.PeggysLighthouse_EN-GB6505153693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-31 | [Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_EN-GB6349854312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

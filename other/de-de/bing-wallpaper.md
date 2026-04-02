@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-02 | [Wildblumenblüte, Central Valley, Kalifornien, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_DE-DE5324757091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-01 | [Japanischer Laubfrosch in einer rosa Prunkwinde (© Tetsuya Tanooka/Getty Images)](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_DE-DE8961418037_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-03-31 | [Paradise Cave, Nationalpark Phong Nha‑Ke Bang, Vietnam (© Pakawat Thongcharoen/Getty Images)](https://www.bing.com/th?id=OHR.ParadiseCave_DE-DE0326941666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
