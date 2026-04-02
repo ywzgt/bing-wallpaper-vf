@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-03 | [アルムブルグ橋, オランダ (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_JA-JP3428221440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-02 | [シモクレン (© Aflo Co., Ltd./Alamy)](https://www.bing.com/th?id=OHR.MagnoliaBloom2026_JA-JP8135720992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-01 | [セントラル・バレー, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_JA-JP7238318324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
