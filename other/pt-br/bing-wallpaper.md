@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-05 | [Tetrazes‑lira machos em competição de lek, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_PT-BR5557091800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-04 | [Ponte Armbrug, Amsterdã, Países Baixos (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_PT-BR3816587897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-03 | [Onça-pintada observando de uma árvore, Pantanal, Mato Grosso (© Marko Konig/Getty Images)](https://www.bing.com/th?id=OHR.Jaguarcat_PT-BR9300640460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
