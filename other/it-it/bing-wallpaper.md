@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-04 | [Castello di Hirosaki con fiori di ciliegio, Hirosaki, Giappone (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_IT-IT1656060709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-03 | [Ponte Armbrug, Amsterdam, Paesi Bassi (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_IT-IT1501163550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-02 | [Fiori selvatici, Central Valley, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.WildflowerValley_IT-IT6134763724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
