@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-06 | [Esculturas de Aleijadinho na Basílica do Bom Jesus de Matozinhos, Congonhas, Minas Gerais (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.Easter_PT-BR6932429593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-05 | [Tetrazes‑lira machos em competição de lek, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_PT-BR5557091800_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-04 | [Ponte Armbrug, Amsterdã, Países Baixos (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_PT-BR3816587897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

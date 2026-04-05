@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-05 | [Uova di Pasqua colorate fatte a mano in legno, Vilnius, Lituania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_IT-IT3759718842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-04 | [Castello di Hirosaki con fiori di ciliegio, Hirosaki, Giappone (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_IT-IT1656060709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-03 | [Ponte Armbrug, Amsterdam, Paesi Bassi (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_IT-IT1501163550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

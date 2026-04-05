@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-05 | [Colourful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_EN-GB6303335759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-04 | [Dolbadarn Castle, Llanberis, Snowdonia National Park, Wales (© Allan Hartley/Alamy)](https://www.bing.com/th?id=OHR.NPFortnight2026_EN-GB6135344631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-03 | [Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ArmbrugBridge_EN-GB4782396202_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
