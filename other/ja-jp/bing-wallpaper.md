@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-06 | [弘前城, 青森県 弘前市 (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_JA-JP3550257541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-05 | [カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_JA-JP3508325746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-04 | [首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)](https://www.bing.com/th?id=OHR.QingmingFestival2026_JA-JP3473610824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
