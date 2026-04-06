@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-06 | [Burg Hirosaki mit Kirschblüten, Hirosaki, Japan (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_DE-DE0573709826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-05 | [Bunt bemalte sorbische Ostereier aus Deutschland (© Mark Poltermann/Getty Images)](https://www.bing.com/th?id=OHR.SorbianEasterEggs_DE-DE8747014000_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-04 | [Birkhähne auf einem Balzplatz, Estland (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_DE-DE7947498839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

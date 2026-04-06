@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-06 | [Castillo de Hirosaki con cerezos en flor, Hirosaki, Japón (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_ES-ES5659720575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-05 | [Coloridos huevos de Pascua artesanales de madera, Vilna, Lituania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_ES-ES5469812629_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-04 | [Machos de urogallo negro enfrentados, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_ES-ES5279399090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
