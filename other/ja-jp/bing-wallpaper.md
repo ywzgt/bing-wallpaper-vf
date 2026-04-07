@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-08 | [シアトル市のウォーターフロント, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_JA-JP6952248899_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-07 | [ビーバー, ドイツ (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_JA-JP3724788571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-06 | [弘前城, 青森県 弘前市 (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_JA-JP3550257541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
