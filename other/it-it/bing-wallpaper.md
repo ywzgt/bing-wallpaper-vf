@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-07 | [Castoro, Germania (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_IT-IT2053120485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-06 | [Rione V Ponte, Roma (© Alexander Spatari/Momento/Getty Images)](https://www.bing.com/th?id=OHR.CarbonaraRoma_IT-IT1787234049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-05 | [Uova di Pasqua colorate fatte a mano in legno, Vilnius, Lituania (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_IT-IT3759718842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
