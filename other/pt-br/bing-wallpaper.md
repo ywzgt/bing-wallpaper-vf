@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-09 | [Orquídea Denphal (© Rui Santos/Getty Images)](https://www.bing.com/th?id=OHR.Denphal_PT-BR0145708370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-08 | [Castor, Alemanha (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_PT-BR0841777069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-07 | [Castelo de Hirosaki com cerejeiras, Hirosaki, Japão (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_PT-BR0895460627_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

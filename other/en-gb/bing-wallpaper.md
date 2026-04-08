@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-08 | [Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-GB6918080333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-07 | [Beaver, Germany (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_EN-GB6712196855_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-06 | [Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)](https://www.bing.com/th?id=OHR.CastleBlossoms_EN-GB6482644898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-08 | [Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_FR-FR4246805259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-07 | [Castor, Allemagne (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_FR-FR0925060555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-06 | [Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)](https://www.bing.com/th?id=OHR.LithuaniaEggs_FR-FR0098459124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-08 | [Seattle, Washington, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_IT-IT2054215926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-07 | [Castoro, Germania (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_IT-IT2053120485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-06 | [Rione V Ponte, Roma (© Alexander Spatari/Momento/Getty Images)](https://www.bing.com/th?id=OHR.CarbonaraRoma_IT-IT1787234049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
