@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-10 | [Cachoeira Sgwd yr Eira, Parque Nacional Bannau Brycheiniog, País de Gales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_PT-BR0581576089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-09 | [Orquídea Denphal (© Rui Santos/Getty Images)](https://www.bing.com/th?id=OHR.Denphal_PT-BR0145708370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-08 | [Castor, Alemanha (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_PT-BR0841777069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

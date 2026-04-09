@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-09 | [Cascata Sgwd yr Eira, parco nazionale Bannau Brycheiniog, Galles (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_IT-IT9480992833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-08 | [Seattle, Washington, USA (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_IT-IT2054215926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-07 | [Castoro, Germania (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.BeaverPortrait_IT-IT2053120485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
