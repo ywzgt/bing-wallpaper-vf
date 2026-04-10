@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-10 | [Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_FR-FR2060814821_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-09 | [Cascade de Sgwd yr Eira, Parc national des Bannau Brycheiniog, Pays de Galles (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_FR-FR2361256494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-08 | [Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_FR-FR4246805259_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-10 | [La Alhambra vista desde el Albaicín, Granada, Andalucía (© Antonio Violi/Alamy)](https://www.bing.com/th?id=OHR.AlhambraGranada_ES-ES7908676665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-09 | [Cascada de Eira, Parque Nacional de Bannau Brycheiniog, Gales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_ES-ES3494958836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-08 | [Seattle, Washington, EE. UU. (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_ES-ES6025027047_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

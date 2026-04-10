@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-10 | [Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_EN-GB4148896764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-09 | [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_EN-GB3914508309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-08 | [Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SeattleSunrise_EN-GB6918080333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
