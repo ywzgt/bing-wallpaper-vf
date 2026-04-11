@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [光の筋となる都市の夜景, 国際宇宙ステーション (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_JA-JP7486143829_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [パパガヨビーチ, スペイン (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_JA-JP3931450183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [アカギツネ, エストニア (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_JA-JP3895166955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
