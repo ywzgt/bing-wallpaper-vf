@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [Praia do Papagaio, Lanzarote, Ilhas Canárias, Espanha (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_PT-BR5327474455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Jovens raposas-vermelhas no Parque Nacional de Karula, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_PT-BR8556332382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [Cachoeira Sgwd yr Eira, Parque Nacional Bannau Brycheiniog, País de Gales (© Guy Edwardes/Nature Picture Library)](https://www.bing.com/th?id=OHR.WalesWaterfall_PT-BR0581576089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
