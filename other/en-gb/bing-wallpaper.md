@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [City lights streak below, taken from the International Space Station (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_EN-GB7928814675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_EN-GB7620407286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrouseGuff_EN-GB4148896764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

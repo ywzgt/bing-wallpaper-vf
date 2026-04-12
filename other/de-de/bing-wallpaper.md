@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_DE-DE4428560014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Playa del Papagayo, Lanzarote, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_DE-DE0494036913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [Zwei junge Rotfüchse im Nationalpark Karula, Estland (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_DE-DE2992215006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

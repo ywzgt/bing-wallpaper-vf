@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [Luces de la ciudad desde la Estación Espacial Internacional (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_ES-ES6596295414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Playas de Papagayo, Lanzarote, Islas Canarias (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_ES-ES6446610694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [La Alhambra vista desde el Albaicín, Granada, Andalucía (© Antonio Violi/Alamy)](https://www.bing.com/th?id=OHR.AlhambraGranada_ES-ES7908676665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

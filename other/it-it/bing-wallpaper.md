@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [Luci della città scorrono sotto, immortalate dalla Stazione Spaziale  Internazionale (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_IT-IT2393301171_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-11 | [Spiaggia di Papagayo, Lanzarote, Isole Canarie, Spagna (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_IT-IT2334533748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-10 | [Due giovani volpi rosse nel parco nazionale di Karula, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.FoxSiblings_IT-IT2265403232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
