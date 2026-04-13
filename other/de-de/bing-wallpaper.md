@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-13 | [Zilpzalp, Deutschland (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.ChiffchaffSpring_DE-DE4997065919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-12 | [Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_DE-DE4428560014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-11 | [Playa del Papagayo, Lanzarote, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)](https://www.bing.com/th?id=OHR.PlayaPapagayo_DE-DE0494036913_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

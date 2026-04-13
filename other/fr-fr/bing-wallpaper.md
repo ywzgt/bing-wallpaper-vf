@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-13 | [La Voie lactée au-dessus du parc d’État du désert d’Anza-Borrego, Californie, États-Unis (© Kevin Key/Slworking/Getty Images)](https://www.bing.com/th?id=OHR.BorregoStars_FR-FR4220178429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-12 | [Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_FR-FR5305463637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-11 | [Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.TrocaderoParisRoubaix_FR-FR8705103593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
