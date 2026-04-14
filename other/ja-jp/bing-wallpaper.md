@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-15 | [芝桜, 山梨県 (© DoctorEgg/Getty images)](https://www.bing.com/th?id=OHR.Shibazakura2026_JA-JP4532713069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-14 | [クマノミ, インドネシア (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_JA-JP4425106127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-13 | [アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Kevin Key/Slworking)](https://www.bing.com/th?id=OHR.BorregoStars_JA-JP7872026496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
