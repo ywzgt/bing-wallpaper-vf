@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-14 | [Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_FR-FR5954512656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-13 | [La Voie lactée au-dessus du parc d’État du désert d’Anza-Borrego, Californie, États-Unis (© Kevin Key/Slworking/Getty Images)](https://www.bing.com/th?id=OHR.BorregoStars_FR-FR4220178429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-12 | [Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_FR-FR5305463637_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

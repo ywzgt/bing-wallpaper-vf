@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-14 | [Gewöhnlicher Clownfisch in einer Seeanemone, Raja-Ampat-Inseln, Indonesien (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_DE-DE4824723739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-13 | [Zilpzalp, Deutschland (© Andyworks/Getty Images)](https://www.bing.com/th?id=OHR.ChiffchaffSpring_DE-DE4997065919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-12 | [Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)](https://www.bing.com/th?id=OHR.SpaceTrails_DE-DE4428560014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
