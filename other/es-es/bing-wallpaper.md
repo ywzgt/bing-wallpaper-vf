@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-15 | [La exposición Carrières des Lumières de Vincent van Gogh, Les Baux-de-Provence, Francia (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_ES-ES6924277283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-14 | [Pez payaso en una anémona de mar, islas Raja Ampat, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_ES-ES6754950938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-13 | [Cañón Rojo de Teruel, Aragón (© hdibanez/Getty Images)](https://www.bing.com/th?id=OHR.TeruelSpain_ES-ES8314942173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

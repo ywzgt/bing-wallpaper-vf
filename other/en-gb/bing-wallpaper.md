@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-15 | [The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_EN-GB8594559434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-14 | [Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_EN-GB8330340192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-13 | [Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)](https://www.bing.com/th?id=OHR.BorregoStars_EN-GB8139506405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

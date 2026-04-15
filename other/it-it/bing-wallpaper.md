@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-15 | [Mostra dedicata a Vincent van Gogh alle Carrières des Lumières, Les Baux-de-Provence, Francia (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_IT-IT4420676529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-14 | [Pesce pagliaccio comune in un anemone di mare, Isole Raja Ampat, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_IT-IT2484458415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-13 | [La Via Lattea sopra l'Anza-Borrego Desert State Park, California, USA (© Kevin Key/Slworking/Getty Images)](https://www.bing.com/th?id=OHR.BorregoStars_IT-IT3311374255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
