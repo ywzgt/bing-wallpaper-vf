@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-16 | [Tulpenfelder im Skagit Valley, Washington, USA (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_DE-DE0725960684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-15 | [Van-Gogh-Ausstellung in den Carrières des Lumières, Les Baux‑de‑Provence, Frankreich (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_DE-DE5579767701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-14 | [Gewöhnlicher Clownfisch in einer Seeanemone, Raja-Ampat-Inseln, Indonesien (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_DE-DE4824723739_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

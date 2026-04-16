@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-16 | [Campos de tulipanes del valle de Skagit, Washington, EE. UU. (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_ES-ES7111199326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-15 | [La exposición Carrières des Lumières de Vincent van Gogh, Les Baux-de-Provence, Francia (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_ES-ES6924277283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-14 | [Pez payaso en una anémona de mar, islas Raja Ampat, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://www.bing.com/th?id=OHR.OcellarisClownfish_ES-ES6754950938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
