@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-18 | [モアイ像, チリ (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_JA-JP0155278246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-17 | [ハイイロオオコウモリ, オーストラリア (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_JA-JP9261315523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-16 | [スカジットバレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_JA-JP9152402510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
