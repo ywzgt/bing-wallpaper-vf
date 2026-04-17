@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-18 | [Raposa-voadora-de-cabeça-cinzenta com filhote, Parque Yarra Bend, Austrália (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_PT-BR4423451974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-17 | [Campos de tulipas do Vale Skagit, Washington, Estados Unidos (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_PT-BR0165091491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-16 | [Exposição Carrières des Lumières de Van Gogh, Les Baux-de-Provence, França (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_PT-BR8631172419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

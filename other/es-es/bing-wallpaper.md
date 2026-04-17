@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-17 | [Murciélago de cabeza gris llevando a su cría, Parque Yarra Bend, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_ES-ES8542062394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-16 | [Campos de tulipanes del valle de Skagit, Washington, EE. UU. (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_ES-ES7111199326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-15 | [La exposición Carrières des Lumières de Vincent van Gogh, Les Baux-de-Provence, Francia (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_ES-ES6924277283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

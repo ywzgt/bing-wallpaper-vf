@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-17 | [Pipistrello con il suo cucciolo, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_IT-IT3683219154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-16 | [Colline ondulate al tramonto, Toscana (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.ToscanaSpring_IT-IT2623065946_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-15 | [Mostra dedicata a Vincent van Gogh alle Carrières des Lumières, Les Baux-de-Provence, Francia (© Patrick Aventurier/Getty Images)](https://www.bing.com/th?id=OHR.VanGoghFields_IT-IT4420676529_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
