@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-18 | [Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)](https://www.bing.com/th?id=OHR.MillauViaductFrance_FR-FR3718442345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-17 | [Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)](https://www.bing.com/th?id=OHR.FlyingFoxMom_FR-FR4854001946_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-16 | [Champ de tulipes de Skagit Valley, Washington, États-Unis (© Alan Majchrowicz/Getty Images)](https://www.bing.com/th?id=OHR.SkagitTulips_FR-FR6378345422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
