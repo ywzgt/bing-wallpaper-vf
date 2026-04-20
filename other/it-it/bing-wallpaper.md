@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Tramonto nel parco nazionale delle Canyonlands, Moab, Utah, USA (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_IT-IT3389674511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Spiaggia di Espelho, Trancoso, Bahia, Brasile (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_IT-IT3445564294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Cava delle statue moai, Rano Raraku, Isola di Pasqua, Cile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_IT-IT3537431977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

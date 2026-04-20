@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-21 | [Pôr do sol no Parque Nacional de Canyonlands, Moab, Utah, Estados Unidos (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_PT-BR9614863102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-20 | [Cocar artesanal de povo indígena brasileiro (© Felipe Gustavo S Borges/Getty Images)](https://www.bing.com/th?id=OHR.InDay_PT-BR0410116846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-19 | [Estátuas moai, Rano Raraku, Ilha de Páscoa, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_PT-BR8807635419_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

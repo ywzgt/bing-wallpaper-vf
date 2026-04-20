@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Coucher de soleil sur le parc national des Canyonlands, Moab, Utah, États-Unis (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_FR-FR2289691113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_FR-FR8282585117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)](https://www.bing.com/th?id=OHR.MillauViaductFrance_FR-FR3718442345_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

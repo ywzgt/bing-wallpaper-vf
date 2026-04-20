@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Castañuelas flamencas (© LUNAMARINA/Getty Images)](https://www.bing.com/th?id=OHR.FlamencoSevilla_ES-ES8411080911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Atardecer en el Parque Nacional de Canyonlands, Utah, EE. UU. (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_ES-ES8818639574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Cantera de estatuas moái, Rano Raraku, isla de Pascua, Chile (© Gavin Hellier/Alamy)](https://www.bing.com/th?id=OHR.MaoiStatues_ES-ES1501322349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

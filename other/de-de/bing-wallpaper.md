@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-20 | [Rathaus St. Johann, Saarbrücken, Saarland (© frantic00/Getty Images)](https://www.bing.com/th?id=OHR.SaarbrueckenRathaus_DE-DE1197352085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-19 | [Praia do Espelho, Porto Seguro, Bahia, Brasilien (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_DE-DE2926110774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-18 | [Eingangsbereich des Kölner Doms, Nordrhein‑Westfalen (© ALFSnaiper/Getty Images)](https://www.bing.com/th?id=OHR.CathedralCologne_DE-DE0399722778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
