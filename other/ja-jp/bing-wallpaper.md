@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-22 | [アラムペジャ自然保護区, エストニア (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_JA-JP0849293902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-21 | [ハリネズミ, フランス (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_JA-JP0798616014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-20 | [キャニオンランズ国立公園, 米国 ユタ州 (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_JA-JP0609102045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
