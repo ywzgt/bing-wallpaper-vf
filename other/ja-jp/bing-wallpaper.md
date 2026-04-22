@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-23 | [アン・ハサウェイのコテージ, イングランド (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_JA-JP0891184783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-22 | [アラムペジャ自然保護区, エストニア (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_JA-JP0849293902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-21 | [ハリネズミ, フランス (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_JA-JP0798616014_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
