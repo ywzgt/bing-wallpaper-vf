@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-22 | [Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_EN-GB3828067814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-21 | [European hedgehog, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_EN-GB3383384255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-20 | [Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.SunsetKiva_EN-GB3079917136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

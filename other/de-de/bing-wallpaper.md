@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-22 | [Naturschutzgebiet Alam‑Pedja, Landkreis Tartu, Estland (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_DE-DE1682620724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-21 | [Europäischer Igel, Frankreich (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpringHedgehog_DE-DE1345910488_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-20 | [Rathaus St. Johann, Saarbrücken, Saarland (© frantic00/Getty Images)](https://www.bing.com/th?id=OHR.SaarbrueckenRathaus_DE-DE1197352085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
