@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-24 | [エバーグレーズ国立公園, 米国 フロリダ州 (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-23 | [アン・ハサウェイのコテージ, イングランド (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_JA-JP0891184783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-22 | [アラムペジャ自然保護区, エストニア (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_JA-JP0849293902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
