@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-23 | [Cottage di Anne Hathaway, Stratford-upon-Avon, Inghilterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_IT-IT3206612879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-22 | [Riserva naturale di Alam-Pedja, contea di Tartu, Estonia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_IT-IT3277915557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-21 | [Piazza del Campidoglio, Roma, Lazio (© Deejpilot/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BirthdayRome_IT-IT3327641807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
