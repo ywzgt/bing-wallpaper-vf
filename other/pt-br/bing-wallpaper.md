@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-25 | [Praia do Espelho, Porto Seguro, Bahia (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_PT-BR9169558101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-24 | [Chalé de Anne Hathaway, Stratford-upon-Avon, Inglaterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_PT-BR3455628548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-23 | [Reserva Natural Alam-Pedja, Condado de Tartu, Estônia (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_PT-BR2801749923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

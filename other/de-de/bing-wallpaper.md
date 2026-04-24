@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-24 | [Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_DE-DE2195733852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-23 | [Anne Hathaway’s Cottage, Stratford‑upon‑Avon, England (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_DE-DE1846813831_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-22 | [Naturschutzgebiet Alam‑Pedja, Landkreis Tartu, Estland (© Sven Zacek/Nature Picture Library)](https://www.bing.com/th?id=OHR.TartuEstonia_DE-DE1682620724_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
