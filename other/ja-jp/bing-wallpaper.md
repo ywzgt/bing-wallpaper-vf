@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-26 | [リンゴの花, 米国 カリフォルニア州 (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_JA-JP1155653651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-25 | [ガラパゴスペンギン, エクアドル (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_JA-JP8635536385_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-24 | [エバーグレーズ国立公園, 米国 フロリダ州 (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_JA-JP0980166238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
