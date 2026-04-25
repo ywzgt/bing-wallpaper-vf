@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-25 | [Pingüinos de las Galápagos nadando, islas Galápagos, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_ES-ES3782706188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-24 | [Bosque de pinares, Parque Nacional de los Everglades, Florida, EE. UU. (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_ES-ES3586366517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-23 | [Rosa roja dentro de un libro abierto (© Albert Cabezas/Getty Images)](https://www.bing.com/th?id=OHR.SantJordiBook_ES-ES2987257129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

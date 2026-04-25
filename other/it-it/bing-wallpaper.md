@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-25 | [Pinguini, Isole Galápagos, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_IT-IT3075883886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-24 | [Pini nel parco nazionale delle Everglades, Florida, USA (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_IT-IT3134964767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-23 | [Cottage di Anne Hathaway, Stratford-upon-Avon, Inghilterra (© David Steele/Shutterstock)](https://www.bing.com/th?id=OHR.HathawayCottage_IT-IT3206612879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-25 | [Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_EN-GB4960104210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-24 | [Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_EN-GB4733846763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-23 | [Windsor Castle, Berkshire, England (© Mistervlad/Shutterstock)](https://www.bing.com/th?id=OHR.StGeorgeDay2026_EN-GB4338835487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
