@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-27 | [Flores de macieira em Avila Beach, Califórnia, EUA (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_PT-BR6471473214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-26 | [Pinguins-das-galápagos nadando, Ilhas Galápagos, Equador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_PT-BR4013485362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-25 | [Praia do Espelho, Porto Seguro, Bahia (© Marcelo Nacinovic/Getty Images)](https://www.bing.com/th?id=OHR.TranBA_PT-BR9169558101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

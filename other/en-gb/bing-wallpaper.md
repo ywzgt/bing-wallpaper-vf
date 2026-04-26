@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-26 | [Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_EN-GB5436574714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-25 | [Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_EN-GB4960104210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-24 | [Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)](https://www.bing.com/th?id=OHR.SlashPine_EN-GB4733846763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
