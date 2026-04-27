@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-28 | [眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-27 | [维托里奥·埃马努埃莱二世��廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-27 | [维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

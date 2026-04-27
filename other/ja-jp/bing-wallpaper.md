@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-28 | [メガネグマ, エクアドル (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_JA-JP1349028050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-27 | [ヴィットーリオ・エマヌエーレ 2 世のガッレリア, イタリア (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_JA-JP1271955440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-26 | [リンゴの花, 米国 カリフォルニア州 (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_JA-JP1155653651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
