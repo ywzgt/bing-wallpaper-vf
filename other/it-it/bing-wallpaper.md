@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-27 | [Cupola di vetro della Galleria Vittorio Emanuele II, Milano (© PhillipMinnis/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_IT-IT4692336131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-26 | [Fiori di melo rosa, Avila Beach, California, USA (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_IT-IT2955443064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-25 | [Pinguini, Isole Galápagos, Ecuador (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_IT-IT3075883886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

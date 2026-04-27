@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-27 | [Dôme en verre de la Galleria Vittorio Emanuele II, Milan, Italie (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_FR-FR0320459768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-26 | [Pommier en fleur, Avila Beach, Californie, États-Unis (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_FR-FR7054712804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-25 | [Manchots des Galápagos, Îles Galápagos, Équateur (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosPenguins_FR-FR6829079400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
