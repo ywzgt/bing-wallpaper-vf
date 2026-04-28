@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-29 | [Urso-de-óculos descansando em uma árvore, Equador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_PT-BR8313253312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-28 | [Cúpula de vidro da Galleria Vittorio Emanuele II, Milão, Itália (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_PT-BR7355456303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-27 | [Flores de macieira em Avila Beach, Califórnia, EUA (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_PT-BR6471473214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

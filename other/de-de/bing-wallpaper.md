@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-28 | [Brillenbär ruht auf einem Baum, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_DE-DE6978814593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-27 | [Glaskuppel der Galleria Vittorio Emanuele II, Mailand, Italien (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_DE-DE5963996541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-26 | [Rosafarbene Apfelblüten, Avila Beach, Kalifornien, USA (© Mimi Ditchie Photography/Getty Images)](https://www.bing.com/th?id=OHR.AppleBlossoms_DE-DE5754939117_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
