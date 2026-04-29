@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-30 | [チューリップ, オランダ (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_JA-JP3809671349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-29 | [国会議事堂, 東京都 (© Hiroshi Watanabe/Getty images)](https://www.bing.com/th?id=OHR.ShowaEraDay2026_JA-JP3778600248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-28 | [メガネグマ, エクアドル (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_JA-JP1349028050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
