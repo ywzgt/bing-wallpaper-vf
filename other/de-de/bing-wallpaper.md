@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-29 | [Turm von Belém am Ufer des Tejo, Lissabon, Portugal (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_DE-DE6367494619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-28 | [Brillenbär ruht auf einem Baum, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_DE-DE6978814593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-27 | [Glaskuppel der Galleria Vittorio Emanuele II, Mailand, Italien (© PhillipMinnis/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_DE-DE5963996541_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

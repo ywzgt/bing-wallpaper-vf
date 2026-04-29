@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-29 | [Torre di Belém, fiume Tago, Lisbona, Portogallo (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_IT-IT4141068514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-28 | [Orso dagli occhiali su un albero, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_IT-IT4311061113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-27 | [Cupola di vetro della Galleria Vittorio Emanuele II, Milano (© PhillipMinnis/iStock/Getty Images)](https://www.bing.com/th?id=OHR.MilanGalleria_IT-IT4692336131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
