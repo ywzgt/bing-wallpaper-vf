@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-30 | [Jacintos y tulipanes, Jardines de Keukenhof, Lisse, Países Bajos (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_ES-ES1084356423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-29 | [La Torre de Belém a orillas del río Tajo, Lisboa, Portugal (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_ES-ES0844655839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-28 | [Oso andino descansando en un árbol, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_ES-ES0586629243_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

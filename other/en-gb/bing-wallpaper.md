@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-30 | [Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_EN-GB7175502570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-29 | [Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_EN-GB6963805322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-28 | [Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)](https://www.bing.com/th?id=OHR.AndeanBear_EN-GB6464683386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
