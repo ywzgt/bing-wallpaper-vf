@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-01 | [Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_DE-DE3505547766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-30 | [Traubenhyazinthen und Tulpen im Keukenhof, Lisse, Niederlande (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_DE-DE6573946518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-29 | [Turm von Belém am Ufer des Tejo, Lissabon, Portugal (© f9photos/Getty Images)](https://www.bing.com/th?id=OHR.BelemTowerBank_DE-DE6367494619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
