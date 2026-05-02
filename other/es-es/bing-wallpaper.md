@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-02 | [Monumento a Alfonso XII, Parque del Retiro, Madrid (© By Eve Livesey/Getty Images)](https://www.bing.com/th?id=OHR.MadridRetiro_ES-ES5384378675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-01 | [Faro de Tŵr Mawr en la isla de Llanddwyn, en Anglesey, Gales (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_ES-ES5064200815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-30 | [Jacintos y tulipanes, Jardines de Keukenhof, Lisse, Países Bajos (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_ES-ES1084356423_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

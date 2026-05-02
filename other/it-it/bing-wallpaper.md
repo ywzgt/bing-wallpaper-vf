@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-02 | [Parco nazionale di Jasper, Alberta, Canada (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.GreenJasper_IT-IT7374602939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-01 | [Faro di Tŵr Mawr, isola di Llanddwyn, Anglesey, Galles (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_IT-IT6995398128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-30 | [Giacinti e tulipani, Giardini di Keukenhof, Lisse, Paesi Bassi (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_IT-IT3654570550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

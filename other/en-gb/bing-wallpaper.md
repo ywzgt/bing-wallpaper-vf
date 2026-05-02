@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-02 | [Tŵr Mawr Lighthouse, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_EN-GB4656440500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-01 | [A merry-go-round in Brighton, England (© Alisia Luther/Shutterstock)](https://www.bing.com/th?id=OHR.BrightonFestival2026_EN-GB4224499383_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-30 | [Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_EN-GB7175502570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

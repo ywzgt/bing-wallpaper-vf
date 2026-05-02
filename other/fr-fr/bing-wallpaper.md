@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-02 | [Petit lac et marais dans le parc national Jasper, Alberta, Canada (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.GreenJasper_FR-FR4890526322_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-01 | [Brin de muguet, Ukraine (© tomch/Getty Images Plus)](https://www.bing.com/th?id=OHR.LilyMay_FR-FR4501325006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-30 | [Muscaris et tulipes, Keukenhof, Lisse, Pays-Bas (© Martin Ruegner/Getty Images)](https://www.bing.com/th?id=OHR.DutchTulips_FR-FR7047413722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
