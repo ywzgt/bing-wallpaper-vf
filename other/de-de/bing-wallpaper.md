@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-03 | [Leopard, der in einem Baum in der Savanne schläft, Masai‑Mara‑Nationalreservat, Kenia (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.MasaiLeopard_DE-DE1183742562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-02 | [Kleiner See und Feuchtgebiet im Jasper‑Nationalpark in Alberta, Kanada (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.GreenJasper_DE-DE3724735614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-01 | [Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_DE-DE3505547766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
