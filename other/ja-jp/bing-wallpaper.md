@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-05 | [姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)](https://www.bing.com/th?id=OHR.ChildrensDay2026_JA-JP4339103590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-04 | [クサル・ウレド・ソルタネ, チュニジア (© Dark_Eni/Getty Images Plus)](https://www.bing.com/th?id=OHR.KsarOuledSoltane_JA-JP4160189832_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-03 | [樹上で眠るヒョウ, ケニア (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.MasaiLeopard_JA-JP2209890088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
