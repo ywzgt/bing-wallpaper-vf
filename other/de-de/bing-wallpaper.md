@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-05 | [Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.LuebeckChairs_DE-DE4681131575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-04 | [Ksar Ouled Soltane, Gouvernement Tataouine, Südtunesien (© Dark_Eni/Getty Images Plus)](https://www.bing.com/th?id=OHR.KsarOuledSoltane_DE-DE0772664249_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-03 | [Leopard, der in einem Baum in der Savanne schläft, Masai‑Mara‑Nationalreservat, Kenia (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.MasaiLeopard_DE-DE1183742562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
