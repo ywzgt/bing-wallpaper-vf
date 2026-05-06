@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-07 | [Tempestade sobre as planícies, Bulgária (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_PT-BR7466173362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-06 | [Campo de agave-azul perto de Tequila, Jalisco, México (© Brian Overcast/Alamy)](https://www.bing.com/th?id=OHR.MayoAgave_PT-BR7161087994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-05 | [Ksar Ouled Soltane, distrito de Tataouine, Tunísia (© Dark_Eni/Getty Images Plus)](https://www.bing.com/th?id=OHR.KsarOuledSoltane_PT-BR6460099776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

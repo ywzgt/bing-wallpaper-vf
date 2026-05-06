@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-06 | [Tormenta sobre las llanuras, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_ES-ES6386466102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-05 | [Campo de agave azul cerca de Tequila, Jalisco, México (© Brian Overcast/Alamy)](https://www.bing.com/th?id=OHR.MayoAgave_ES-ES4054314323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-04 | [Festival de los Patios Cordobeses, Andalucía (© DIEGO GUTIERREZ/Getty Images)](https://www.bing.com/th?id=OHR.CordobaFestival_ES-ES4539784113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

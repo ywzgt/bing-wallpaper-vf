@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-06 | [Orage sur les plaines, Bulgarie (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_FR-FR4904282030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-05 | [Champs d’agave bleu près de Tequila, Jalisco, Mexique (© Brian Overcast/Alamy)](https://www.bing.com/th?id=OHR.MayoAgave_FR-FR5361312928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-04 | [Ksar Ouled Soltane, Tataouine, Tunisie (© Dark_Eni/Getty Images Plus)](https://www.bing.com/th?id=OHR.KsarOuledSoltane_FR-FR8093866685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
