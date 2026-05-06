@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-07 | [コファ国立野生生物保護区, 米国 アリゾナ州 (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_JA-JP4672929305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-06 | [平原に現れた巨大積乱雲, ブルガリア (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_JA-JP4515566359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-05 | [姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)](https://www.bing.com/th?id=OHR.ChildrensDay2026_JA-JP4339103590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
