@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-07 | [Kofa National Wildlife Refuge, Arizona, USA (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_DE-DE5653026475_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-06 | [Gewitter über der Ebene, Bulgarien (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_DE-DE4866806694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-05 | [Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)](https://www.bing.com/th?id=OHR.LuebeckChairs_DE-DE4681131575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
