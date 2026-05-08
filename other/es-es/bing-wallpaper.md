@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-08 | [Burra sarda con su cría, Francia (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_ES-ES2075094183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-07 | [Refugio Nacional de Vida Silvestre de Kofa, Arizona, EE. UU. (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_ES-ES0725925075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-06 | [Tormenta sobre las llanuras, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_ES-ES6386466102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

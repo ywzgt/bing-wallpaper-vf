@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-08 | [Giro d’Italia (© LUK BENIES/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.GiroItaliaBici_IT-IT3447077105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-07 | [Riserva naturale nazionale di Kofa, Arizona, USA (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_IT-IT0064163768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-06 | [Temporale sulle pianure, Bulgaria (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_IT-IT9195177220_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

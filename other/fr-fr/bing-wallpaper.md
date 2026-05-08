@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-08 | [Ânesse sarde et son ânon, France (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_FR-FR6669383604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-07 | [Refuge faunique national de Kofa, Arizona, États-Unis (© Denis Tangney Jr/Getty Images)](https://www.bing.com/th?id=OHR.Kofa_FR-FR5084005411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-06 | [Orage sur les plaines, Bulgarie (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_FR-FR4904282030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

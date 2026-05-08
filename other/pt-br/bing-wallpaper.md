@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-09 | [Jumenta sarda com seu potro na França (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_PT-BR9012507651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-08 | [Cambacica pousada em uma flor de bananeira, Ubatuba, São Paulo (© Alex Saberi/Getty Images)](https://www.bing.com/th?id=OHR.Bananaquit_PT-BR8722522620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-07 | [Tempestade sobre as planícies, Bulgária (© Revolu7ion93/Getty Images)](https://www.bing.com/th?id=OHR.BulgariaPlains_PT-BR7466173362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
