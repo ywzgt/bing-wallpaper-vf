@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-11 | [Ursa-polar e filhotes brincando no Parque Nacional Wapusk, Manitoba, Canadá (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_PT-BR2196589197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-10 | [Cachoeira Skradinski Buk no Parque Nacional Krka, Croácia (© Amazing Aerial Agency/Adobe Stock)](https://www.bing.com/th?id=OHR.SkradinskiBuk_PT-BR0487260781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-09 | [Jumenta sarda com seu potro na França (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardinianDonkey_PT-BR9012507651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
