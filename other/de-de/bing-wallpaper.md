@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-12 | [Papageitaucher, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-11 | [Great Barrier Reef aus der Luft, Queensland, Australien (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_DE-DE8475072784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-10 | [Eisbärmutter mit Jungtieren im Wapusk‑Nationalpark, Manitoba, Kanada (© Hao Jiang/Getty Images)](https://www.bing.com/th?id=OHR.MotherCub_DE-DE8187976527_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

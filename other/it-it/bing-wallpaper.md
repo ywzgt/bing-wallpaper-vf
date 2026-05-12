@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-12 | [Pulcinelle di mare, Galles (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-11 | [Grande Barriera Corallina, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_IT-IT3740031953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-10 | [Madre picchio nero che nutre i piccoli (© Paolino Massimiliano Manuel/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BlackWoodpeck_IT-IT3489847449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

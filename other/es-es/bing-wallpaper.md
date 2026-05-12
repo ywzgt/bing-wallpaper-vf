@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-12 | [Frailecillos atlánticos, Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-11 | [Gran Barrera de Coral desde el aire, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_ES-ES8051074781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-10 | [Leopardo descansando, reserva nacional de Masái Mara, Kenia (© Klein & Hubert/Nature Picture Library)](https://www.bing.com/th?id=OHR.MasaiLeopard_ES-ES0036994554_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
