@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [Arco rochoso e Via Láctea, Alabama Hills, Sierra Nevada, Califórnia, EUA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_PT-BR6088970693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [Papagaios-do-mar, País de Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_PT-BR3505081741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [Grande Barreira de Corais, Queensland, Austrália (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.QueenslandReef_PT-BR2906227798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
