@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [ピティリアーノ, イタリア (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_JA-JP6741766886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [アラバマヒルズ, 米国 カリフォルニア州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [ニシツノメドリ, ウェールズ (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_JA-JP6144226561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
