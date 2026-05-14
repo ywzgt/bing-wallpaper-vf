@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)](https://www.bing.com/th?id=OHR.FathersDayItaly_DE-DE9115360587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [Felsbogen und Milchstraße, Alabama Hills, Sierra Nevada, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_DE-DE8956133719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [Papageitaucher, Wales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_DE-DE8669315365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

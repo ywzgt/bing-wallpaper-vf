@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [Ciudad medieval de Pitigliano, Toscana, Italia (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_ES-ES6539419592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [Arco y Vía Láctea, Alabama Hills, Sierra Nevada, California, EE. UU. (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_ES-ES6766032995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [Frailecillos atlánticos, Gales (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_ES-ES7096599670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-14 | [Pitigliano, Provincia di Grosseto, Toscana (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_IT-IT4525034108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-13 | [Arco e Via Lattea, Alabama Hills, Sierra Nevada, California, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_IT-IT1042624581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-12 | [Pulcinelle di mare, Galles (© FLPA/Alamy)](https://www.bing.com/th?id=OHR.Fratercula_IT-IT3997548905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
