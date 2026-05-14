@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-15 | [マッコウクジラ, インド洋 (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_JA-JP6796432237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-14 | [ピティリアーノ, イタリア (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_JA-JP6741766886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-13 | [アラバマヒルズ, 米国 カリフォルニア州 (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_JA-JP6287825652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
