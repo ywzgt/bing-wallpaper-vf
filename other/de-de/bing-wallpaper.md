@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-15 | [Eine Pottwal-Familie im Indischen Ozean (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_DE-DE2753356925_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-14 | [Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)](https://www.bing.com/th?id=OHR.FathersDayItaly_DE-DE9115360587_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-13 | [Felsbogen und Milchstraße, Alabama Hills, Sierra Nevada, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_DE-DE8956133719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

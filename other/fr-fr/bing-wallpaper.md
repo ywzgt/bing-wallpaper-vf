@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-15 | [Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_FR-FR6600435943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-14 | [Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_FR-FR6271151676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-13 | [Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.AlabamaHills_FR-FR7595844295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
