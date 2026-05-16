@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-16 | [Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)](https://www.bing.com/th?id=OHR.BirchForest_FR-FR7115403118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-15 | [Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_FR-FR6600435943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-14 | [Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)](https://www.bing.com/th?id=OHR.Pitigliano_FR-FR6271151676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
