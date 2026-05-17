@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-17 | [Monte Hawksbill, parco nazionale di Shenandoah, Virginia, USA (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_IT-IT1185587153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-16 | [Smith Rock State Park, Oregon, USA (© Alex Ratson/Getty Images)](https://www.bing.com/th?id=OHR.SmithRockPark_IT-IT1024044993_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-15 | [Lenticchie in fiore, Castelluccio di Norcia, Perugia, Umbria (© Rudolf Ernst/iStock/Getty Images)](https://www.bing.com/th?id=OHR.LenticchieNorcia_IT-IT5069422241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

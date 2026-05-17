@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-18 | [Montanha Hawksbill, Parque Nacional de Shenandoah, Virgínia, Estados Unidos (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_PT-BR7351185056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-17 | [Cânion do Buracão, Ibicoara, Chapada Diamantina, Bahia (© Celia Hueck/Getty Images)](https://www.bing.com/th?id=OHR.Buracao_PT-BR7518499247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-16 | [Família de cachalotes, oceano Índico (© Tony Wu/Nature Picture Library)](https://www.bing.com/th?id=OHR.EndangeredWhales_PT-BR4927583438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
