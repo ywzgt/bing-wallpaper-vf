@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-19 | [フォルメントール灯台, スペイン (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_JA-JP8366354857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-18 | [国立科学博物館, 東京 (© cowardlion/Shutterstock)](https://www.bing.com/th?id=OHR.MuseumDay2026_JA-JP8089592575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-17 | [ホークスビル山, 米国 バージニア州 (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_JA-JP8062281581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
