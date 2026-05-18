@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-19 | [Museu de História Natural, Londres, Inglaterra (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_PT-BR8647023731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-18 | [Montanha Hawksbill, Parque Nacional de Shenandoah, Virgínia, Estados Unidos (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_PT-BR7351185056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-17 | [Cânion do Buracão, Ibicoara, Chapada Diamantina, Bahia (© Celia Hueck/Getty Images)](https://www.bing.com/th?id=OHR.Buracao_PT-BR7518499247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
