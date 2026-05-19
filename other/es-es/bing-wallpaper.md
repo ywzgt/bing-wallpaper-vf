@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-19 | [Faro de Formentor, Mallorca, Islas Baleares (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_ES-ES7620314804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-18 | [Museo de Historia Natural, Londres, Inglaterra (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_ES-ES5275876055_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-17 | [Montaña Hawksbill, Parque Nacional Shenandoah, Virginia, EE. UU. (© John Baggaley/Getty Images)](https://www.bing.com/th?id=OHR.ShenandoahSunset_ES-ES1620430283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
