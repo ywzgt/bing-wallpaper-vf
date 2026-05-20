@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-21 | [四川省の茶畑, 中国 (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_JA-JP8777846900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-20 | [受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_JA-JP8551190250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-19 | [フォルメントール灯台, スペイン (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_JA-JP8366354857_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
