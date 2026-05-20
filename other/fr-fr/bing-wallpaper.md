@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-20 | [Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_FR-FR9421197553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-19 | [Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_FR-FR9037625281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-18 | [Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)](https://www.bing.com/th?id=OHR.HatsRolandGarros_FR-FR8053000746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

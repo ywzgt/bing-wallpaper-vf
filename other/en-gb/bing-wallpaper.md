@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-20 | [Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_EN-GB2743073373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-19 | [Carnivorous red and green pitcher plants at the Chelsea Flower Show (© Jillian Cain Photography/Shutterstock)](https://www.bing.com/th?id=OHR.ChelseaFlower2026_EN-GB7917648389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-18 | [Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.MuseumLondon_EN-GB7020914823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
