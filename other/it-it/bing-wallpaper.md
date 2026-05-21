@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-21 | [Terrazzamenti da tè nella provincia del Sichuan, Cina (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_IT-IT6566248519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-20 | [Bombo, Worcester, Inghilterra (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_IT-IT3169631379_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-19 | [Faro di Formentor, Maiorca, Isole Baleari, Spagna (© Allard Schager/Getty Images)](https://www.bing.com/th?id=OHR.SpainLighthouse_IT-IT2595546195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

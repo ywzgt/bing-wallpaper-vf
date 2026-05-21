@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-21 | [Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_EN-GB3101293106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-20 | [Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_EN-GB2743073373_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-19 | [Carnivorous red and green pitcher plants at the Chelsea Flower Show (© Jillian Cain Photography/Shutterstock)](https://www.bing.com/th?id=OHR.ChelseaFlower2026_EN-GB7917648389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
