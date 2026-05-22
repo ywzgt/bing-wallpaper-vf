@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-22 | [Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_FR-FR2995406820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-21 | [Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_FR-FR2758573736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-20 | [Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_FR-FR9421197553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-23 | [Atol Kauehi, Arquipélago de Tuamotu, Polinésia Francesa (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_PT-BR7122333549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-22 | [Terraços de chá na província de Sichuan, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_PT-BR0614842404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-21 | [Abelha-mamangava polinizando, Worcester, Inglaterra (© SimonEastwood87/Shutterstock)](https://www.bing.com/th?id=OHR.BumbleBee_PT-BR0219466294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
