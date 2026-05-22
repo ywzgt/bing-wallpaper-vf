@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-23 | [カメと蝶 (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_JA-JP9111323268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-22 | [東京スカイツリー, 東京 (© GoranQ/Getty Images)](https://www.bing.com/th?id=OHR.TokyoSkyTreeDay2026_JA-JP8960437090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-21 | [四川省の茶畑, 中国 (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_JA-JP8777846900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
