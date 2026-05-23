@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-23 | [Turtles with butterflies (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_EN-GB5539260974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-22 | [Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_EN-GB5382728672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-21 | [Tea terraces in Sichuan Province, China (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_EN-GB3101293106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

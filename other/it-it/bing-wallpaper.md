@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-23 | [Tartarughe e farfalle (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_IT-IT6850354411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-22 | [Atollo di Kauehi, arcipelago delle Tuamotu, Polinesia francese (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_IT-IT9581557315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-21 | [Terrazzamenti da tè nella provincia del Sichuan, Cina (© lzf/Shutterstock)](https://www.bing.com/th?id=OHR.SichuanTea_IT-IT6566248519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
