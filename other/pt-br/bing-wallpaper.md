@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-25 | [Frutos de café em fazenda no Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-24 | [Tartarugas com borboletas (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_PT-BR1084575406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-23 | [Atol Kauehi, Arquipélago de Tuamotu, Polinésia Francesa (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_PT-BR7122333549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

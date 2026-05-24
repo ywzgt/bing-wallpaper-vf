@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-24 | [Naturpark Drei Zinnen, Südtirol, Italien (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_DE-DE0867398048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-23 | [Schildkröten mit Schmetterlingen (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_DE-DE2682966963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-22 | [Kauehi‑Atoll, Tuamotu‑Archipel, Französisch‑Polynesien (© WaterFrame_dpr/Alamy)](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_DE-DE7537602324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
