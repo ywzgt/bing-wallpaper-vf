@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-26 | [ルピナスの花, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_JA-JP9737515603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-25 | [トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)](https://www.bing.com/th?id=OHR.TwrMawrLighthouse2026_JA-JP9539215085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-24 | [トレ・チーメ自然公園, イタリア (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_JA-JP9299187350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
