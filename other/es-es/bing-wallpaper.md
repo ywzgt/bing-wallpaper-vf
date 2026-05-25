@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-25 | [Vista de Jaipur desde el palacio Hawa Mahal, Rajastán, India (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_ES-ES8790916426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-24 | [Parque natural Tre Cime, Tirol del Sur, Italia (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_ES-ES7858758961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-23 | [Tortugas con mariposas (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_ES-ES8340646109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

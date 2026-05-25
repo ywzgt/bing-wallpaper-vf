@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-25 | [Villa Adriana, Tivoli, Lazio (© SeanSavonePhoto/Adobe Stock)](https://www.bing.com/th?id=OHR.TivoliVillaAdriana_IT-IT5000773432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-24 | [Parco naturale Tre Cime, Trentino-Alto Adige (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_IT-IT4272187498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-23 | [Tartarughe e farfalle (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_IT-IT6850354411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

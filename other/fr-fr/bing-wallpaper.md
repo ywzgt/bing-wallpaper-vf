@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-25 | [Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_FR-FR4307485807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-24 | [Parc naturel Trois Cimes, Bolzano, Italie (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_FR-FR3482729032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-23 | [Tortues et papillons (© Patrick Gallet/Getty Images)](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_FR-FR0788671320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
