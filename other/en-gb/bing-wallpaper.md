@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-26 | [Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_EN-GB6153888495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-25 | [View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_EN-GB5975614147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-24 | [Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)](https://www.bing.com/th?id=OHR.DolomitesPark_EN-GB5776508823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

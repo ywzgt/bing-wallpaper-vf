@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-27 | [Tremoceiros em flor, Califórnia, Estados Unidos (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_PT-BR2184641426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-26 | [Vista de Jaipur a partir do Hawa Mahal, Rajastão, Índia (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_PT-BR1391489628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-25 | [Frutos de café em fazenda no Brasil (© Murilo Gualda/Getty Images)](https://www.bing.com/th?id=OHR.CoffeeDay_PT-BR1198680562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
