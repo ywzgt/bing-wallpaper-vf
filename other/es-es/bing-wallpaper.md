@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-27 | [Nutria marina, bahía de Kachemak, Homer, Alaska, EE. UU. (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_ES-ES3038994198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-26 | [Lupinos en flor, norte de California, EE. UU. (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_ES-ES2667460285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-25 | [Vista de Jaipur desde el palacio Hawa Mahal, Rajastán, India (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_ES-ES8790916426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-27 | [Loutre de mer, Baie de Kachemak, Homer, Alaska, États-Unis (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_FR-FR4235881841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-26 | [Lupins en fleur, Californie du Nord, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_FR-FR4014773564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-25 | [Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)](https://www.bing.com/th?id=OHR.HawaMahal2026_FR-FR4307485807_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
