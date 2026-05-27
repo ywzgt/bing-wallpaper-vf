@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-28 | [スウォンファソン, 韓国 水原市 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_JA-JP0157517591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-27 | [ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_JA-JP9963461992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-26 | [ルピナスの花, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_JA-JP9737515603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
