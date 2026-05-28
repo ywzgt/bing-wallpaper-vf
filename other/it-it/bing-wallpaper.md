@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-28 | [Antiche mura della fortezza di Hwaseong, Suwon, Corea del Sud (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_IT-IT4766993604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-27 | [Lontra marina, Kachemak Bay, Homer, Alaska, USA (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_IT-IT8003946324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-26 | [Fiori di lupino in fiore, California settentrionale, USA (© Jeffrey Lewis/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.LupineBloom_IT-IT4470674281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
