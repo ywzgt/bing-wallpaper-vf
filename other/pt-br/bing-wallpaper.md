@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-30 | [Topo do Monte Everest, Parque Nacional de Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_PT-BR8310035958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-29 | [Muralha da Fortaleza de Hwaseong, Suwon, Coreia do Sul (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_PT-BR2888838798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-28 | [Lontra-marinha, Baía de Kachemak, Homer, Alasca, Estados Unidos (© roclwyr/Getty Images)](https://www.bing.com/th?id=OHR.OtterDay_PT-BR2622670476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
