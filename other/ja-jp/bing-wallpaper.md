@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-30 | [サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_JA-JP7756090544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-29 | [エベレスト, ネパール (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_JA-JP1474604254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-28 | [スウォンファソン, 韓国 水原市 (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_JA-JP0157517591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
