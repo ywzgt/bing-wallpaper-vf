@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-30 | [Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_FR-FR5450236947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-29 | [Mont Everest, Parc national de Sagarmatha, Népal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_FR-FR5658913315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-28 | [Forteresse de Hwaseong, Suwon, Corée du Sud (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_FR-FR4479337112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

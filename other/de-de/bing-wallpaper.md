@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-30 | [Steppenzebra-Fohlen im Etosha-Nationalpark, Namibia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_DE-DE3459381022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-29 | [Gipfel des Mount Everest, Sagarmatha-Nationalpark, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_DE-DE3618626129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-28 | [Alte Stadtmauer der Festung Hwaseong, Suwon, Südkorea (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_DE-DE4428807756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

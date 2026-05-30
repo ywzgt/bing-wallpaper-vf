@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-30 | [Vista aérea del Puerto de la Cruz, Tenerife (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.TenerifePuerto_ES-ES2845823553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-29 | [Cumbre del monte Everest, Parque Nacional de Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_ES-ES4841461045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-28 | [Antigua muralla de la fortaleza de Hwaseong, Suwon, Corea del Sur (© aomam/Getty Images)](https://www.bing.com/th?id=OHR.HwaesongFortress_ES-ES3287835347_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
