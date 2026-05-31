@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-05-31 | [Vista aerea del parco nazionale delle Everglades, Florida, USA (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_IT-IT8250643798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-30 | [Puledro di zebra della pianura, parco nazionale di Etosha, Namibia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_IT-IT4668961444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-29 | [Monte Everest, parco nazionale di Sagarmatha, Nepal (© fotoVoyager/Getty Images)](https://www.bing.com/th?id=OHR.SummitEverest_IT-IT4333407961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
