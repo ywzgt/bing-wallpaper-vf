@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-02 | [Bandeirinhas de Festa Junina, Aracaju, Sergipe (© Carlos Maranhao/Getty Images)](https://www.bing.com/th?id=OHR.Junina_PT-BR7043034952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-01 | [Vista aérea do Parque Nacional Everglades, Flórida, Estados Unidos (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_PT-BR6176741147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-31 | [Filhote de zebra-da-planície no Parque Nacional Etosha, Namíbia (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_PT-BR5698040013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-01 | [Horizonte de Palermo al atardecer, Sicilia, Italia (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_ES-ES5664715455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-31 | [Vista aérea del Parque Nacional de los Everglades, Florida, EE. UU. (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_ES-ES0912999305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-30 | [Vista aérea del Puerto de la Cruz, Tenerife (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.TenerifePuerto_ES-ES2845823553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

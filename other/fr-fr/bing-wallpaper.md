@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-01 | [Palerme au crépuscule, Sicile, Italie (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_FR-FR3764883294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-05-31 | [Une guéparde et son guépardeau (© hilton123/Getty Images)](https://www.bing.com/th?id=OHR.CheetahMotherDay_FR-FR3566919266_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-30 | [Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)](https://www.bing.com/th?id=OHR.EquusQuagga_FR-FR5450236947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
