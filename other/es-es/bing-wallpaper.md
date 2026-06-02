@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-02 | [Carretera que atraviesa el lago Xitai Jinaier, provincia de Qinghai, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_ES-ES1530472957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-01 | [Horizonte de Palermo al atardecer, Sicilia, Italia (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_ES-ES5664715455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-31 | [Vista aérea del Parque Nacional de los Everglades, Florida, EE. UU. (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_ES-ES0912999305_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

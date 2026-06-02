@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-02 | [Straße durch den Xitai-Jinaier-See, Provinz Qinghai, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_DE-DE2779615258_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-01 | [Skyline von Palermo in der Abenddämmerung, Sizilien, Italien (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_DE-DE3024542120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-31 | [Rapsfelder vor der Festung Königstein, Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)](https://www.bing.com/th?id=OHR.RapeseedField_DE-DE3303026116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

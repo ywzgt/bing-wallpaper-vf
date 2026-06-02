@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-02 | [Colonna Traiana, Roma, Lazio (© Domingo Leiva/Moment/Getty Images)](https://www.bing.com/th?id=OHR.ItaliaRepubblica_IT-IT5373102949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-01 | [Castello di Dunseverick, contea di Antrim, Irlanda del Nord (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_IT-IT6990234859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-05-31 | [Vista aerea del parco nazionale delle Everglades, Florida, USA (© Tetra Images/Getty Images)](https://www.bing.com/th?id=OHR.EvergladesWetlands_IT-IT8250643798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
