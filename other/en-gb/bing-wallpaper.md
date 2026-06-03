@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-03 | [Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_EN-GB8956577575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-02 | [Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_EN-GB8807388585_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-01 | [Palermo skyline, Sicily, Italy (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_EN-GB8668911302_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
