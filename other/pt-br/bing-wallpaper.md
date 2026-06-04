@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-05 | [Garça-branca-pequena se arrumando, Flórida, EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_PT-BR8376117124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [Ciclista no Parque Natural e Reserva da Biosfera de Bardenas Reales, Navarra, Espanha (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_PT-BR7918853611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [Rodovia sobre o lago Xitai Jinaier, província de Qinghai, China (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_PT-BR7641710566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

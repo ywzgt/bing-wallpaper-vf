@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-04 | [ユキコサギ, 米国 フロリダ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_JA-JP9316676875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [ユキ���サギ, 米国 フロリダ州 (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_JA-JP9316676875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [バルデナス・レアレス自然公園, スペイン (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_JA-JP9112700614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

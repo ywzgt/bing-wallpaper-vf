@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-04 | [Strada G315 che attraversa il lago Xitai Jinaier, Qinghai, Cina (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_IT-IT1366157196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-03 | [Ciclista nel parco naturale e riserva della biosfera delle Bardenas Reales, Navarra, Spagna (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_IT-IT5937080217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-02 | [Colonna Traiana, Roma, Lazio (© Domingo Leiva/Moment/Getty Images)](https://www.bing.com/th?id=OHR.ItaliaRepubblica_IT-IT5373102949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
