@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-06 | [Vista da montanha Skierffe sobre o delta do rio Rápadalen, Parque Nacional de Sarek, Lapônia, Suécia (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_PT-BR8732112197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-05 | [Garça-branca-pequena se arrumando, Flórida, EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_PT-BR8376117124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-04 | [Ciclista no Parque Natural e Reserva da Biosfera de Bardenas Reales, Navarra, Espanha (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_PT-BR7918853611_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

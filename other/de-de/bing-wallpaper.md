@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-05 | [Blick vom Skierffe über das Flussdelta des Rapadalen, Nationalpark Sarek, Laponia, Lappland, Schweden (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_DE-DE1297494610_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [Schmuckreiher bei der Gefiederpflege, Zentralflorida, USA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_DE-DE1842151218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [Radfahrer in den Bardenas Reales, einem Naturpark und Biosphärenreservat in Navarra, Spanien (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_DE-DE2578527889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

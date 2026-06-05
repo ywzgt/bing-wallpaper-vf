@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-05 | [Vue sur Skierffe et la vallée de Rapa, Parc national de Sarek, Laponie, Suède (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_FR-FR5600667341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [Aigrette neigeuse, Floride centrale, États-Unis (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_FR-FR5555518390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [Cycliste dans le parc naturel des Bardenas Reales, Navarre, Espagne (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_FR-FR5179078081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

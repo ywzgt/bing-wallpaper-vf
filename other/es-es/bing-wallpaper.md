@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-05 | [Molinos de Consuegra al amanecer, Castilla-La Mancha (© Paulo Costa/Getty Images)](https://www.bing.com/th?id=OHR.CastillaLaMancha_ES-ES3536382810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-04 | [Garceta nívea acicalándose, Florida central, EE. UU. (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_ES-ES8215268252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-03 | [Ciclista en el Parque Natural y Reserva de la Biosfera de las Bardenas Reales, Navarra (© Artur Debat/Getty Images)](https://www.bing.com/th?id=OHR.BardenasReales_ES-ES7948885864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
