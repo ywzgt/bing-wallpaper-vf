@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-07 | [プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_JA-JP0282972005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-06 | [ナチェズ・トレース・パークウェイのトレイル, 米国 ミシシッピ州 (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_JA-JP9730895087_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-05 | [サーレク国立公園, スウェーデン (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_JA-JP9552121230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
