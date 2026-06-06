@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-07 | [Natchez Trace Parkway, Tupelo, Mississippi, EUA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_PT-BR9167850765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-06 | [Vista da montanha Skierffe sobre o delta do rio Rápadalen, Parque Nacional de Sarek, Lapônia, Suécia (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_PT-BR8732112197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-05 | [Garça-branca-pequena se arrumando, Flórida, EUA (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_PT-BR8376117124_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

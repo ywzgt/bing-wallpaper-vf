@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-06 | [Natchez Trace Parkway, Tupelo, Misisipi, EE. UU. (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_ES-ES4258488538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-05 | [Molinos de Consuegra al amanecer, Castilla-La Mancha (© Paulo Costa/Getty Images)](https://www.bing.com/th?id=OHR.CastillaLaMancha_ES-ES3536382810_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-04 | [Garceta nívea acicalándose, Florida central, EE. UU. (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_ES-ES8215268252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

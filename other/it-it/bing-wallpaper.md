@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-06 | [Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_IT-IT7003362282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-05 | [Delta del fiume Rapadalen, parco nazionale di Sarek, Lapponia, Svezia (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_IT-IT1612866051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-04 | [Strada G315 che attraversa il lago Xitai Jinaier, Qinghai, Cina (© Kaicheng Xu/Getty Images)](https://www.bing.com/th?id=OHR.Qinghai_IT-IT1366157196_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

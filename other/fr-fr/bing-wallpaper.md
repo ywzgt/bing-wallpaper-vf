@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-06 | [Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_FR-FR6314357714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-05 | [Vue sur Skierffe et la vallée de Rapa, Parc national de Sarek, Laponie, Suède (© Robert Haasmann/Getty Images)](https://www.bing.com/th?id=OHR.WedLapland_FR-FR5600667341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-04 | [Aigrette neigeuse, Floride centrale, États-Unis (© Donald M. Jones/Minden Pictures)](https://www.bing.com/th?id=OHR.PreeningEgret_FR-FR5555518390_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
