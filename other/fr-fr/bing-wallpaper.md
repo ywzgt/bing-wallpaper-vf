@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-08 | [Le Panthéon de nuit, Paris (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.PantheonParisNight_FR-FR5459826291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-07 | [Ruines du château de Dunseverick, Antrim, Irlande du Nord (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_FR-FR5937178493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-06 | [Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_FR-FR6314357714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

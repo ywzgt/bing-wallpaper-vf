@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-08 | [Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_EN-GB9769682227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-07 | [Ruins of Dunseverick Castle, County Antrim, Northern Ireland (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_EN-GB9557094817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-06 | [Natchez Trace Parkway, Tupelo, Mississippi, United States (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_EN-GB9388336824_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

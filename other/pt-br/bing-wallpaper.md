@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-09 | [Água-viva-juba-de-leão nadando no oceano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_PT-BR2097326895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-08 | [Ruínas do Castelo de Dunseverick, Condado de Antrim, Irlanda do Norte (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_PT-BR9951300032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-07 | [Natchez Trace Parkway, Tupelo, Mississippi, EUA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_PT-BR9167850765_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

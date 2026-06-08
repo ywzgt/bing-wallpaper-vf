@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-08 | [Medusa dalla criniera di leone che nuota nell'oceano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_IT-IT7439646926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-07 | [Lago del cratere Hnausapollur, riserva naturale di Fjallabak, Islanda (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_IT-IT7264622546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-06 | [Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_IT-IT7003362282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

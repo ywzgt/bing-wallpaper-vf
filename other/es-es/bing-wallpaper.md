@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-08 | [Medusa melena de león nadando en el océano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_ES-ES9225332344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-07 | [Ruinas del castillo de Dunseverick, condado de Antrim, Irlanda del Norte (© Krzysztof Rogalski/Getty Images)](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ES-ES9063298033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-06 | [Natchez Trace Parkway, Tupelo, Misisipi, EE. UU. (© The best photo is earned/Getty Images Plus)](https://www.bing.com/th?id=OHR.HikingNatchez_ES-ES4258488538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
