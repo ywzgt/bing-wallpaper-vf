@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-09 | [ヴェルナッツァ, イタリア (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_JA-JP0736280487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-08 | [海中を泳ぐキタユウレイクラゲ (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_JA-JP0508555494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-07 | [プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_JA-JP0282972005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
