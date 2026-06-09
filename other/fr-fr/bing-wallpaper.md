@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-09 | [Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_FR-FR6675629876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-08 | [Les Invalides de nuit, Paris (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.PantheonParisNight_FR-FR2285812065_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-08 | [Le Panthéon de nuit, Paris (© Don White/Getty Images)](https://www.bing.com/th?id=OHR.PantheonParisNight_FR-FR5459826291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
