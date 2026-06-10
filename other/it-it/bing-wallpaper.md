@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-10 | [Palermo, Sicilia (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_IT-IT7720847835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-09 | [Vernazza, Cinque Terre, Liguria (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_IT-IT7594806802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-08 | [Medusa dalla criniera di leone che nuota nell'oceano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_IT-IT7439646926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

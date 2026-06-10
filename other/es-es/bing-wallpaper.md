@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-10 | [Lago del cráter de Hnausapollur, Landmannalaugar, Islandia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_ES-ES9919226001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-09 | [Vernazza, Cinque Terre, Liguria, Italia (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_ES-ES0282181356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-08 | [Medusa melena de león nadando en el océano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_ES-ES9225332344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

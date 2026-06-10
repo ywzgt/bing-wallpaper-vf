@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-10 | [Vulkanischer Kratersee Hnausapollur, Naturschutzgebiet Fjallabak, Landmannalaugar, Island (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_DE-DE2307473274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-09 | [Vernazza, Cinque Terre, Ligurien, Italien (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_DE-DE9697732049_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-08 | [Gelbe Haarqualle im Ozean (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_DE-DE8289927523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

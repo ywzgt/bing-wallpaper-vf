@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-10 | [Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_EN-GB0108881813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-09 | [Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_EN-GB9932633613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-08 | [Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_EN-GB9769682227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

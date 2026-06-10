@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-11 | [Coruja-buraqueira em sentinela (© Wendy/Jeff Sparks/Torquemada/Getty Images)](https://www.bing.com/th?id=OHR.BOwl_PT-BR4099408173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-10 | [Vernazza, Cinque Terre, Ligúria, Itália (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_PT-BR2618024096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-09 | [Água-viva-juba-de-leão nadando no oceano (© Alexander Semenov Images/Shutterstock)](https://www.bing.com/th?id=OHR.Cyanea_PT-BR2097326895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
