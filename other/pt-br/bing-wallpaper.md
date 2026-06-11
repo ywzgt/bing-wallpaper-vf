@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-12 | [Lapas expostas na maré baixa na costa da Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_PT-BR3364231967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-11 | [Coruja-buraqueira em sentinela (© Wendy/Jeff Sparks/Torquemada/Getty Images)](https://www.bing.com/th?id=OHR.BOwl_PT-BR4099408173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-10 | [Vernazza, Cinque Terre, Ligúria, Itália (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_PT-BR2618024096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

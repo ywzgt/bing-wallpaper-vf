@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-11 | [Patelle, costa di Praia da Ursa, Portogallo (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_IT-IT0440243465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-10 | [Palermo, Sicilia (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.OlivaPalermo_IT-IT7720847835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-09 | [Vernazza, Cinque Terre, Liguria (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_IT-IT7594806802_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-11 | [Lapas en la costa de Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_ES-ES0650754334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-10 | [Lago del cráter de Hnausapollur, Landmannalaugar, Islandia (© Juan Maria Coy Vergara/Getty Images)](https://www.bing.com/th?id=OHR.Hnausapollur_ES-ES9919226001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-09 | [Vernazza, Cinque Terre, Liguria, Italia (© Kelly Cheng/Getty Images)](https://www.bing.com/th?id=OHR.CTNPVernazza_ES-ES0282181356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
