@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-13 | [Parco nazionale delle Badlands, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-12 | [Gruccione comune, parco naturale della Sierra de Grazalema, Spagna (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_IT-IT9615288576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-11 | [Patelle, costa di Praia da Ursa, Portogallo (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_IT-IT0440243465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

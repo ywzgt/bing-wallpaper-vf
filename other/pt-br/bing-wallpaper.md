@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-14 | [Abelharuco no Parque Natural Sierra de Grazalema, Cádiz, Espanha (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-13 | [Casal de rãs-leitosas-da-amazônia, ou pererecas-de-leite (© Lauren Suryanata/Shutterstock)](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-12 | [Lapas expostas na maré baixa na costa da Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)](https://www.bing.com/th?id=OHR.Limpets_PT-BR3364231967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
