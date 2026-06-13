@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-14 | [バッドランズ国立公園, 米国 サウスダコタ州 (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_JA-JP5960860484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-13 | [はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)](https://www.bing.com/th?id=OHR.HayabusaDay2026_JA-JP6590656546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-12 | [ヨーロッパハチクイ, スペイン (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_JA-JP8800920985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
