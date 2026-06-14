@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-14 | [Canard colvert (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_FR-FR7676171535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-13 | [Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-12 | [Guêpier d’Europe, Parc naturel de la Sierra de Grazalema, Cadix, Espagne (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_FR-FR5420456430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Pato-real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_PT-BR2199019099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Abelharuco no Parque Natural Sierra de Grazalema, Cádiz, Espanha (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Casal de rãs-leitosas-da-amazônia, ou pererecas-de-leite (© Lauren Suryanata/Shutterstock)](https://www.bing.com/th?id=OHR.ValentineFrog_PT-BR1899609261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

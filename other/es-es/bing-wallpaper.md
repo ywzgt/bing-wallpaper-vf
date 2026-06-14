@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-14 | [Ánade real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_ES-ES8621996260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-13 | [Castillo de Altafulla, Tarragona (© Mario Marco/Getty Images)](https://www.bing.com/th?id=OHR.AltafullaTarragona_ES-ES8470758712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-12 | [Abejaruco europeo en el parque natural de la Sierra de Grazalema, Cádiz (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_ES-ES8052156644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
