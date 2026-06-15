@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-16 | [Parque Nacional Great Smoky Mountains, Tennessee, Estados Unidos (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_PT-BR2427992581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-15 | [Pato-real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_PT-BR2199019099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-14 | [Abelharuco no Parque Natural Sierra de Grazalema, Cádiz, Espanha (© Andres M. Dominguez/Nature Picture Library)](https://www.bing.com/th?id=OHR.SpainBeeEater_PT-BR8358258406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

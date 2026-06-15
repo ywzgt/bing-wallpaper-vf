@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_EN-GB0010694750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_EN-GB9659525576_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Members of the Household Cavalry Mounted Regiment at Hyde Park, London (© Leon Neal/Staff/Getty Images)](https://www.bing.com/th?id=OHR.TroopingTheColour2026_EN-GB9412651820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

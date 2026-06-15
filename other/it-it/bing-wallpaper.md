@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Parco nazionale delle Great Smoky Mountains, Tennessee, USA (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_IT-IT3908775482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Germano reale (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_IT-IT3562995004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Parco nazionale delle Badlands, South Dakota, USA (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_IT-IT7610700468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

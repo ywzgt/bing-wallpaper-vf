@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_FR-FR1451638947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Canard colvert (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_FR-FR7676171535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)](https://www.bing.com/th?id=OHR.BadSunset_FR-FR8337431465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

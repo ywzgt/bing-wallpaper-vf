@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-15 | [Parque nacional de las Grandes Montañas Humeantes, Tennessee, EE. UU. (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_ES-ES8806715182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-14 | [Ánade real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_ES-ES8621996260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-13 | [Castillo de Altafulla, Tarragona (© Mario Marco/Getty Images)](https://www.bing.com/th?id=OHR.AltafullaTarragona_ES-ES8470758712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
