@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-16 | [Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_FR-FR7065841321_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-15 | [Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_FR-FR1451638947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-14 | [Canard colvert (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_FR-FR7676171535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

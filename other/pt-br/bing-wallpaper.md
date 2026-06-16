@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-17 | [Tartarugas-de-pente perto de Seven Mile Beach, Grand Cayman, Ilhas Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-16 | [Parque Nacional Great Smoky Mountains, Tennessee, Estados Unidos (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_PT-BR2427992581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-15 | [Pato-real (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_PT-BR2199019099_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
