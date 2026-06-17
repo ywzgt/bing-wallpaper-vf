@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-17 | [Strada della Tremola, passo del San Gottardo, Airolo, Svizzera (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_IT-IT1436390409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-16 | [Tartarughe embricate, Seven Mile Beach, Isole Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_IT-IT4183755480_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-15 | [Parco nazionale delle Great Smoky Mountains, Tennessee, USA (© Mint Images/Getty Images)](https://www.bing.com/th?id=OHR.ParkEstd_IT-IT3908775482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

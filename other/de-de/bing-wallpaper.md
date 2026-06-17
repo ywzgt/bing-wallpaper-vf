@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-17 | [Tremolastraße am Gotthardpass in Airolo, Schweiz (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_DE-DE0167255988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-16 | [Zwei Echte Karettschildkröten in der Nähe des Seven Mile Beach, Grand Cayman, Kaimaninseln (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_DE-DE3122799407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-15 | [Stockente (© Philippe Paternolli/Getty Images)](https://www.bing.com/th?id=OHR.DuckPond_DE-DE9877208937_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
