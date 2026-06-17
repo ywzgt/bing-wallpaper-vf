@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-18 | [サクサイワマン, ペルー (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_JA-JP0282514779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-17 | [トレモラ道路, スイス (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_JA-JP0031183332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-16 | [優雅に泳ぐタイマイ, ケイマン諸島 (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_JA-JP9577560353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
