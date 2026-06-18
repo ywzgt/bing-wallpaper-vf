@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-19 | [Vista aérea das ruínas de Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_PT-BR5528021582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-18 | [Estrada Tremola no Passo de São Gotardo, Airolo, Suíça (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_PT-BR4929951755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-17 | [Tartarugas-de-pente perto de Seven Mile Beach, Grand Cayman, Ilhas Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_PT-BR3827841290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

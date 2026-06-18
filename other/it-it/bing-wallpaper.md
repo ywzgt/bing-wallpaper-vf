@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-18 | [Rovine di Sacsayhuamán, Cusco, Perù (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_IT-IT8503253730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-17 | [Strada della Tremola, passo del San Gottardo, Airolo, Svizzera (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_IT-IT1436390409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-16 | [Tartarughe embricate, Seven Mile Beach, Isole Cayman (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.SevenMileTurtle_IT-IT4183755480_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
