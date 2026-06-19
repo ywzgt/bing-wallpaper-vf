@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-19 | [Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_DE-DE0710166341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-18 | [Luftaufnahme der Ruinen von Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_DE-DE3241976270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-17 | [Tremolastraße am Gotthardpass in Airolo, Schweiz (© Sandro Bisaro/Getty Images)](https://www.bing.com/th?id=OHR.TremolaRoad_DE-DE0167255988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
