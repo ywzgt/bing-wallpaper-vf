@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-20 | [Iceberg, costa occidentale della penisola Antartica, oceano Antartico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-19 | [Faro di Piombino, provincia di Livorno, Toscana (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_IT-IT8863679360_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-18 | [Rovine di Sacsayhuamán, Cusco, Perù (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_IT-IT8503253730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

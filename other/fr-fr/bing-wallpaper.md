@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-20 | [Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-19 | [Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_FR-FR6759091748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-18 | [Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_FR-FR7364469911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

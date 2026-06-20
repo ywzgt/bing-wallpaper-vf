@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-21 | [Iceberg flutuando na Antártica Ocidental, oceano Antártico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-20 | [Farol La Rocchetta, Piombino, Toscana, Itália (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_PT-BR4257374246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-19 | [Vista aérea das ruínas de Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)](https://www.bing.com/th?id=OHR.Saqsaywaman_PT-BR5528021582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
