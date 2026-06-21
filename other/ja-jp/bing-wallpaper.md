@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [富士山 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_JA-JP1483326201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [オウサマペンギンの父親 (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_JA-JP1066785458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [アーチ状の氷山, 南極半島西部 (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_JA-JP0865478817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
