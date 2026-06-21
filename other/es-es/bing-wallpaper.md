@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-21 | [Monte Fuji en la isla de Honshu, Japón (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_ES-ES0010704933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-20 | [Iceberg arqueado flotando frente a la península Antártica occidental, océano Austral (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_ES-ES9715091871_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-19 | [Faro de La Rocchetta, Piombino, Toscana, Italia (© StevanZZ/Getty Images)](https://www.bing.com/th?id=OHR.IsolaElba_ES-ES9499583337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
