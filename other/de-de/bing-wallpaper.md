@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [Quinault‑Regenwald im Olympic‑Nationalpark, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_DE-DE3985266590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [Ein Königspinguin-Männchen schaut nach seinem Ei (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_DE-DE1185821144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)](https://www.bing.com/th?id=OHR.KielSailing_DE-DE0980571166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

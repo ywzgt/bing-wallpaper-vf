@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-23 | [Floresta tropical de Quinault, Parque Nacional Olímpico, estado de Washington, Estados Unidos (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_PT-BR5147575881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-22 | [Pinguim-rei protegendo um ovo (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_PT-BR4988690729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-21 | [Iceberg flutuando na Antártica Ocidental, oceano Antártico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_PT-BR4679375878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

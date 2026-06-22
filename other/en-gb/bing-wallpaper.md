@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [Quinault rainforest, Olympic National Park, Washington, United States (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_EN-GB3562324915_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://www.bing.com/th?id=OHR.EggDad_EN-GB2308215035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_EN-GB1807420935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

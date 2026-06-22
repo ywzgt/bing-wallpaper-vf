@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)](https://www.bing.com/th?id=OHR.SeineRiverside_FR-FR9034174472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_FR-FR8603937918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

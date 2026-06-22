@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-22 | [Foresta pluviale di Quinault, parco nazionale Olympic, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-21 | [Barche a vela tradizionali, Porto Canale Leonardesco, Cesenatico, Emilia-Romagna (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.Cesenatico_IT-IT1478062900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-20 | [Iceberg, costa occidentale della penisola Antartica, oceano Antartico (© Steven Kazlowski/Nature Picture Library)](https://www.bing.com/th?id=OHR.ArchedIceberg_IT-IT9191790217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
