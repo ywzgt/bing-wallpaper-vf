@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-23 | [Fuegos artificiales en la Noche de San Juan (© rui_noronha/Getty Images)](https://www.bing.com/th?id=OHR.SanJuanFuegos_ES-ES0457674498_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-22 | [Selva tropical de Quinault, parque nacional Olympic, estado de Washington, EE. UU. (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_ES-ES0176872139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-21 | [Monte Fuji en la isla de Honshu, Japón (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_ES-ES0010704933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
