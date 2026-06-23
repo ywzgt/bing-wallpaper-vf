@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-24 | [花の蜜を味わう蝶 (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_JA-JP2026844024_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-23 | [キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_JA-JP6908853562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-22 | [富士山 (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_JA-JP1483326201_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
