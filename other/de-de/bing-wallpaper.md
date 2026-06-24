@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-24 | [Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_DE-DE1648202484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-23 | [Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-22 | [Quinault‑Regenwald im Olympic‑Nationalpark, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_DE-DE3985266590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

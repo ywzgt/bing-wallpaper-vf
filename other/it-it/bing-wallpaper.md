@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-24 | [Farfalla che impollina un fiore giallo (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-23 | [Monte Fuji, Honshu, Giappone (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_IT-IT7252704388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-22 | [Foresta pluviale di Quinault, parco nazionale Olympic, Washington, USA (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_IT-IT2013381547_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-24 | [Papillon sur une fleur jaune (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-23 | [Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_FR-FR9764365414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-22 | [Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.QuinaultFerns_FR-FR2142936548_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
