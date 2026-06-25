@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-25 | [Gebäude am Grand-Place in Brüssel, Belgien (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_DE-DE1914769137_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-24 | [Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_DE-DE1648202484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-23 | [Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)](https://www.bing.com/th?id=OHR.Fujisan_DE-DE4332870275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
