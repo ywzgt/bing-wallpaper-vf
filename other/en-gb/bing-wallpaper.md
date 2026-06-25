@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-25 | [Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-GB4788838849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-25 | [Buildings on Grand-Place Square in Brussels, Belgium (�� Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-GB4788838849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-24 | [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_EN-GB9787494533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
