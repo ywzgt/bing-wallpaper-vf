@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-27 | [Integrantes do Bloco Boi Faceiro na celebração do bumba-meu-boi, São Caetano de Odivelas, Pará (© Pedro Vilela/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.Parintins_PT-BR8364769128_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-26 | [Parque Ibirapuera, São Paulo, estado de São Paulo (© Brasil2/Getty Images)](https://www.bing.com/th?id=OHR.IbiSP_PT-BR5842175553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-25 | [Borboleta polinizando uma flor amarela (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_PT-BR5634257849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

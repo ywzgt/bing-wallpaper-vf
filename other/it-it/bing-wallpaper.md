@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-26 | [Il fiume Tamigi, Londra, Inghilterra (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_IT-IT7472747077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-25 | [Edifici sulla Grand-Place a Bruxelles, Belgio (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_IT-IT4483523148_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-24 | [Farfalla che impollina un fiore giallo (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_IT-IT1968773839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

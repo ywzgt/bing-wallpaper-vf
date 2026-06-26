@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-26 | [El río Támesis, Londres, Inglaterra (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_ES-ES8043595451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-25 | [Edificios de la Grand Place de Bruselas, Bélgica (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_ES-ES0768815464_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-24 | [Mariposa polinizando una flor amarilla (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_ES-ES0605051254_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

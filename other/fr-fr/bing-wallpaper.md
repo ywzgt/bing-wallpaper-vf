@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-26 | [La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_FR-FR5709336854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-25 | [Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_FR-FR1172312712_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-24 | [Papillon sur une fleur jaune (© lzh/Getty Images)](https://www.bing.com/th?id=OHR.BFPollin_FR-FR2895321472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
