@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-27 | [あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2026_JA-JP5953428145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-26 | [テムズ川, イングランド ロンドン (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_JA-JP5302199333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-25 | [ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)](https://www.bing.com/th?id=OHR.LavenderSeason2026_JA-JP7050134160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
