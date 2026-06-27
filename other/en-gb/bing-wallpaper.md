@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-27 | [Driftwood on Boneyard Beach, Hunting Island, South Carolina, United States (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_EN-GB1157661849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-26 | [The River Thames, London (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_EN-GB9133126004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-25 | [Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)](https://www.bing.com/th?id=OHR.GrandPlace_EN-GB4788838849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
