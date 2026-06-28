@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-28 | [Saguaro-Kakteen nahe dem Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_DE-DE9702644922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-27 | [Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_DE-DE9270031466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-26 | [Themse, London, England (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_DE-DE5848189110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

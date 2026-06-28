@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-28 | [Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_FR-FR5935266298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-27 | [Bois flotté sur la plage de Beaufort, Hunting Island, Caroline du Sud, États-Unis (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_FR-FR6517949092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-26 | [La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)](https://www.bing.com/th?id=OHR.ThamesSummer_FR-FR5709336854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
