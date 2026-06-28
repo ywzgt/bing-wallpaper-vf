@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-29 | [ボラボラ島, フランス領ポリネシア (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_JA-JP3981162879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-28 | [ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_JA-JP5856249761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-27 | [あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)](https://www.bing.com/th?id=OHR.Ajisai2026_JA-JP5953428145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
