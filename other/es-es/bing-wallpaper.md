@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-29 | [Bora Bora y su laguna, Pacífico Sur, Polinesia Francesa (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_ES-ES4364920301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-28 | [Chueca, Madrid, España (© MarioMonte/Getty Images)](https://www.bing.com/th?id=OHR.PrideChueca_ES-ES4043385731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-27 | [Árboles a la deriva en Boneyard Beach, Hunting Island, Carolina del Sur, EE. UU. (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_ES-ES1143251949_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

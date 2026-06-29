@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-29 | [Bora Bora und ihre Lagune, Südpazifik, Französisch-Polynesien (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_DE-DE4940738686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-28 | [Saguaro-Kakteen nahe dem Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_DE-DE9702644922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-27 | [Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_DE-DE9270031466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

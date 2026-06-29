@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-30 | [Bora Bora e sua lagoa, Pacífico Sul, Polinésia Francesa (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_PT-BR8111630763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-29 | [Cactos-saguaro perto de Windgate Pass, cordilheira McDowell, Arizona, Estados Unidos (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_PT-BR3626457853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-28 | [Troncos na Boneyard Beach, Hunting Island, Carolina do Sul, Estados Unidos (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_PT-BR8811510135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
