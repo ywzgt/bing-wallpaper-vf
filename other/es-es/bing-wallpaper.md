@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-30 | [Jirafas al atardecer en la Reserva Nacional Masai Mara, Kenia (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_ES-ES0604244262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-29 | [Bora Bora y su laguna, Pacífico Sur, Polinesia Francesa (© Frederick Millett/Shutterstock)](https://www.bing.com/th?id=OHR.BoraBoraLagoon_ES-ES4364920301_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-28 | [Chueca, Madrid, España (© MarioMonte/Getty Images)](https://www.bing.com/th?id=OHR.PrideChueca_ES-ES4043385731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

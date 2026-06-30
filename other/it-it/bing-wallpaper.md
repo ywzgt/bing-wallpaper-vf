@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-06-30 | [Giraffe al tramonto nella Riserva Nazionale Masai Mara, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_IT-IT8100161271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-29 | [Castel Sant’Angelo, Roma (© Domenico Cippitelli/NurPhoto via Getty Images)](https://www.bing.com/th?id=OHR.SanPietroPaolo_IT-IT6089431696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-28 | [Cactus Saguaro vicino al Passo Windgate, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)](https://www.bing.com/th?id=OHR.SaguaroSun_IT-IT8055685927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
