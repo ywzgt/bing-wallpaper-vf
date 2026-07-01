@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-01 | [Parco provinciale di Dungeon, Terranova e Labrador, Canada (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_IT-IT0964634478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-30 | [Giraffe al tramonto nella Riserva Nazionale Masai Mara, Kenya (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_IT-IT8100161271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-29 | [Castel Sant’Angelo, Roma (© Domenico Cippitelli/NurPhoto via Getty Images)](https://www.bing.com/th?id=OHR.SanPietroPaolo_IT-IT6089431696_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
