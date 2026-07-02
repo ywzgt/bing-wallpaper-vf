@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-03 | [ボニーヤード・ビーチ, 米国 サウスカロライナ州 (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_JA-JP3339035555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-02 | [クヌム神に捧げられたエスナ神殿の天井, エジプト (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_JA-JP0629204284_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-01 | [ダンジョン州立公園, カナダ (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_JA-JP3903067497_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
