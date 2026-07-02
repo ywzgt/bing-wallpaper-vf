@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-02 | [Techo del Templo de Jnum en Esna, Egipto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_ES-ES5295149663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-01 | [Dungeon Provincial Park, Terranova y Labrador, Canadá (© Kaitlyn McLachlan/Getty Images)](https://www.bing.com/th?id=OHR.DungeonPark_ES-ES4904785525_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-30 | [Jirafas al atardecer en la Reserva Nacional Masai Mara, Kenia (© danm/Getty Images)](https://www.bing.com/th?id=OHR.MasaiGiraffe_ES-ES0604244262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
