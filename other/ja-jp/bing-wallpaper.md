@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-05 | [ヴァランソール高原, フランス (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_JA-JP9275300496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-04 | [イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_JA-JP8375436996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-03 | [ボニーヤード・ビーチ, 米国 サウスカロライナ州 (© Frances/Adobe Stock)](https://www.bing.com/th?id=OHR.BoneyardBeach_JA-JP3339035555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
