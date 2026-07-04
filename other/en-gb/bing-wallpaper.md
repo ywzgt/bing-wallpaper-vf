@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-04 | [London (© TomasSereda/Getty Images)](https://www.bing.com/th?id=OHR.PrideInLondon2026_EN-GB7157270875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-03 | [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-GB8401520779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-02 | [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_EN-GB9683013446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

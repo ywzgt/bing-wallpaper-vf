@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-04 | [Soffitto del Tempio di Khnum ad Esna, Egitto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_IT-IT9484438188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-03 | [Lucciole che brillano sopra un ruscello, Prefettura di Okayama, Giappone (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_IT-IT1298859269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-02 | [Palio di Siena, Italia (© Dave Benett/Getty Images)](https://www.bing.com/th?id=OHR.SienaPalioToscana_IT-IT6720555051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

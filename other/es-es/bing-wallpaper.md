@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-04 | [Kaysersberg, Alsacia, Francia (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_ES-ES2312486084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-03 | [Luciérnagas brillando sobre un arroyo, prefectura de Okayama, Japón (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_ES-ES5556389569_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-02 | [Techo del Templo de Jnum en Esna, Egipto (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.TempleEsna_ES-ES5295149663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
