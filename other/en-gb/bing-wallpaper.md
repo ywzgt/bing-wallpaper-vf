@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-05 | [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-GB8618053489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-04 | [London (© TomasSereda/Getty Images)](https://www.bing.com/th?id=OHR.PrideInLondon2026_EN-GB7157270875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-03 | [Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)](https://www.bing.com/th?id=OHR.FirefliesJapan_EN-GB8401520779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
