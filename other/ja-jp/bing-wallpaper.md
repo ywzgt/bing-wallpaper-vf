@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-06 | [シラクサ, イタリア (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_JA-JP9524720514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-05 | [ヴァランソール高原, フランス (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_JA-JP9275300496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-04 | [イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_JA-JP8375436996_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
