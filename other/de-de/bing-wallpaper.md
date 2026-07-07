@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-07 | [Leistenschnabeltukan mit Orchideen, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_DE-DE0710570038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-06 | [Syrakus bei Sonnenuntergang, Sizilien, Italien (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_DE-DE7459831277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-05 | [Lavendelfelder, Plateau de Valensole, Provence, Frankreich (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_DE-DE5950929230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

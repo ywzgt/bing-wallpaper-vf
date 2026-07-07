@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-07 | [Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)](https://www.bing.com/th?id=OHR.MountainToucanOrchids_EN-GB2911291133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-06 | [Syracuse, Sicily, Italy (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_EN-GB9688094986_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-05 | [Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_EN-GB8618053489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

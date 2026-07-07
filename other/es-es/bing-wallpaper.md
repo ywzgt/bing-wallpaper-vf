@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-07 | [Vista aérea del paisaje urbano y las dunas de arena en Maspalomas, Gran Canaria, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.GranCanaria_ES-ES7578658409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-06 | [Siracusa al atardecer, Sicilia, Italia (© Balate Dorin/Getty Images)](https://www.bing.com/th?id=OHR.SyracuseItaly_ES-ES6910557655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-05 | [Plantaciones de lavanda, Plateau de Valensole, Provenza, Francia (© Robert Harding/Shutterstock)](https://www.bing.com/th?id=OHR.LavenderRows_ES-ES6518419327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
