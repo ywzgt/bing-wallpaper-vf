@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-09 | [サパの棚田, ベトナム (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_JA-JP3354489397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-08 | [アティトラン湖, グアテマラ (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_JA-JP9857275970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-07 | [七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)](https://www.bing.com/th?id=OHR.Tanabata2026_JA-JP9678732410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
