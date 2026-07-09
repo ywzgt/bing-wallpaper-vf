@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-10 | [ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_JA-JP5622574083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-09 | [サパの棚田, ベトナム (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_JA-JP3354489397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-08 | [アティトラン湖, グアテマラ (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_JA-JP9857275970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
