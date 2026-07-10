@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-10 | [Veduta aerea di terra e oceano, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_IT-IT7530420052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-09 | [Risaie a Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_IT-IT8377161369_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-08 | [Lago Atitlán, Guatemala (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.LakeAtitlan_IT-IT2695003451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
