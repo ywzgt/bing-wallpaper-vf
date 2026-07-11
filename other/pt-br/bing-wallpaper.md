@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-12 | [Porto de Saint-Goustan, Auray, Bretanha, França (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-11 | [Vista aérea da costa de Vitória, Austrália (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-10 | [Campos de arroz em Sapa, província de Lào Cai, Vietnã (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_PT-BR6337399774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

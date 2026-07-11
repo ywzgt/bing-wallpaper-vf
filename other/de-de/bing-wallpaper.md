@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-11 | [Hafen von Saint-Goustan, Auray, Bretagne, Frankreich (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_DE-DE3196003934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-10 | [Luftaufnahme von Land und Meer, Victoria, Australien (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_DE-DE7288099938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-09 | [Reisfelder in Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://www.bing.com/th?id=OHR.SapaVietnam_DE-DE8741456092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
