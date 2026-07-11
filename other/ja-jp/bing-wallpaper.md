@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-12 | [カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_JA-JP6177719073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-11 | [サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_JA-JP5965695214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-10 | [ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_JA-JP5622574083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
