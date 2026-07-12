@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-13 | [Monumento Nacional Katahdin Woods and Waters, Maine, Estados Unidos (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_PT-BR2485169040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-12 | [Porto de Saint-Goustan, Auray, Bretanha, França (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_PT-BR2396626414_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-11 | [Vista aérea da costa de Vitória, Austrália (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_PT-BR0308396736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
