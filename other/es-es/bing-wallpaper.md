@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-13 | [Antelope Canyon en la Nación Navajo, al este de Page, Arizona, EE. UU. (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_ES-ES1041732911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-12 | [Monumento Nacional Katahdin Woods and Waters, Maine, EE. UU.  (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_ES-ES0827560100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-11 | [Puerto de Saint-Goustan, Auray, Bretaña, Francia (© Rolf E. Staerk/Shutterstock)](https://www.bing.com/th?id=OHR.AurayBrittany_ES-ES0686964132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

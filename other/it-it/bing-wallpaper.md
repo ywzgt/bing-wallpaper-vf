@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-13 | [Antelope Canyon sulla Nazione Navajo, a est di Page, Arizona, USA (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_IT-IT0263432431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-12 | [Il Monumento Nazionale Katahdin Woods and Waters, Maine, USA (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_IT-IT7750657395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-11 | [Veduta aerea di Isola Bella a Taormina, Sicilia, Italia (© DaLiu/iStock/Getty Images)](https://www.bing.com/th?id=OHR.IsolaBella_IT-IT9517303219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
