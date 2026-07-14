@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-15 | [マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_JA-JP9898730602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-14 | [レモンザメの幼魚, バハマ (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_JA-JP9266528977_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-13 | [アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_JA-JP6458327046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
