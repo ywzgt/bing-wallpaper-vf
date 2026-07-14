@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-14 | [Cucciolo di squalo limone nella foresta di mangrovie, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_IT-IT7940960388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-13 | [Antelope Canyon sulla Nazione Navajo, a est di Page, Arizona, USA (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_IT-IT0263432431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-12 | [Il Monumento Nazionale Katahdin Woods and Waters, Maine, USA (© Cavan Images/Offset/Shutterstock)](https://www.bing.com/th?id=OHR.KatahdinWWNM_IT-IT7750657395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
