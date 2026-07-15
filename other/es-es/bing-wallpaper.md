@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-15 | [Marie Lake, Área silvestre John Muir cerca de Bishop, California, EE. UU. (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_ES-ES0302365880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-14 | [Tiburón limón en bosque de manglares, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_ES-ES9243591847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-13 | [Antelope Canyon en la Nación Navajo, al este de Page, Arizona, EE. UU. (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_ES-ES1041732911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-15 | [Marie Lake, John Muir Wilderness, nahe Bishop, Kalifornien, USA (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_DE-DE6487639165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-14 | [Zitronenhai-Jungtier im Mangrovenwald, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_DE-DE6087754416_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-13 | [München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)](https://www.bing.com/th?id=OHR.MunichTwilight_DE-DE5540064188_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

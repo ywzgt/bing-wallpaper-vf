@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-15 | [Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-GB7432567016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-14 | [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_EN-GB6406610577_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-13 | [Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)](https://www.bing.com/th?id=OHR.NavajoSandstone_EN-GB4980697300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
