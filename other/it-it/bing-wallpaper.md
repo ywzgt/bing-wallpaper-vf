@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-16 | [Navy Pier, Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_IT-IT8293754052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-15 | [Marie Lake, Area selvaggia John Muir vicino a Bishop, California, USA (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_IT-IT8390636002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-14 | [Cucciolo di squalo limone nella foresta di mangrovie, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_IT-IT7940960388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

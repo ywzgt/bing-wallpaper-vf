@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-16 | [Cerf sika dans l’herbe, parc de Merlet, Haute-Savoie (© porojnicu/Getty Images)](https://www.bing.com/th?id=OHR.DeerGrass_FR-FR3634474861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-15 | [Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://www.bing.com/th?id=OHR.LemonShark_FR-FR4291742004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-14 | [Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)](https://www.bing.com/th?id=OHR.BastilleSacreCoeur_FR-FR3878699722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
