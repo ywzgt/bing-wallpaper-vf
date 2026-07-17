@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-17 | [Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_EN-GB3361752741_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-16 | [Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://www.bing.com/th?id=OHR.VictoriaBeach_EN-GB5330505184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-15 | [Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_EN-GB7432567016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

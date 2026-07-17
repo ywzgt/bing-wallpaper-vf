@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-17 | [Vía Láctea y meteoros de las Perseidas sobre el Teide, Observatorio Astronómico de Izaña, Tenerife, Islas Canarias (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ES-ES7757979261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-16 | [Muelle de la Armada, Chicago, Illinois, EE. UU. (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_ES-ES1489693745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-15 | [Marie Lake, Área silvestre John Muir cerca de Bishop, California, EE. UU. (© Steve Dunleavy/Getty Images)](https://www.bing.com/th?id=OHR.MarieLake_ES-ES0302365880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-18 | [Andorinhas-das-chaminés de diferentes subespécies pousadas juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-17 | [Navy Pier, Chicago, Illinois, Estados Unidos (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_PT-BR4218227814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-16 | [Saíra-sete-cores pousada em um galho em São Paulo (© Juan Carlos Vindas/Getty Images)](https://www.bing.com/th?id=OHR.Tanager_PT-BR3453059902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
