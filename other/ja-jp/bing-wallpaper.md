@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-19 | [ツバメ (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_JA-JP1327555795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-18 | [ラコツ橋, ドイツ (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_JA-JP0713285567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-17 | [八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)](https://www.bing.com/th?id=OHR.GionFestival2026_JA-JP0488381919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
