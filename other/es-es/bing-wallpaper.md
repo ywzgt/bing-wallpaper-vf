@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-18 | [Puente Rakotzbrücke en Rhododendronpark Kromlau, Sajonia, Alemania (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_ES-ES8242183956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-17 | [Vía Láctea y meteoros de las Perseidas sobre el Teide, Observatorio Astronómico de Izaña, Tenerife, Islas Canarias (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ES-ES7757979261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-16 | [Muelle de la Armada, Chicago, Illinois, EE. UU. (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_ES-ES1489693745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

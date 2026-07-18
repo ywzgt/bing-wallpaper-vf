@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-19 | [Ponte do Diabo no Parque dos Rododendros de Kromlau, Saxônia, Alemanha (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-18 | [Andorinhas-das-chaminés de diferentes subespécies pousadas juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_PT-BR5068728715_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-17 | [Navy Pier, Chicago, Illinois, Estados Unidos (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_PT-BR4218227814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-18 | [Rakotzbrücke in Kromlau, Sachsen (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_DE-DE6987454445_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-17 | [Liegestühle am Sandstrand von Vai, Kreta, Griechenland (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_DE-DE2887576952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-16 | [Navy Pier in Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_DE-DE6672447932_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

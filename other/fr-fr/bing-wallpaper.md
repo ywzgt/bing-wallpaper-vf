@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-18 | [Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_FR-FR5259113427_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-17 | [Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_FR-FR3414218342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-16 | [Cerf sika dans l’herbe, parc de Merlet, Haute-Savoie (© porojnicu/Getty Images)](https://www.bing.com/th?id=OHR.DeerGrass_FR-FR3634474861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

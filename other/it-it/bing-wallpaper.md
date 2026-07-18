@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-18 | [Le case colorate di Burano, Venezia, Veneto, Italia (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-17 | [Ombrelloni blu su una spiaggia sabbiosa a Vai, Creta, Grecia (© borchee/Getty Images)](https://www.bing.com/th?id=OHR.VaiUmbrellas_IT-IT8454370780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-16 | [Navy Pier, Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)](https://www.bing.com/th?id=OHR.NavyPier_IT-IT8293754052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
