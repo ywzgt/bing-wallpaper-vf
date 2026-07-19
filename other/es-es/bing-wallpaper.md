@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-19 | [Golondrinas descansando juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_ES-ES1865458756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-18 | [Puente Rakotzbrücke en Rhododendronpark Kromlau, Sajonia, Alemania (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_ES-ES8242183956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-17 | [Vía Láctea y meteoros de las Perseidas sobre el Teide, Observatorio Astronómico de Izaña, Tenerife, Islas Canarias (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_ES-ES7757979261_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
