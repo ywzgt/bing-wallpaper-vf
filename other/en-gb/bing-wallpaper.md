@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-20 | [Moon and Earth captured by the Artemis II crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_EN-GB4404068677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-19 | [Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_EN-GB4164429315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-18 | [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_EN-GB3657419694_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

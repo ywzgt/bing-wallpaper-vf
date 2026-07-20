@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-20 | [Luna e Terra catturate dall'equipaggio di Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_IT-IT9087187961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-19 | [Rondini di diverse sottospecie che riposano insieme (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_IT-IT8852691530_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-18 | [Le case colorate di Burano, Venezia, Veneto, Italia (© Nick Brundle Photography/Getty Images)](https://www.bing.com/th?id=OHR.FestaVenezia_IT-IT8709585056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

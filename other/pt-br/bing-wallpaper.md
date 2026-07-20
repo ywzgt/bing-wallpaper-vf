@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-21 | [Lua e Terra fotografadas pela tripulação da missão Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-20 | [Vista aérea de jovens jogando futebol em um campo de terra em uma comunidade do Rio de Janeiro, RJ (© Tom Wilde/Getty Images)](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-19 | [Ponte do Diabo no Parque dos Rododendros de Kromlau, Saxônia, Alemanha (© Mike Mareen/Getty Images)](https://www.bing.com/th?id=OHR.DevilsBridge_PT-BR5443302606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
