@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-21 | [Arco de Santa Catalina in Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_DE-DE7681660306_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-20 | [Mond und Erde, aufgenommen von der Artemis-II-Crew (© NASA)](https://www.bing.com/th?id=OHR.Artemis_DE-DE7510070152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-19 | [Rauchschwalben verschiedener Unterarten auf gemeinsamer Rast (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_DE-DE7127271974_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

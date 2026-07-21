@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-22 | [Arco de Santa Catalina, Antígua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_PT-BR6725083050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-21 | [Lua e Terra fotografadas pela tripulação da missão Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_PT-BR6100754238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-20 | [Vista aérea de jovens jogando futebol em um campo de terra em uma comunidade do Rio de Janeiro, RJ (© Tom Wilde/Getty Images)](https://www.bing.com/th?id=OHR.SoccerDay_PT-BR5859476382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

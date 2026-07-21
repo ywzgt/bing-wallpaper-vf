@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-21 | [Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_FR-FR5835984495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-20 | [La Lune et la Terre capturées par l'équipage d'Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_FR-FR5561744161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-19 | [Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_FR-FR5403619513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-21 | [Vista aérea de Isla Cristina en Huelva, Andalucía, España (© MEDITERRANEAN/Getty Images)](https://www.bing.com/th?id=OHR.IslaCristina_ES-ES8480409312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-20 | [Luna y Tierra capturadas por la tripulación Artemis II (© NASA)](https://www.bing.com/th?id=OHR.Artemis_ES-ES9353344735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-19 | [Golondrinas descansando juntas (© Oscar Dominguez/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.HirundoRustica_ES-ES1865458756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
