@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-22 | [サンゴ礁, インドネシア (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_JA-JP2408708579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-21 | [川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)](https://www.bing.com/th?id=OHR.Kawagoe2026_JA-JP2060864918_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-20 | [月から見た地球 (© NASA)](https://www.bing.com/th?id=OHR.Artemis_JA-JP1736021856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
