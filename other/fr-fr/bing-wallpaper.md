@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-23 | [Dahlia rose (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_FR-FR6134462708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-22 | [Récif corallien et plage de Raja Ampat, Indonésie (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_FR-FR4288203085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-21 | [Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_FR-FR5835984495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
