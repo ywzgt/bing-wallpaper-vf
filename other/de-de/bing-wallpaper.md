@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-24 | [Schwarm von Kubaflamingos, Insel Isabela, Galápagos-Inseln, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_DE-DE1918476943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-23 | [Rosafarbene Dahlie (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_DE-DE7886541218_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-22 | [Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.EibseeSummer_DE-DE7644945564_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

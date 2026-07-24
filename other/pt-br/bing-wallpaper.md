@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-25 | [Bando de flamingos-americanos, Ilha Isabela, Ilhas Galápagos, Equador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_PT-BR5022467535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-24 | [Dália rosa (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_PT-BR7612133818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-23 | [Recife de coral e praia em Raja Ampat, Indonésia (© SergeUWPhoto/Shutterstock)](https://www.bing.com/th?id=OHR.CoralAwareness_PT-BR7463277144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
