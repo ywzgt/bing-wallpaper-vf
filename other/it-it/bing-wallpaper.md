@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-25 | [Il Faro Mangiabarche, Sant'Antioco, Sulcis, Sardegna (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.SardegnaFaro_IT-IT8009785446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-24 | [Stormo di fenicotteri americani, Isola Isabela, Isole Galápagos, Ecuador (© Tui De Roy/Nature Picture Library)](https://www.bing.com/th?id=OHR.GalapagosFlamingos_IT-IT7890055647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-23 | [Fiore di Dalia rosa (© Harald Biebel/Getty Images)](https://www.bing.com/th?id=OHR.PinkDahlia_IT-IT4710141441_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
