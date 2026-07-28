@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-28 | [Un bosque de algas cerca de la isla Anacapa, Parque Nacional de las Islas del Canal, California, EE. UU.  (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_ES-ES2666922160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-27 | [Veleros cerca de las Islas Cíes en Galicia, España (© AndresGarciaM/Getty Images)](https://www.bing.com/th?id=OHR.GaliciaSpain_ES-ES2553115650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-26 | [Amanecer en un mangle rojo en los Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ES-ES2463781861_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

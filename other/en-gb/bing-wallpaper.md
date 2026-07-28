@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-28 | [A kelp forest off Anacapa Island, Channel Islands National Park, California, United States (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_EN-GB5530574227_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-27 | [Tiffany Dome, Chicago Cultural Center, Illinois, United States (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_EN-GB5292533317_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-26 | [Red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_EN-GB5065847965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

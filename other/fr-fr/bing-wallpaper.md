@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-28 | [Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_FR-FR7114923921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-27 | [Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)](https://www.bing.com/th?id=OHR.VerdonKayaks_FR-FR6935931270_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-26 | [Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_FR-FR6736116710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

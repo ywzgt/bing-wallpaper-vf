@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-29 | [Floresta de kelp perto da Ilha Anacapa, Parque Nacional das Ilhas do Canal, Califórnia, Estados Unidos (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_PT-BR8544444735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-28 | [Cúpula Tiffany, Centro Cultural de Chicago, Illinois, Estados Unidos (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_PT-BR8094909459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-27 | [Nascer do sol sobre um mangue-vermelho em Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_PT-BR7414229565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

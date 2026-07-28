@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-28 | [Una foresta di alghe al largo dell'isola di Anacapa, Parco Nazionale delle Isole del Canale, California, USA (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_IT-IT8356704681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-27 | [Spiaggia delle Cattedrali, Galizia, Spagna (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)](https://www.bing.com/th?id=OHR.GaliciaBeach_IT-IT8238080614_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-26 | [Alba su una mangrovia rossa nei Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.RedMangroveSunrise_IT-IT8134664377_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
