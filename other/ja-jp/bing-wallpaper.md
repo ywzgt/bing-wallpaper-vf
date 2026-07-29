@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-30 | [モニュメント・バレー, 米国 アリゾナ州 (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_JA-JP5174852282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-29 | [ベンガルトラの家族, インド (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_JA-JP4965219864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-28 | [ケゼルスベール, フランス (© Federica Gentile/Getty Images)](https://www.bing.com/th?id=OHR.KaysersbergVillage_JA-JP4774929635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
