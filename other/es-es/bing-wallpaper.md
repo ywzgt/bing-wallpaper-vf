@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-29 | [Una familia de tigres de Bengala en el Parque Nacional de Ranthambore, Rajasthan, India (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_ES-ES8935295288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-28 | [Un bosque de algas cerca de la isla Anacapa, Parque Nacional de las Islas del Canal, California, EE. UU.  (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_ES-ES2666922160_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-27 | [Veleros cerca de las Islas Cíes en Galicia, España (© AndresGarciaM/Getty Images)](https://www.bing.com/th?id=OHR.GaliciaSpain_ES-ES2553115650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

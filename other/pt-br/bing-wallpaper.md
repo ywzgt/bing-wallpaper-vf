@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-30 | [Família de tigres-de-bengala no Parque Nacional de Ranthambore, Rajastão, Índia (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_PT-BR8805441851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-29 | [Floresta de kelp perto da Ilha Anacapa, Parque Nacional das Ilhas do Canal, Califórnia, Estados Unidos (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.ChannelKelp_PT-BR8544444735_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-28 | [Cúpula Tiffany, Centro Cultural de Chicago, Illinois, Estados Unidos (© Felix Lipov/Shutterstock)](https://www.bing.com/th?id=OHR.ChicagoTiffany_PT-BR8094909459_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
