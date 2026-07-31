@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-01 | [変わり種の金魚ねぷた, 青森県 弘前市 (© David Parker/Alamy)](https://www.bing.com/th?id=OHR.HirosakiNeputa2026_JA-JP5726503053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-31 | [バージニア・クリーパー・トレイル, 米国 バージニア州 (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_JA-JP5506669178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-30 | [モニュメント・バレー, 米国 アリゾナ州 (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_JA-JP5174852282_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
