@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-31 | [Cielo colorato al tramonto sopra barche a vela ormeggiate, Isole Eolie, Messina, Sicilia, Italia (© Paolo Graziosi/E+/Getty Images)](https://www.bing.com/th?id=OHR.IsoleEolie_IT-IT8736401041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-30 | [Monument Valley, Nazione Navajo, Arizona, USA (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_IT-IT8632328338_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-29 | [Una famiglia di tigri del Bengala al Parco Nazionale di Ranthambore, Rajasthan, India (© Archna Singh/Shutterstock)](https://www.bing.com/th?id=OHR.TigerFamily_IT-IT8529991341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
