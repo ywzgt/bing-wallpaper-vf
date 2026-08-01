@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-01 | [Eine Reihe von Lavaströmen mündet ins Meer, Big Island, Hawaii, USA (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-31 | [Luftaufnahme des Virginia Creeper Trail in Damascus, Virginia, USA (© Eifel Kreutz/Getty Images)](https://www.bing.com/th?id=OHR.VirginiaTrail_DE-DE3922991438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-30 | [Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)](https://www.bing.com/th?id=OHR.BearBavaria_DE-DE3681217161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

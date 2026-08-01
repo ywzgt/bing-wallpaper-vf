@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-01 | [Arco de Santa Catalina, Antigua Guatemala, Guatemala (© Filippo Maria Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SantaCatalina_ES-ES2186596110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-07-31 | [Flamencos en el Delta del Ebro, Tarragona, España (© mafrmcfa/Getty Images)](https://www.bing.com/th?id=OHR.DeltaEbro_ES-ES3023885514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-30 | [El Valle de los Monumentos, Nación Navajo, Arizona, EE. UU. (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.NavajoNation_ES-ES2923536313_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
