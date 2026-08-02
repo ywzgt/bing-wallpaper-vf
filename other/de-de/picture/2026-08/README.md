@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-08)
-![](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&w=1000)Today: [Eine Reihe von Lavaströmen mündet ins Meer, Big Island, Hawaii, USA (© Ken McCurdy/Getty Images)](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&w=1000)Today: [Helsinkis Küste zur blauen Stunde, Uusimaa, Finnland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-02 [download 4k](https://www.bing.com/th?id=OHR.HelsinkiBlue_DE-DE4461850043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-08-01 [download 4k](https://www.bing.com/th?id=OHR.HawaiiLava_DE-DE4111997666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
