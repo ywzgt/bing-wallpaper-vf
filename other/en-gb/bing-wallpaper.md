@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-04 | [Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-GB7610468145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-03 | [Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-GB7267750671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-02 | [Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_EN-GB6980168660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

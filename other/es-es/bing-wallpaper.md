@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-04 | [Lechucita de las vizcacheras, Cape Coral, Florida, EE. UU. (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_ES-ES3577552692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-03 | [Barcos coloridos en el puerto de Marsaxlokk, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_ES-ES3454206365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-02 | [La costa de Helsinki durante la hora azul, Uusimaa, Finlandia (© Miemo Penttinen/Getty Images)](https://www.bing.com/th?id=OHR.HelsinkiBlue_ES-ES3341783633_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
