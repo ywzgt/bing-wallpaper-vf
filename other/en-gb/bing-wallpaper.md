@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-05 | [Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_EN-GB7904978053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-04 | [Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_EN-GB7610468145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-03 | [Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_EN-GB7267750671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

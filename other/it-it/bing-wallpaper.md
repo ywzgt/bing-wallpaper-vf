@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-05 | [Porta decorata del Palazzo Reale di Fès, Marocco (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_IT-IT9988975389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-04 | [La civetta delle tane, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_IT-IT9869422851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-03 | [Barche colorate nel porto di Marsaxlokk, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_IT-IT9782215973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

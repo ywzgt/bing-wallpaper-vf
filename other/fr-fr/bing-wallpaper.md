@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-05 | [Porte décorée du Palais Royal de Fès, Maroc (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_FR-FR8577168535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-04 | [Jeune chouette des terriers de Floride, Cape Coral, Floride, États-Unis (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_FR-FR9479841561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-03 | [Bateaux colorés dans le port de Marsaxlokk, Malte (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_FR-FR8096449869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

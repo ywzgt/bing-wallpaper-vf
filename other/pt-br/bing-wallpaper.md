@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-06 | [Porta decorada do Palácio Real de Fez, Marrocos (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_PT-BR3389215453_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-05 | [Coruja-buraqueira-da-flórida em Cape Coral, Flórida, Estados Unidos (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_PT-BR1823558935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-04 | [Barcos coloridos no porto de Marsaxlokk, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_PT-BR0574655720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-05 | [Verziertes Tor des Königspalasts von Fès, Marokko (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_DE-DE5645521719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-04 | [Florida-Kanincheneule, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)](https://www.bing.com/th?id=OHR.AdorableOwlet_DE-DE5484057022_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-03 | [Bunte Boote im Hafen von Marsaxlokk, Malta (© Klubovy/Getty Images)](https://www.bing.com/th?id=OHR.BoatsMalta_DE-DE5376700732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
