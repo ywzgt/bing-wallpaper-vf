@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-07 | [ライム・キルン灯台, 米国 ワシントン州 (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_JA-JP2506397292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-06 | [広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)](https://www.bing.com/th?id=OHR.HiroshimaPeaceMemorial2026_JA-JP7778121397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-05 | [フェズ王宮, モロッコ (© cgst26/Shutterstock)](https://www.bing.com/th?id=OHR.FezMorocco_JA-JP7567982886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
