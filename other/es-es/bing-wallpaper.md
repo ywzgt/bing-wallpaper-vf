@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-08 | [Puente del Infinito en Stockton-on-Tees, Inglaterra (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_ES-ES5321261606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-07 | [Faro Lime Kiln en la isla San Juan, Washington, EE. UU. (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_ES-ES1360502485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-06 | [Ñus migratorios cruzando el río Mara en Masai Mara, Kenia (© Manoj Shah/Getty Images)](https://www.bing.com/th?id=OHR.MaraCrossing_ES-ES3801561108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

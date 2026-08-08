@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-08 | [Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)](https://www.bing.com/th?id=OHR.ClothesBarjols_FR-FR4425384248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-07 | [Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_FR-FR4291809013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-06 | [Gnous migrateurs traversant la rivière Mara dans la réserve de Masai Mara, au Kenya (© Manoj Shah/Getty Images)](https://www.bing.com/th?id=OHR.MaraCrossing_FR-FR8762325537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-08 | [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_EN-GB3847788744_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-07 | [Hot air balloons above Bristol city centre, England (© Rich Jones Photography/Moment/Getty Images)](https://www.bing.com/th?id=OHR.BristolBalloonFiesta2026_EN-GB3752871643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-06 | [Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)](https://www.bing.com/th?id=OHR.MaraCrossing_EN-GB8480696688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
