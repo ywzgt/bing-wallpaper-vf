@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-09 | [チバウ文化センター, ニューカレドニア (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_JA-JP3637480935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-08 | [インフィニティ・ブリッジ, イングランド (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_JA-JP6357248728_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-07 | [ライム・キルン灯台, 米国 ワシントン州 (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_JA-JP2506397292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
