@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-09 | [Infinity Bridge, Stockton-on-Tees, Inglaterra (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_PT-BR1264731427_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-08 | [Farol de Lime Kiln, Ilha San Juan, Washington, Estados Unidos (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_PT-BR0696520524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-07 | [Migração de gnus cruzando o Rio Mara na Reserva Nacional Masai Mara, Quênia (© Manoj Shah/Getty Images)](https://www.bing.com/th?id=OHR.MaraCrossing_PT-BR3865870931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
