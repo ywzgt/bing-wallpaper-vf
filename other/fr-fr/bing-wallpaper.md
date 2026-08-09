@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-09 | [Centre culturel Tjibaou, Nouvelle-Calédonie (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_FR-FR6204350565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-08 | [Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)](https://www.bing.com/th?id=OHR.ClothesBarjols_FR-FR4425384248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-07 | [Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_FR-FR4291809013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

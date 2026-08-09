@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-09 | [Tjibaou-Kulturzentrum, Neukaledonien (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_DE-DE7677372250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-08 | [Rhein in Flammen vor Schloss Stolzenfels bei Koblenz, Rheinland-Pfalz (© Jule_Berlin/Shutterstock)](https://www.bing.com/th?id=OHR.RhineFlames_DE-DE7527393403_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-07 | [Leuchtturm Lime Kiln auf San Juan Island, Washington, USA (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_DE-DE5407156308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
