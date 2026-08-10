@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-11 | [Golfinhos-rotadores no mar azul de Fernando de Noronha, Pernambuco (© cabuscaa/Getty Images)](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-10 | [Centro Cultural Jean-Marie Tjibaou, Nouméa, Nova Caledônia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_PT-BR1657011012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-09 | [Infinity Bridge, Stockton-on-Tees, Inglaterra (© Bahadir Yeniceri/Shutterstock)](https://www.bing.com/th?id=OHR.StocktonInfinity_PT-BR1264731427_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
