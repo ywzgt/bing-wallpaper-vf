@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-11 | [Case colorate lungo il Canale di Nyhavn, Copenaghen, Danimarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_IT-IT3126463813_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-10 | [Il Lago di Carezza nelle Dolomiti all'alba, Bolzano, Italia (© Putt Sakdhnagool/Moment/Getty Images)](https://www.bing.com/th?id=OHR.DolomitiAgosto_IT-IT3030401591_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-09 | [Jean-Marie Tjibaou Cultural Centre, Nuova Caledonia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_IT-IT2902729380_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
