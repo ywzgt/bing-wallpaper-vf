@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-12 | [ゾウの群れ, ケニア (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_JA-JP5660368264_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-11 | [日本アルプス (© Sergey Alimov/Getty Images)](https://www.bing.com/th?id=OHR.MountainDay2026_JA-JP4675980762_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-10 | [ニューハウン, デンマーク (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_JA-JP4331289983_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
