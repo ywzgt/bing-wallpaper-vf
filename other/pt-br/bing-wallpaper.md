@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-12 | [Real Gabinete Português de Leitura, Rio de Janeiro, Rio de Janeiro (© Pulsar Imagens/Alamy)](https://www.bing.com/th?id=OHR.StuDay_PT-BR3798231635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-11 | [Golfinhos-rotadores no mar azul de Fernando de Noronha, Pernambuco (© cabuscaa/Getty Images)](https://www.bing.com/th?id=OHR.Golfinhos_PT-BR2634808905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-10 | [Centro Cultural Jean-Marie Tjibaou, Nouméa, Nova Caledônia (© Fabien Astre/Alamy)](https://www.bing.com/th?id=OHR.JMTjibaou_PT-BR1657011012_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
