@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-12 | [Eine Elefantengruppe im Amboseli-Nationalpark, Kenia (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_DE-DE9475374565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-11 | [Bunte Häuser säumen den Nyhavn-Kanal in Kopenhagen, Dänemark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_DE-DE9077062253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-10 | [Joshua-Tree-Nationalpark, Kalifornien, USA (© JJ Landscapes/Getty Images)](https://www.bing.com/th?id=OHR.SandPath_DE-DE5965414761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
