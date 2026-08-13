@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-13 | [Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_FR-FR7138274954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-12 | [Un troupeau d’éléphants, Parc national d’Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_FR-FR9760624892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-11 | [Maisons colorées sur les rives du canal Nyhavn, Copenhague, Danemark (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_FR-FR8595384019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
