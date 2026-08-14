@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-15 | [ア・シ・スレ・パ自然保護区, 米国 ニューメキシコ州 (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_JA-JP6579828761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-14 | [下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.Shimoda2026_JA-JP6266826592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-13 | [テイデ天文台, スペイン (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_JA-JP5992050152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
