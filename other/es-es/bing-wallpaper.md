@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-14 | [Vista aérea de un ecoducto cerca de Zakrzów, Polonia (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_ES-ES1906561817_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-13 | [Casas coloridas que bordean el canal de Nyhavn, Copenhague, Dinamarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_ES-ES0268766801_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-12 | [Un grupo de elefantes, Parque Nacional Amboseli, Kenia (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_ES-ES9999263656_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

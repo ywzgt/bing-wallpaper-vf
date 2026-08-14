@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-14 | [Veduta aerea di un passaggio faunistico vicino a Zakrzów, Polonia (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_IT-IT3470939727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-13 | [Meteore delle Perseidi sopra l'Osservatorio del Teide, Tenerife, Spagna (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_IT-IT4575150144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-12 | [Un gruppo di elefanti, Parco Nazionale di Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://www.bing.com/th?id=OHR.ElephantDay_IT-IT3230857791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
