@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-15 | [Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.ValleyDreams_FR-FR7228733244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-14 | [Dolmen, La Roche-Aux-Fées, Bretagne (© Michal Boubin/Getty Images)](https://www.bing.com/th?id=OHR.DolmenRoche_FR-FR1513962303_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-13 | [Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_FR-FR7138274954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

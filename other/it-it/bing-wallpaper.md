@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-15 | [Cala Spinosa, Capo Testa, Santa Teresa di Gallura, Sardegna, Italia (© Francesco Riccardo Iacomino/Moment/Getty Images)](https://www.bing.com/th?id=OHR.EstateItaliana_IT-IT7841784337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-14 | [Veduta aerea di un passaggio faunistico vicino a Zakrzów, Polonia (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_IT-IT3470939727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-13 | [Meteore delle Perseidi sopra l'Osservatorio del Teide, Tenerife, Spagna (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.PerseidasTenerife_IT-IT4575150144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
