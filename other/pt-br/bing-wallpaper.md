@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-17 | [Ruínas do Convento de Ross Errilly, Condado de Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_PT-BR4842065654_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-16 | [Casas coloridas às margens do Canal Nyhavn, Copenhague, Dinamarca (© emicristea/Getty Images)](https://www.bing.com/th?id=OHR.ColorfulCop_PT-BR4548843545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-15 | [Vista aérea de um ecoduto perto de Zakrzów, Polônia (© bbsferrari/Getty Images)](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_PT-BR9589823073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
