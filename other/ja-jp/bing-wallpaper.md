@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-18 | [パルマノーヴァ, イタリア (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_JA-JP7271854286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-17 | [カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_JA-JP7034609036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-16 | [ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_JA-JP6822363126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
