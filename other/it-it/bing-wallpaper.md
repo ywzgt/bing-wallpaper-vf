@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-17 | [Faro Lime Kiln sull'isola di San Juan, stato di Washington, USA (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_IT-IT6111794447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-16 | [Rovine del convento Ross Errilly, Contea di Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_IT-IT6009541490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-15 | [Cala Spinosa, Capo Testa, Santa Teresa di Gallura, Sardegna, Italia (© Francesco Riccardo Iacomino/Moment/Getty Images)](https://www.bing.com/th?id=OHR.EstateItaliana_IT-IT7841784337_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

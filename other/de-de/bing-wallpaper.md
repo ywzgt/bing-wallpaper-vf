@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-17 | [Drei Falsche Clownfische in einer Seeanemone, Insel Cabilao, Bohol, Philippinen (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_DE-DE7285791368_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-16 | [Ruinen des Klosters Ross Errilly, Grafschaft Galway, Irland (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_DE-DE7983217751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-15 | [Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.SellinSunrise_DE-DE6501539287_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
