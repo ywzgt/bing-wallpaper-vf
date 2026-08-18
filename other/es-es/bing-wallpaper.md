@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-18 | [Vista aérea de Palmanova, una ciudad fortaleza en Friul-Venecia Julia, Italia (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_ES-ES2137780663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-17 | [Peces payaso en una anémona de mar, isla Cabilao, Bohol, Filipinas (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_ES-ES2300770147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-16 | [Ruinas del convento Ross Errilly, condado de Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_ES-ES2238203619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

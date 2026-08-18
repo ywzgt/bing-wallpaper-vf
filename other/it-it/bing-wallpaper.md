@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-18 | [Veduta aerea di Palmanova, una città-fortezza in Friuli, Italia (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_IT-IT8638241680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-17 | [Faro Lime Kiln sull'isola di San Juan, stato di Washington, USA (© Edmund Lowe Photography/Shutterstock)](https://www.bing.com/th?id=OHR.LimeKiln_IT-IT6111794447_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-16 | [Rovine del convento Ross Errilly, Contea di Galway, Irlanda (© Maria Janus/Shutterstock)](https://www.bing.com/th?id=OHR.RossErrillyRuins_IT-IT6009541490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
