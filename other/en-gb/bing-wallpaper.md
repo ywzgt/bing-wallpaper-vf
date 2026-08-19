@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-19 | [Whytecliff Park in West Vancouver, British Columbia, Canada (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_EN-GB6122204864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-18 | [Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_EN-GB5986280332_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-17 | [Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_EN-GB5900354557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
