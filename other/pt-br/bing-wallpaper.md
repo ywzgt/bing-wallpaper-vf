@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-20 | [Parque Whytecliff, West Vancouver, Canadá (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_PT-BR5369285709_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-19 | [Vista aérea de Palmanova, cidade-fortaleza em Friuli, Itália (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_PT-BR5252698571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-18 | [Três peixes-palhaço falsos em uma anêmona-do-mar, Ilha Cabilao, Bohol, Filipinas (© Franco Banfi/Nature Picture Library)](https://www.bing.com/th?id=OHR.CabilaoClowns_PT-BR4676255668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
