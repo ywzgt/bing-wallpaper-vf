@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-20 | [Un'orca emerge nel Lynn Canal vicino ai Monti Chilkat, Alaska, USA (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_IT-IT4270143164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-19 | [Parco Whytecliff, West Vancouver, Canada (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_IT-IT4080399787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-18 | [Veduta aerea di Palmanova, una città-fortezza in Friuli, Italia (© Riccardo Saponi/Getty Images)](https://www.bing.com/th?id=OHR.Palmanova_IT-IT8638241680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
