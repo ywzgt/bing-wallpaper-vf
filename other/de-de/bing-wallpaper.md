@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-21 | [Serpentinenstraße am Julierpass, Schweiz (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_DE-DE4547078745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-20 | [Ein Schwertwal im Lynn Canal nahe den Chilkat Mountains in Alaska, USA (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_DE-DE7566722719_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-19 | [Whytecliff Park in West Vancouver, British Columbia, Kanada (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_DE-DE7763456664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

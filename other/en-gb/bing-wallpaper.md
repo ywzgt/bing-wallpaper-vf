@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-21 | [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-GB1060938084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-20 | [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-GB6204959413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-19 | [Whytecliff Park in West Vancouver, British Columbia, Canada (© Aolin Chen/Getty Images)](https://www.bing.com/th?id=OHR.WhyteCliffP_EN-GB6122204864_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
