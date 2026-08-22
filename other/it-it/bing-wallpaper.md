@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-22 | [Torre Sant'Andrea, Salento, Puglia, Italia (© Balate.Dorin/Shutterstock)](https://www.bing.com/th?id=OHR.NotteTaranta_IT-IT0811899295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-21 | [Passo del Giulio, Svizzera (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_IT-IT0417165500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-20 | [Un'orca emerge nel Lynn Canal vicino ai Monti Chilkat, Alaska, USA (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_IT-IT4270143164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

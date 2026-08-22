@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-22 | [Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_EN-GB1147628721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-21 | [Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_EN-GB1060938084_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-20 | [An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)](https://www.bing.com/th?id=OHR.LynnCanalOrca_EN-GB6204959413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
