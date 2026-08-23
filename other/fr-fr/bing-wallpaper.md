@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-23 | [Ours brun en pleine pêche au saumon rouge, Parc national de Katmai, Alaska, États-Unis (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_FR-FR3593143405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-22 | [Argus bleu, Devon, Angleterre (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_FR-FR7050471063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-21 | [Route sinueuse du col du Julier, Suisse (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_FR-FR0870283971_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-23 | [Oso pardo pescando en el río, Parque Nacional Katmai, Alaska, EE. UU. (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_ES-ES8288785894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-22 | [Vista general del pelotón durante la 77ª Vuelta a España 2022, Etapa 20, Navacerrada, España (© Europa Press Sports/Getty Images)](https://www.bing.com/th?id=OHR.VueltaEspana_ES-ES4697960673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-21 | [Carretera sinuosa del Paso de Julier, Grisones, Suiza (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_ES-ES7799772209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

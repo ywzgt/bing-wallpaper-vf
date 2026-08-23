@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-23 | [Pesca dell'orso bruno, Parco Nazionale e Riserva di Katmai, Alaska, USA (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_IT-IT0998174582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-22 | [Torre Sant'Andrea, Salento, Puglia, Italia (© Balate.Dorin/Shutterstock)](https://www.bing.com/th?id=OHR.NotteTaranta_IT-IT0811899295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-21 | [Passo del Giulio, Svizzera (© Westend61/Getty Images)](https://www.bing.com/th?id=OHR.JulierPass_IT-IT0417165500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
