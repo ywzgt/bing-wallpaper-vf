@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-24 | [Brooklyn Bridge, New York, USA (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_DE-DE5037319514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-23 | [Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_DE-DE4863569312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-22 | [Hauhechel-Bläuling, Devon, England (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_DE-DE9673283581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
