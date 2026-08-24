@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-25 | [レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-24 | [ブルックリン橋, 米国 ニューヨーク州 (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_JA-JP9540004516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-23 | [夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)](https://www.bing.com/th?id=OHR.ShizuokaSummer2026_JA-JP8848642076_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
