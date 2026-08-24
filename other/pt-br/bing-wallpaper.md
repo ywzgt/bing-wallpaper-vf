@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-25 | [Parque Nacional dos Lençóis Maranhenses, Maranhão (© Ignacio Palacios/Getty Images)](https://www.bing.com/th?id=OHR.Lencois_PT-BR9491147631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-24 | [Urso-pardo pescando em um rio no Parque Nacional de Katmai, Alasca, Estados Unidos (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_PT-BR9294561770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-23 | [Integrantes da Salgueiro na Marquês de Sapucaí em 2022, Rio de Janeiro (© MAURO PIMENTEL/Getty Images)](https://www.bing.com/th?id=OHR.FolkRJ_PT-BR6598036806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
