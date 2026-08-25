@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-25 | [Parques Nacionales y Estatales de Redwood (RNSP), California, EE. UU. (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_ES-ES8525177894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-24 | [Puente de Brooklyn, Nueva York, EE. UU. (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_ES-ES8423562789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-23 | [Oso pardo pescando en el río, Parque Nacional Katmai, Alaska, EE. UU. (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_ES-ES8288785894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

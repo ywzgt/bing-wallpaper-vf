@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-25 | [Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)](https://www.bing.com/th?id=OHR.KitesurfersSunset_DE-DE3980635203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-24 | [Brooklyn Bridge, New York, USA (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_DE-DE5037319514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-23 | [Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)](https://www.bing.com/th?id=OHR.KatmaiBear_DE-DE4863569312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
