@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-26 | [Parroquia San Pedro Apóstol, Buñol, España (© Venemama/Getty Images)](https://www.bing.com/th?id=OHR.TomatinaBunol_ES-ES8709376731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-25 | [Parques Nacionales y Estatales de Redwood (RNSP), California, EE. UU. (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_ES-ES8525177894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-24 | [Puente de Brooklyn, Nueva York, EE. UU. (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_ES-ES8423562789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

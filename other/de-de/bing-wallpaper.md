@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-26 | [Polarlichter über dem Kirkjufell, Island (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_DE-DE5182720309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-25 | [Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)](https://www.bing.com/th?id=OHR.KitesurfersSunset_DE-DE3980635203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-24 | [Brooklyn Bridge, New York, USA (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_DE-DE5037319514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

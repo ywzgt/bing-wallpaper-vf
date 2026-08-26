@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-26 | [L'aurora boreale su Kirkjufell, Islanda (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_IT-IT1298284038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-25 | [Parchi Nazionali e Statali di Redwood, California, USA (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_IT-IT1204038943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-24 | [Ponte di Brooklyn, New York City, USA (© shayes17/Getty Images)](https://www.bing.com/th?id=OHR.BKBridge_IT-IT1092253957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
