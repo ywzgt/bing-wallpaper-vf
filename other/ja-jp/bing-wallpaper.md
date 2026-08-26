@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-27 | [マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-26 | [オーロラ, アイスランド (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-25 | [レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)](https://www.bing.com/th?id=OHR.RedwoodPark_JA-JP9805095528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
