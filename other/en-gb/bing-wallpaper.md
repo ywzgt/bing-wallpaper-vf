@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-27 | [Lesser flamingo flock, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_EN-GB1628809720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-26 | [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_EN-GB1541173608_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-25 | [Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_EN-GB1458336075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

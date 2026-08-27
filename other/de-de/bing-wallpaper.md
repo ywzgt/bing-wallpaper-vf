@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-27 | [Zwergflamingos bei Sonnenaufgang am Magadi-See, Kenia (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_DE-DE5321228958_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-26 | [Polarlichter über dem Kirkjufell, Island (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_DE-DE5182720309_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-25 | [Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)](https://www.bing.com/th?id=OHR.KitesurfersSunset_DE-DE3980635203_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
