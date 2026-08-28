@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-28 | [モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-27 | [マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_JA-JP0125683063_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-26 | [オーロラ, アイスランド (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_JA-JP9970815507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

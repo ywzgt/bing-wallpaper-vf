@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-28 | [Le Mont-Saint-Michel, Manica, Normandia, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_IT-IT1503723648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-27 | [Il fenicottero minore all'alba, Lago Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_IT-IT1397011994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-26 | [L'aurora boreale su Kirkjufell, Islanda (© Cavan Images/Alamy)](https://www.bing.com/th?id=OHR.AurorasIceland_IT-IT1298284038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

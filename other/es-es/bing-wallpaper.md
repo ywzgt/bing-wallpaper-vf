@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-28 | [Monte Saint-Michel durante la marea alta, Mancha, Normandía, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_ES-ES9649662621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-27 | [Bandada de flamencos enanos al amanecer, Lago Magadi, Kenia (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_ES-ES9474511114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-26 | [Parroquia San Pedro Apóstol, Buñol, España (© Venemama/Getty Images)](https://www.bing.com/th?id=OHR.TomatinaBunol_ES-ES8709376731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
