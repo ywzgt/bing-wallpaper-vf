@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-30 | [ジンベエザメ, インドネシア (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_JA-JP0572284773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-29 | [全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)](https://www.bing.com/th?id=OHR.OmagariFireworks2026_JA-JP0416831919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-28 | [モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_JA-JP0274204340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
