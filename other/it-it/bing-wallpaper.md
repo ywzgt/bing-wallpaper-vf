@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-29 | [Veduta aerea di surfisti a Santa Catarina, Brasile (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-28 | [Le Mont-Saint-Michel, Manica, Normandia, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_IT-IT1503723648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-27 | [Il fenicottero minore all'alba, Lago Magadi, Kenya (© Denis-Huot/Nature Picture Library)](https://www.bing.com/th?id=OHR.LakeMagadi_IT-IT1397011994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
