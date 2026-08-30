@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-31 | [Tubarão-baleia e xaréus-dourados na Baía de Cenderawasih, Papua Ocidental, Indonésia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_PT-BR2490068911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-30 | [Vista aérea de surfistas em Santa Catarina (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_PT-BR2149597812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-29 | [Monte Saint-Michel durante a maré alta, Manche, Normandia, França (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_PT-BR1793038232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

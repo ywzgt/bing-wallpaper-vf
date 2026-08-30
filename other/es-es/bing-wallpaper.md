@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-30 | [Tiburón ballena y jurel real dorado, Bahía de Cenderawasih, Papúa Occidental, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_ES-ES9780213231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-29 | [Vista aérea de surfistas, Santa Catarina, Brasil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-28 | [Monte Saint-Michel durante la marea alta, Mancha, Normandía, Francia (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_ES-ES9649662621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

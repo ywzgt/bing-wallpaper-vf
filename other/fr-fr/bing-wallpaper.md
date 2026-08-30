@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-30 | [Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_FR-FR9208937852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-29 | [Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_FR-FR8615743181_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-28 | [Le Mont-Saint-Michel à marée haute, Manche, Normandie (© Clement LEONARD/Getty Images)](https://www.bing.com/th?id=OHR.MichelSunset_FR-FR8060193680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
