@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-31 | [Cúpula en el interior de la mezquita de la madrasa Tilla-Kari, Plaza Registan, Samarcanda, Uzbekistán (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_ES-ES9960905844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-30 | [Tiburón ballena y jurel real dorado, Bahía de Cenderawasih, Papúa Occidental, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_ES-ES9780213231_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-29 | [Vista aérea de surfistas, Santa Catarina, Brasil (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_ES-ES9631069615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

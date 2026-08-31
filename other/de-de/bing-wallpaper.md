@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-31 | [Architektonisches Detail des Registan-Platzes, Samarkand, Usbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_DE-DE7789243927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-30 | [Walhai und Goldmakrelen, Cenderawasih-Bucht, West-Papua, Indonesien (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_DE-DE7632036192_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-29 | [Luftaufnahme von Surfern, Santa Catarina, Brasilien (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_DE-DE7458345257_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

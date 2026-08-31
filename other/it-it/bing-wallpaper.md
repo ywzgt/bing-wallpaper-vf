@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-31 | [Cupola all'interno della moschea Tilla Kari Madrasa, Piazza Registan, Samarcanda, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_IT-IT1763957510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-30 | [Squalo balena e carango dorato, Baia di Cenderawasih, Papua Occidentale, Indonesia (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_IT-IT2405493473_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-29 | [Veduta aerea di surfisti a Santa Catarina, Brasile (© Wonderful Nature/Shutterstock)](https://www.bing.com/th?id=OHR.SantaCatarina_IT-IT1605956723_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
