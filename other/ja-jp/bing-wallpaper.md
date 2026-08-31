@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-01 | [オチバタケ, ベラルーシ (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_JA-JP2550807968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-31 | [レギスタン広場のマドラサ, ウズベキスタン (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_JA-JP0717876578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-30 | [ジンベエザメ, インドネシア (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_JA-JP0572284773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
