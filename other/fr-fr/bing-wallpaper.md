@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-01 | [Gymnopus androsaceus, Biélorussie (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_FR-FR3845055413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-08-31 | [Détails d’un plafond, Régistan, Samarcande, Ouzbékistan (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_FR-FR3513297737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-30 | [Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)](https://www.bing.com/th?id=OHR.YellowShark_FR-FR9208937852_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
