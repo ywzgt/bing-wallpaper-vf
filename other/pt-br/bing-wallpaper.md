@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-03 | [Cabanas de praia tradicionais em Southwold, Suffolk, Inglaterra (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_PT-BR0383836238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-02 | [Cogumelo Gymnopus androsaceus, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_PT-BR3941207361_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-01 | [Detalhes da Praça Registan, Samarcanda, Uzbequistão (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_PT-BR2655743090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

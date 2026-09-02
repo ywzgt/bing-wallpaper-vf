@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-09)
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&w=1000)Today: [Hongos paracaídas, Bielorrusia (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&w=1000)Today: [Cabañas de playa en Southwold, condado de Suffolk, Inglaterra (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-02 [download 4k](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-09-01 [download 4k](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|

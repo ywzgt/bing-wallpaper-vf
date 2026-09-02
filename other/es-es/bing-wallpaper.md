@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-02 | [Cabañas de playa en Southwold, condado de Suffolk, Inglaterra (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_ES-ES0180739471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-01 | [Hongos paracaídas, Bielorrusia (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_ES-ES0065882566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-08-31 | [Cúpula en el interior de la mezquita de la madrasa Tilla-Kari, Plaza Registan, Samarcanda, Uzbekistán (© Piero M. Bianchi/Getty Images)](https://www.bing.com/th?id=OHR.SamarkandCeiling_ES-ES9960905844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
