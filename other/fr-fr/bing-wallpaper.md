@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-03 | [Buttes Coyote, Monument national des Falaises Vermilion, Arizona, États-Unis (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_FR-FR4389464671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-02 | [Cabanes de plage, Southwold, Suffolk Heritage Coast, Angleterre (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_FR-FR9132067809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-01 | [Gymnopus androsaceus, Biélorussie (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_FR-FR3845055413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

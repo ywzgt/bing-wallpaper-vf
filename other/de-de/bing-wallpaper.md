@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-03 | [Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtRomerberg_DE-DE6749197183_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-02 | [Traditionelle Strandhütten, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_DE-DE8043107896_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-01 | [Rosshaar-Schwindling, Belarus (© Máté/Nature Picture Library)](https://www.bing.com/th?id=OHR.HorseHairShroom_DE-DE7910104416_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
