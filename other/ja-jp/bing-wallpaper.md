@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-04 | [ヴェスターヘーファーザント灯台, ドイツ (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_JA-JP0136915036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-03 | [コヨーテ・ビュート, 米国 アリゾナ州 (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_JA-JP3309055326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-02 | [ビーチハット, イングランド (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_JA-JP3115171778_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
