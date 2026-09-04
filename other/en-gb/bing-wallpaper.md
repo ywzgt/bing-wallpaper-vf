@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-04 | [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_EN-GB5592839708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-03 | [Coyote Buttes, Vermilion Cliffs National Monument, Arizona, United States (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_EN-GB2345947468_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-02 | [Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)](https://www.bing.com/th?id=OHR.SuffolkHuts_EN-GB2261622731_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
