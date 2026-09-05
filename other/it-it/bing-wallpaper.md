@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-05 | [Colibrì dalla fronte verde brillante, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_IT-IT8492187001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-04 | [Faro di Westerheversand in Westerhever, Schleswig-Holstein, Germania (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_IT-IT2705992595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-03 | [Coyote Buttes, Monumento Nazionale Vermilion Cliffs, Arizona, USA (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_IT-IT2616845424_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

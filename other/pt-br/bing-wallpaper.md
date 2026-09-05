@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-06 | [Beija-flores-brilhantes-de-coroa-verde alimentando-se de flores de garra-de-lagosta, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_PT-BR1965351936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-05 | [Antiga Prefeitura de Bamberg, Alemanha (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_PT-BR1820123013_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-04 | [Borboleta-azul-comum, Devon, Inglaterra (© Ross Hoddinott/Nature Picture Library)](https://www.bing.com/th?id=OHR.CommonBlue_PT-BR1879697147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

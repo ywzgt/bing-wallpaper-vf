@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-05 | [La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)](https://www.bing.com/th?id=OHR.LillePlace_FR-FR3992764620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-04 | [Phare de Westerheversand à Westerhever, Schleswig-Holstein, Allemagne (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_FR-FR6860967880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-03 | [Buttes Coyote, Monument national des Falaises Vermilion, Arizona, États-Unis (© James Hager/Getty Images)](https://www.bing.com/th?id=OHR.AZWilderness_FR-FR4389464671_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
