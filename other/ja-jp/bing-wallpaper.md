@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-06 | [ファイアンズ湖, オーストラリア (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_JA-JP2778092364_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-05 | [ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_JA-JP4075782685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-04 | [ヴェスターヘーファーザント灯台, ドイツ (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_JA-JP0136915036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
