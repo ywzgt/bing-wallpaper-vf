@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-06 | [Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_EN-GB5800075953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-05 | [California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_EN-GB5662354179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-04 | [Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)](https://www.bing.com/th?id=OHR.Westerheversand_EN-GB5592839708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
