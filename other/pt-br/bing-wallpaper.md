@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-08 | [Esquadrilha da Fumaça no desfile do Dia da Independência em Brasília, 2023 (© EVARISTO SA/Getty Images)](https://www.bing.com/th?id=OHR.IndependenceBR_PT-BR8326749510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-07 | [Lago Fyans, Parque Nacional Grampians, Vitória, Austrália (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_PT-BR2121172613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-06 | [Beija-flores-brilhantes-de-coroa-verde alimentando-se de flores de garra-de-lagosta, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_PT-BR1965351936_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

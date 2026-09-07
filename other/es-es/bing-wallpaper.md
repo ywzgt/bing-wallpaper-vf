@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-07 | [Antiguo Ayuntamiento, Bamberg, Alemania (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_ES-ES8182452446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-06 | [Lago Fyans, Parque Nacional de los Montes Grampianos, Victoria, Australia (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_ES-ES8019860279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-05 | [Colibríes brillantes frentiverdes alimentándose de flores de platanillo, Costa Rica (© Paul Hobson/Nature Picture Library)](https://www.bing.com/th?id=OHR.GreenCrowned_ES-ES5206324734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
