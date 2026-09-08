@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-09 | [菊の花 (© yanjf/Getty Images)](https://www.bing.com/th?id=OHR.ChungYang2026_JA-JP4920316432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-08 | [イースト・ミーオン, イングランド (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_JA-JP4737159434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-07 | [バンベルク市街, ドイツ (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_JA-JP4474746509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
