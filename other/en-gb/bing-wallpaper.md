@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-08 | [Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_EN-GB6264734535_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-07 | [Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_EN-GB6012686407_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-06 | [Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_EN-GB5800075953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

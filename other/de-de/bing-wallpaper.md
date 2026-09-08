@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-08 | [Buche in einem Getreidefeld, East Meon, South-Downs-Nationalpark, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_DE-DE7492588392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-07 | [Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_DE-DE8821401263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-06 | [Fyans-See, Grampians-Nationalpark, Victoria, Australien (© tracielouise/Getty Images)](https://www.bing.com/th?id=OHR.LakeFyans_DE-DE9957934690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

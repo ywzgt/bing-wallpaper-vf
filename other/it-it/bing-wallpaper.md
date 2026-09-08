@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-08 | [Faggio in un campo di cereali, East Meon, Parco Nazionale dei South Downs, Hampshire, Inghilterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_IT-IT3767842262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-07 | [Vecchio Municipio, Bamberga, Germania (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_IT-IT3654533495_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-06 | [Regata Storica di Venezia, Venezia, Italia (© Javen/Shutterstock)](https://www.bing.com/th?id=OHR.RegataStoricaVen_IT-IT3438860394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
