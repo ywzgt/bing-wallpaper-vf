@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-09 | [Gabit-Keni-Strand bei Ankola, Karnataka, Indien (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_DE-DE7644159107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-08 | [Buche in einem Getreidefeld, East Meon, South-Downs-Nationalpark, Hampshire, England (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_DE-DE7492588392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-07 | [Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_DE-DE8821401263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

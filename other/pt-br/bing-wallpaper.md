@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-10 | [Praia de Gabit Keni, perto de Ankola, Carnataca, Índia (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_PT-BR1706073463_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-09 | [Faia-europeia em um campo de cereais, Parque Nacional de South Downs, Hampshire, Inglaterra (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_PT-BR8581055675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-08 | [Esquadrilha da Fumaça no desfile do Dia da Independência em Brasília, 2023 (© EVARISTO SA/Getty Images)](https://www.bing.com/th?id=OHR.IndependenceBR_PT-BR8326749510_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
