@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-10 | [Vista aérea de Olvera, Cádiz, Andalucía, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_ES-ES2719648293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-09 | [Playa Gabit Keni cerca de Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_ES-ES9410799048_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-08 | [Real Monasterio de Nuestra Señora de Guadalupe, Cáceres, Extremadura, España (© Armando Oliveira/Getty Images)](https://www.bing.com/th?id=OHR.ExtremaduraCaceres_ES-ES8424838072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

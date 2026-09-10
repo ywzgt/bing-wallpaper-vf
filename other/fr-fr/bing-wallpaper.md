@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-10 | [Vue aérienne d’Olvera, Andalousie, Espagne (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_FR-FR2163620703_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-09 | [Plage de Gabit Keni près d’Ankola, Karnataka, Inde (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_FR-FR5031931256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-08 | [Hêtre au milieu de champs de céréales, East Meon, Parc national des South Downs, Hampshire, Angleterre (© Guy Edwardes/Minden Pictures)](https://www.bing.com/th?id=OHR.BeechEngland_FR-FR3378648733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
