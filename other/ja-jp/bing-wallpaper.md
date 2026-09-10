@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-11 | [ガビット・ケニ・ビーチ, インド (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_JA-JP3823379916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-10 | [オルベラ, スペイン (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_JA-JP5093791420_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-09 | [菊の花 (© yanjf/Getty Images)](https://www.bing.com/th?id=OHR.ChungYang2026_JA-JP4920316432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
