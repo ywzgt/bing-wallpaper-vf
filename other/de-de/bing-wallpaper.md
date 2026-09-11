@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-11 | [Villefranche-sur-Mer, Alpes-Maritimes, Côte d’Azur, Frankreich (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_DE-DE6596669127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-10 | [Luftaufnahme von Olvera, Andalusien, Spanien (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_DE-DE7810722479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-09 | [Gabit-Keni-Strand bei Ankola, Karnataka, Indien (© Amith Nag Photography/Getty Images)](https://www.bing.com/th?id=OHR.GabitKeni_DE-DE7644159107_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
