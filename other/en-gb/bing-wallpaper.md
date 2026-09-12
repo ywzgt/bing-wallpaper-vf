@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-12 | [Interior of the Royal Albert Hall, London (© William Barton/Shutterstock)](https://www.bing.com/th?id=OHR.LastNightOfTheProms2026_EN-GB7492486139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-11 | [The bay of Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_EN-GB7299831823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-10 | [Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_EN-GB6934313279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

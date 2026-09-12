@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-12 | [Leoni marini della California a caccia di una palla di esca per sardine, al largo del Messico, Oceano Pacifico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_IT-IT4326891508_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-11 | [Castelmezzano, provincia di Potenza in Basilicata, Italia (© Sean Pavone/Getty Images)](https://www.bing.com/th?id=OHR.Castelmezzano_IT-IT4140249349_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-10 | [Vista aerea di Olvera, Cadice, Andalusia, Spagna (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_IT-IT3958001884_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

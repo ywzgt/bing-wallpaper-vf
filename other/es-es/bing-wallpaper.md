@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-12 | [Leones marinos de California cazando un cardumen de sardinas, México, Océano Pacífico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_ES-ES9719293392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-11 | [La bahía de Villefranche-sur-Mer, Alpes Marítimos, en la región de Provenza-Alpes-Costa Azul, Francia (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_ES-ES2800644521_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-10 | [Vista aérea de Olvera, Cádiz, Andalucía, España (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Olvera_ES-ES2719648293_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
