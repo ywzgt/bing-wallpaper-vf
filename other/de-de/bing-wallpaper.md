@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-13 | [Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)](https://www.bing.com/th?id=OHR.BambergTownhall_DE-DE7159832274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-12 | [Kalifornische Seelöwen bei der Jagd auf einen Sardinen-Köderball vor der Küste Mexikos im Pazifik (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_DE-DE9091780632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-11 | [Villefranche-sur-Mer, Alpes-Maritimes, Côte d’Azur, Frankreich (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_DE-DE6596669127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
