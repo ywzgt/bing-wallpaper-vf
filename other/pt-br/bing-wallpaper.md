@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-15 | [Campo de kochia, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_PT-BR0883558645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-14 | [Cadini di Misurina, Dolomitas, Vêneto, Itália (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_PT-BR1204765846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-13 | [Leões-marinhos-da-califórnia caçando cardume de sardinhas no litoral do México, Oceano Pacífico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_PT-BR1473169959_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

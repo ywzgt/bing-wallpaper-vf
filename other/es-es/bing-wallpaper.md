@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-14 | [Campo de plantas de kochia, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_ES-ES5067381880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-13 | [Vista general del pelotón durante la 77ª Vuelta a España 2022, Etapa 21, Palacio de Cibeles, Madrid, España (© Europa Press Sports/Getty Images)](https://www.bing.com/th?id=OHR.LaVueltaEnd_ES-ES2544902517_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-12 | [Leones marinos de California cazando un cardumen de sardinas, México, Océano Pacífico (© Henley Spiers/Nature Picture Library)](https://www.bing.com/th?id=OHR.SardineBait_ES-ES9719293392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
