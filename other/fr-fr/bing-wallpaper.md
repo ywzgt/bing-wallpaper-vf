@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-15 | [Aras chloroptères, Amérique du Sud (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_FR-FR7707103223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-14 | [Champ de kochia, Chine (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_FR-FR3921834032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-13 | [Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)](https://www.bing.com/th?id=OHR.MisurinaPeak_FR-FR3560016710_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
