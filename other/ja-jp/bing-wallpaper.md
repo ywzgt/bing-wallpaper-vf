@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-17 | [サントネー, フランス (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_JA-JP6491231112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-16 | [ホッキョクグマの子, ノルウェー (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_JA-JP6302430788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-15 | [コキア, 中国 (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_JA-JP6121199727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
