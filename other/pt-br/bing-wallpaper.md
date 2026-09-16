@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-17 | [Filhotes de urso-polar brincando em Svalbard, Noruega (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_PT-BR1372199595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-16 | [Baía de Villefranche-sur-Mer, Alpes-Maritimes, Provença-Alpes-Côte d'Azur, França (© StockByM/Getty Images)](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_PT-BR0717885034_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-15 | [Campo de kochia, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_PT-BR0883558645_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-16 | [Oursons polaires à Svalbard, Norvège (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_FR-FR5288498074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-15 | [Aras chloroptères, Amérique du Sud (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_FR-FR7707103223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-14 | [Champ de kochia, Chine (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_FR-FR3921834032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

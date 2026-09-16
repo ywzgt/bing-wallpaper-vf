@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-16 | [Cuccioli di orso polare che giocano a Svalbard, Norvegia (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_IT-IT4666651798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-15 | [L'ara dalle ali verdi, Brasile (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_IT-IT4575485670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-14 | [Campo di piante di kochia, Cina (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_IT-IT4492706565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

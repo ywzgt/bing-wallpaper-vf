@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-16 | [Cachorros de oso polar jugando en Svalbard, Noruega (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_ES-ES0423960114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-15 | [Guacamayos aliverdes, Brasil (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_ES-ES0325042957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-14 | [Campo de plantas de kochia, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_ES-ES5067381880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

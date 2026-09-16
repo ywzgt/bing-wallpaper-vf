@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-16 | [Eisbärenjunge spielen auf Spitzbergen, Norwegen (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_DE-DE7622238275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-15 | [Grünflügelaras (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_DE-DE7450519779_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-14 | [Feld mit Besen-Radmelden, China (© lingqi xie/Getty Images)](https://www.bing.com/th?id=OHR.KochiaChina_DE-DE7299864606_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
