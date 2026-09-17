@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-17 | [Molino de viento y viñedos de Sorine, región vinícola de Santenay, Costa de Beaune, Borgoña, Francia (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_ES-ES0534993805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-16 | [Cachorros de oso polar jugando en Svalbard, Noruega (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_ES-ES0423960114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-15 | [Guacamayos aliverdes, Brasil (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_ES-ES0325042957_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

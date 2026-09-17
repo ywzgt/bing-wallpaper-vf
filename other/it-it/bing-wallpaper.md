@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-17 | [Mulino a vento e vigneti di Sorine, regione vinicola di Santenay, Côte de Beaune, Borgogna, Francia (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_IT-IT4764829953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-16 | [Cuccioli di orso polare che giocano a Svalbard, Norvegia (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_IT-IT4666651798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-15 | [L'ara dalle ali verdi, Brasile (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_IT-IT4575485670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

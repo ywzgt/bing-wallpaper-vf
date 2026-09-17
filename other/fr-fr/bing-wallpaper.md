@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-17 | [Le moulin à vent et les vignobles de Sorine, Santenay, Côte de Beaune, Bourgogne (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_FR-FR5987836668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-16 | [Oursons polaires à Svalbard, Norvège (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_FR-FR5288498074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-15 | [Aras chloroptères, Amérique du Sud (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_FR-FR7707103223_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
