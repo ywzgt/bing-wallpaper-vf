@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-18 | [Winnats Pass im Peak-District-Nationalpark, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_DE-DE1067601127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-17 | [Windmühle von Sorine und Weinberge in der Weinregion Santenay, Côte de Beaune, Burgund, Frankreich (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_DE-DE7807006506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-16 | [Eisbärenjunge spielen auf Spitzbergen, Norwegen (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.IcyCubs_DE-DE7622238275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
