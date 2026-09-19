@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [パリ, フランス (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_JA-JP6560235841_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_JA-JP7669654652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [ウィナッツ・パス, イングランド (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_JA-JP5840257609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
