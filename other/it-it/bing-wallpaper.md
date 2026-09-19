@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-19 | [A Borgo Marinari, sul Golfo di Napoli, Campania, Italia (© Siegfried Schnepf/Getty Images)](https://www.bing.com/th?id=OHR.BorgoMarinari_IT-IT7423218886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-18 | [Winnats Pass, Parco Nazionale del Peak District, Inghilterra (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_IT-IT0574437458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-17 | [Mulino a vento e vigneti di Sorine, regione vinicola di Santenay, Côte de Beaune, Borgogna, Francia (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_IT-IT4764829953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

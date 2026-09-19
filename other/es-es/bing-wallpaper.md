@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-19 | [Músicos tocando la trompa de los Alpes, Waltenhofen, Baviera, Alemania (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_ES-ES7277929054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-18 | [San Sebastián, Guipúzcoa, País Vasco, España (© Tichr/Getty Images)](https://www.bing.com/th?id=OHR.SanSebastian_ES-ES7080505846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-17 | [Molino de viento y viñedos de Sorine, región vinícola de Santenay, Costa de Beaune, Borgoña, Francia (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_ES-ES0534993805_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

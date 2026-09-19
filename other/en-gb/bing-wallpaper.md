@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-19 | [Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_EN-GB8912057279_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-18 | [Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_EN-GB8850951451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-17 | [Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)](https://www.bing.com/th?id=OHR.Santenay_EN-GB8477225756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
