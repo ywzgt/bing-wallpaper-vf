@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [Torre Eiffel al atardecer, París, Francia (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_ES-ES7380438298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [Músicos tocando la trompa de los Alpes, Waltenhofen, Baviera, Alemania (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_ES-ES7277929054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [San Sebastián, Guipúzcoa, País Vasco, España (© Tichr/Getty Images)](https://www.bing.com/th?id=OHR.SanSebastian_ES-ES7080505846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)](https://www.bing.com/th?id=OHR.CastelnaudPatrimoine_FR-FR4352072727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [Joueurs de cor des Alpes, Bavière, Allemagne (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_FR-FR7751398658_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [Col de Winnats, Parc national du Peak District, Angleterre (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_FR-FR7611183995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

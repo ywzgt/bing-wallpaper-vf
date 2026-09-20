@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-20 | [Giocatori di alphorn, Baviera, Germania (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_IT-IT7483263500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-19 | [A Borgo Marinari, sul Golfo di Napoli, Campania, Italia (© Siegfried Schnepf/Getty Images)](https://www.bing.com/th?id=OHR.BorgoMarinari_IT-IT7423218886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-18 | [Winnats Pass, Parco Nazionale del Peak District, Inghilterra (© Daniel_Kay/Getty Images)](https://www.bing.com/th?id=OHR.WinnatsPassPeak_IT-IT0574437458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
