@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-21 | [Nutria marina acicalándose, Bahía de Monterey, California, EE. UU. (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_ES-ES7483799211_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-20 | [Torre Eiffel al atardecer, París, Francia (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_ES-ES7380438298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-19 | [Músicos tocando la trompa de los Alpes, Waltenhofen, Baviera, Alemania (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_ES-ES7277929054_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

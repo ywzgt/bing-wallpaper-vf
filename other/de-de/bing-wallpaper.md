@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-21 | [Seeotter bei der Fellpflege, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_DE-DE1586162162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-20 | [Eiffelturm bei Sonnenuntergang, Paris, Frankreich (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_DE-DE1426517976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-19 | [Oktoberfest München, Bayern (© FooTToo/Getty Images)](https://www.bing.com/th?id=OHR.OktoberfestMunich_DE-DE1236844623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

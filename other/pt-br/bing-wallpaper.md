@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-22 | [Lontra-marinha na Baía de Monterey, Califórnia, EUA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_PT-BR4986034219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-21 | [Torre Eiffel ao pôr do sol, Paris, França (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_PT-BR5131210882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-20 | [Músicos de trompa alpina, Baviera, Alemanha (© U. J. Alexander/Shutterstock)](https://www.bing.com/th?id=OHR.AlphornBavaria_PT-BR5395210076_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
