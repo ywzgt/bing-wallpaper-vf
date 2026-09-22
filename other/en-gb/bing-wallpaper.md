@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-22 | [Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_EN-GB9192637782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-21 | [Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_EN-GB9079842121_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-20 | [Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_EN-GB8990968501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
