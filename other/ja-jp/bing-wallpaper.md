@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-24 | [ランサローテ島, スペイン (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_JA-JP7674043520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-23 | [秋の七草のナデシコ (© igaguri_1/Getty Images)](https://www.bing.com/th?id=OHR.Japan7Flower2026_JA-JP7430731593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-22 | [アスペンの森, 米国 ユタ州 (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_JA-JP7201900997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
