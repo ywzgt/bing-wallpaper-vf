@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-23 | [Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_FR-FR8326000854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-22 | [Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_FR-FR8060088549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-21 | [Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_FR-FR7953128169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

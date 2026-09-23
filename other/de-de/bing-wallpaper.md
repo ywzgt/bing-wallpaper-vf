@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-23 | [Herbstliche Espen nahe dem Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_DE-DE1894805045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-22 | [Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_DE-DE1744424672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-21 | [Seeotter bei der Fellpflege, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.GroomingOtter_DE-DE1586162162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
