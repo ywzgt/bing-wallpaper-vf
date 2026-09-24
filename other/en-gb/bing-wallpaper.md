@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-24 | [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_EN-GB9361035480_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-23 | [Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_EN-GB9268931266_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-22 | [Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_EN-GB9192637782_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
