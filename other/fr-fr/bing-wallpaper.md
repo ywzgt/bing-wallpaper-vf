@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-25 | [Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_FR-FR8607088238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-24 | [Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_FR-FR8422872224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-23 | [Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_FR-FR8326000854_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

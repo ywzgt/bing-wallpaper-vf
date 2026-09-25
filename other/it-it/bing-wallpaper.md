@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-25 | [Lanterne cinesi per la celebrazione della Festa di metà autunno (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_IT-IT8365698421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-24 | [Vista aerea della spiaggia di lava nera, El Golfo, Lanzarote, Isole Canarie, Spagna (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_IT-IT8270823745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-23 | [Chiesa in Val di Funes, Trentino-Alto Adige, Dolomiti, Italia (© DieterMeyrl/Getty Images)](https://www.bing.com/th?id=OHR.AutumnTrentino_IT-IT8118999546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

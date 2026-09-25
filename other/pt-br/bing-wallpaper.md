@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-26 | [Lanternas chinesas para a celebração do Festival da Lua, Hong Kong, China (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_PT-BR2970027415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-25 | [Vila dos Hobbits em Matamata, Nova Zelândia (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_PT-BR2214990560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-24 | [Ipê-amarelo florido contra o céu azul (© Rogerio Peccioli/Getty Images)](https://www.bing.com/th?id=OHR.SpringTree_PT-BR3107057910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

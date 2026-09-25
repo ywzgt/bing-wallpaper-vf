@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-25 | [Faroles chinos para la celebración de la Fiesta del Medio Otoño (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_ES-ES7834121465_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-24 | [Vista del Parque Güell en Barcelona, Cataluña, España (© Vershinin/Getty Images)](https://www.bing.com/th?id=OHR.FiestaMerceBarcelona_ES-ES7742458972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-23 | [Álamos de otoño cerca de Guardsman Pass, Utah, EE. UU. (© Danita Delimont/Shutterstock)](https://www.bing.com/th?id=OHR.FallAspens_ES-ES8557164613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
