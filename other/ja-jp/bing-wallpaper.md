@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-27 | [横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)](https://www.bing.com/th?id=OHR.YokohamaBayBridge_JA-JP8812921625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-26 | [シーダーメサ, 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_JA-JP8214752036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-25 | [中秋節用の中国提灯 (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_JA-JP8034446964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
