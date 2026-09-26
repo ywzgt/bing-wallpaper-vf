@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-27 | [Vista aérea da praia de lava negra, El Golfo, Lanzarote, Ilhas Canárias, Espanha (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_PT-BR1964322549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-26 | [Lanternas chinesas para a celebração do Festival da Lua, Hong Kong, China (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_PT-BR2970027415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-25 | [Vila dos Hobbits em Matamata, Nova Zelândia (© djr-photography/Shutterstock)](https://www.bing.com/th?id=OHR.TolkienWeek_PT-BR2214990560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-26 | [Village des Bories, Gordes, Provence-Alpes-Côte d’Azur (© AGUILAR PATRICE/Alamy)](https://www.bing.com/th?id=OHR.BoriesPoppies_FR-FR9955316118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-25 | [Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)](https://www.bing.com/th?id=OHR.MidAutumn2026_FR-FR8607088238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-24 | [Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_FR-FR8422872224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
