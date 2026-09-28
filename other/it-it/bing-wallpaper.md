@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-28 | [Sattais Katcheri, Forte Amber vicino a Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_IT-IT8621021328_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-27 | [Granchio decoratore su penna marina, Parco Nazionale di Komodo, Indonesia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_IT-IT5114188667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-26 | [Cedar Mesa e Muley Point vicino al Monumento Nazionale Bears Ears, Utah, USA (© Jeff Clay/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.BearsEars_IT-IT8450841263_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
