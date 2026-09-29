@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-30 | [ヒゲガラ, イングランド (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_JA-JP9843863193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-29 | [カシロフ川, 米国 アラスカ州 (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_JA-JP7219675730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-28 | [アンベール城, インド (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_JA-JP9172458689_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
