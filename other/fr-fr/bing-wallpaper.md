@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-29 | [Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_FR-FR9609860572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-28 | [La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_FR-FR6136179100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-27 | [Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_FR-FR8789802868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-09-30 | [Rio Kasilof, Península de Kenai, Alasca, Estados Unidos (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_PT-BR1313310893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-29 | [Salão Sattais Katcheri no Forte de Amber, perto de Jaipur, Rajastão, Índia (© R.M. Nunes/Getty Images)](https://www.bing.com/th?id=OHR.AmberHall_PT-BR1465916376_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-28 | [Caranguejo-decorador em pena-do-mar, Parque Nacional de Komodo, Indonésia (© Alex Mustard/Nature Picture Library)](https://www.bing.com/th?id=OHR.DecoCrab_PT-BR1863827080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
