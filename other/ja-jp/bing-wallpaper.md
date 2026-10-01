@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-02 | [チャトゥーガ川, 米国 ノースカロライナ州 (© mtilghma/Getty Images)](https://www.bing.com/th?id=OHR.ChattoogaRiver_JA-JP8558662500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-01 | [オルムステッド・ポイント, 米国 カリフォルニア州 (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_JA-JP0098463265_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-30 | [ヒゲガラ, イングランド (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_JA-JP9843863193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
