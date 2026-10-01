@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-01 | [Tramonto da Olmsted Point, Parco Nazionale di Yosemite, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.OlmstedPoint_IT-IT8819239294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-30 | [Maschio di basettino, Norfolk, Inghilterra (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_IT-IT8754476280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-29 | [Le acque blu alimentate dai ghiacciai del fiume Kasilof, Alaska, USA (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_IT-IT8693387372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

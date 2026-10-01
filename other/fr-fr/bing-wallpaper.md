@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-01 | [La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.ParisSunset_FR-FR0051640032_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-09-30 | [Panure à moustaches mâle, Norfolk, Angleterre (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_FR-FR6298814586_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-29 | [Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)](https://www.bing.com/th?id=OHR.KasilofRiver_FR-FR9609860572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
