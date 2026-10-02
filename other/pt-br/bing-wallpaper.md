@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-03 | [Praia de Taquaras no Balneário Camboriú, Santa Catarina (© MaRabelo/Getty Images)](https://www.bing.com/th?id=OHR.Camburiu_PT-BR9036477210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-02 | [Vista aérea da Lagoa Verde, Angra dos Reis, Rio de Janeiro (© Avalon/Getty Images)](https://www.bing.com/th?id=OHR.GreenLake_PT-BR0948770849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-01 | [Chapim-de-bigodes em Norfolk, Inglaterra (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_PT-BR1145161880_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

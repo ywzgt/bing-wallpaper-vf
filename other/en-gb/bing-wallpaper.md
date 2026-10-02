@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-02 | [Chattooga River in the Appalachian Mountains, North Carolina, United States (© mtilghma/Getty Images)](https://www.bing.com/th?id=OHR.ChattoogaRiver_EN-GB2495394216_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-01 | [Panorama of Parliament Square and Nelson Mandela memorial, London (© ansharphoto/Shutterstock)](https://www.bing.com/th?id=OHR.BlackHistoryMonthUK2026_EN-GB9938862434_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-09-30 | [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://www.bing.com/th?id=OHR.BeardReedling_EN-GB9865111388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
