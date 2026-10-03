@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-03 | [Oso pardo en Silver Salmon Creek, Parque Nacional y Reserva del lago Clark, Alaska, EE. UU. (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_ES-ES2255914104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-02 | [Río Chattooga en los montes Apalaches, Carolina del Norte, EE. UU. (© mtilghma/Getty Images)](https://www.bing.com/th?id=OHR.ChattoogaRiver_ES-ES4729549409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-01 | [Vista aérea de la playa de lava negra, El Golfo, Lanzarote, Islas Canarias, España (© Westend61/Adobe Stock)](https://www.bing.com/th?id=OHR.ElGolfo_ES-ES8850772045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
