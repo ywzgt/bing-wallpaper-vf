@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-05 | [Foguete Artemis I no Complexo de Lançamento 39B, Centro Espacial Kennedy, Flórida, EUA (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_PT-BR6940961892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-04 | [Urso-pardo, Silver Salmon Creek, Parque Nacional e Reserva do Lago Clark, Alasca, EUA (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_PT-BR4132076191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-03 | [Praia de Taquaras no Balneário Camboriú, Santa Catarina (© MaRabelo/Getty Images)](https://www.bing.com/th?id=OHR.Camburiu_PT-BR9036477210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

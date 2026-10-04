@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-04 | [Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.GruesDer_FR-FR4180166006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-03 | [Ours brun à Silver Salmon Creek, parc national et réserve de Lake Clark, Alaska, États-Unis (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_FR-FR9368655618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-02 | [Végétation automnale multicolore sur la tourbière (© Utopia_88/Getty Images)](https://www.bing.com/th?id=OHR.AutumnPeatBog_FR-FR3286332172_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

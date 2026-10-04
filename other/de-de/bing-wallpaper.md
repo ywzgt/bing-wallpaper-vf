@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-04 | [Artemis-I-Mondrakete am Startkomplex 39B, Kennedy Space Center, Florida, USA, 15. Juni 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_DE-DE4474155042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-03 | [Brandenburger Tor, Berlin (© almir1968/Getty Images)](https://www.bing.com/th?id=OHR.BrandenburgGateFireworks_DE-DE4410403528_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-02 | [Braunbär am Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, USA (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_DE-DE4187515695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
