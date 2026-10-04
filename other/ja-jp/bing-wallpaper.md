@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-05 | [アデリーペンギンのグループ, 南極大陸 (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_JA-JP9090254921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-04 | [アルテミス I のロケット, 米国 フロリダ州 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_JA-JP8925094178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-03 | [アンモナイトの化石 (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_JA-JP8778940090_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
