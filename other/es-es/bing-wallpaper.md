@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-05 | [Pingüinos de Adelia, Antártida (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_ES-ES0045236370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-04 | [Cohete lunar Artemis I en el Complejo de Lanzamiento 39B, Centro Espacial Kennedy, Florida, EE. UU., 15 de junio de 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_ES-ES2701886938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-03 | [Oso pardo en Silver Salmon Creek, Parque Nacional y Reserva del lago Clark, Alaska, EE. UU. (© Danny Green/Nature Picture Library)](https://www.bing.com/th?id=OHR.GrizzlySwim_ES-ES2255914104_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
