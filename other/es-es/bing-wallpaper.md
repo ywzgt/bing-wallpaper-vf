@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-06 | [Relieve Danxia, Geoparque Nacional de Zhangye, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_ES-ES4557489111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-05 | [Pingüinos de Adelia, Antártida (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_ES-ES0045236370_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-04 | [Cohete lunar Artemis I en el Complejo de Lanzamiento 39B, Centro Espacial Kennedy, Florida, EE. UU., 15 de junio de 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_ES-ES2701886938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

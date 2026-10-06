@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-06 | [Zhangye-Danxia-Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_DE-DE4675912635_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-05 | [Adeliepinguine, Antarktis (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_DE-DE4553591722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-04 | [Artemis-I-Mondrakete am Startkomplex 39B, Kennedy Space Center, Florida, USA, 15. Juni 2022 (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_DE-DE4474155042_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-06 | [Relief Danxia, géoparc national de Zhangye, Gansu, Chine (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_FR-FR1547265147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-05 | [Manchots Adélie, Antarctique (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_FR-FR4489383327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-04 | [Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)](https://www.bing.com/th?id=OHR.GruesDer_FR-FR4180166006_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

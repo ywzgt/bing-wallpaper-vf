@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-06 | [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_EN-GB2873051697_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-05 | [Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_EN-GB2790518533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-04 | [Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, United States (© EVA MARIE UZCATEGUI/Getty Images)](https://www.bing.com/th?id=OHR.ArtemisRocket_EN-GB2659306567_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
