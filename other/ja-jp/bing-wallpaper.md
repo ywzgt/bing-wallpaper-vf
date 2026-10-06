@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-07 | [パズルウッド, イングランド (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_JA-JP0675230191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-06 | [張掖国家地質公園, 中国 (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_JA-JP9811731742_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-05 | [アデリーペンギンのグループ, 南極大陸 (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_JA-JP9090254921_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
