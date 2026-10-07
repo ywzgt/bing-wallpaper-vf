@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-08 | [Rochas cobertas de musgo em Puzzlewood, Floresta de Dean, Gloucestershire, Inglaterra (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_PT-BR7892976998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-07 | [Formações de Danxia, Geoparque Nacional de Zhangye, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_PT-BR7632834539_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-06 | [Pinguins-de-adélia, Antártica (© Otto Plantema/Minden Pictures)](https://www.bing.com/th?id=OHR.AdelieTeacher_PT-BR7440299182_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
