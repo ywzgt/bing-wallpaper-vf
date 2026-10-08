@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-09 | [サンギネール諸島, フランス (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_JA-JP1377358410_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-08 | [栗の実 (© y-studio/Getty Images)](https://www.bing.com/th?id=OHR.Chestnut2026_JA-JP0900389061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-07 | [パズルウッド, イングランド (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_JA-JP0675230191_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
