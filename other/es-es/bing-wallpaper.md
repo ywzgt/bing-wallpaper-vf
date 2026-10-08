@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-08 | [Pulpo en postura defensiva, Mayotte, Francia, océano Índico (© Gabriel Barathieu/Minden Pictures)](https://www.bing.com/th?id=OHR.MayotteOctopus_ES-ES3892391318_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-07 | [Rocas cubiertas de musgo en Puzzlewood, Bosque de Dean, Gloucestershire, Inglaterra (© Fulcanelli_AOS/Getty Images)](https://www.bing.com/th?id=OHR.ForestofDean_ES-ES3526600939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-06 | [Relieve Danxia, Geoparque Nacional de Zhangye, Gansu, China (© Weiquan Lin/Getty Images)](https://www.bing.com/th?id=OHR.DanxiaLandform_ES-ES4557489111_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
