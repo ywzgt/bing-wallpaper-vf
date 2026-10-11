@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-11 | [Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)](https://www.bing.com/th?id=OHR.MouflonAutumn_DE-DE6144771164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-10 | [Ohrenscharben über der Monterey Bay, Kalifornien, USA (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_DE-DE5717719144_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-09 | [Blick auf die Îles Sanguinaires vor Korsika, Frankreich (© Francesco Riccardo Iacomino/Getty Images)](https://www.bing.com/th?id=OHR.IlesSanguinaires_DE-DE5457015089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
