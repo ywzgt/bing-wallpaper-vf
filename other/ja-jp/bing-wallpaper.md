@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-13 | [プリトヴィツェ湖群国立公園, クロアチア (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_JA-JP3930294400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-12 | [ベニコンゴウインコのペア (© markes51/Getty Images)](https://www.bing.com/th?id=OHR.RedMacawsFlight_JA-JP3781300138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-11 | [グレイド・クリーク・グリスト・ミル, 米国 ウェストバージニア州 (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_JA-JP1996620132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
