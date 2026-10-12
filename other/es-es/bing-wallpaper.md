@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-12 | [La Patrulla Águila sobrevuela durante el Desfile Militar del Día Nacional, Madrid, España (© Carlos Alvarez/Getty Images)](https://www.bing.com/th?id=OHR.PatrullaAguila_ES-ES5090687481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-11 | [Molino de Glade Creek, Parque Estatal Babcock, Virginia Occidental, EE. UU. (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_ES-ES4865600988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-10 | [Catedral-Basílica de Nuestra Señora del Pilar, Zaragoza, Aragón, España (© frantic00/Getty Images)](https://www.bing.com/th?id=OHR.ZaragozaBasilica_ES-ES1990532240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

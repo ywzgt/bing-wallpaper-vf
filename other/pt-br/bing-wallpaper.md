@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-13 | [Brinquedos tradicionais de miriti expostos durante o Círio de Nazaré em Belém, Pará (© Ricardo Lima/Getty Images)](https://www.bing.com/th?id=OHR.KidsDay_PT-BR1347488359_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-12 | [Moinho de Glade Creek, Parque Estadual Babcock, Virgínia Ocidental, EUA (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_PT-BR9617512928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-11 | [Corvos-marinhos-de-orelhas sobre a baía de Monterey, Califórnia, EUA (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_PT-BR9427423298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

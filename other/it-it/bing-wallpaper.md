@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-12 | [Il pontile di Mumbles, Swansea, Galles (© Helen Hotson/Shutterstock)](https://www.bing.com/th?id=OHR.MumblesSwansea2026_IT-IT0315747519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-11 | [La regata della Barcolana nel Golfo di Trieste, Friuli-Venezia Giulia, Italia (© Marco Saracco/Getty Images)](https://www.bing.com/th?id=OHR.BarcolanaBoats_IT-IT7828341555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-10 | [Cormorani crestati americani sopra la baia di Monterey, California, Stati Uniti (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_IT-IT0012209213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

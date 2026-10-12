@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-12 | [Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)](https://www.bing.com/th?id=OHR.MumblesSwansea2026_EN-GB4411542970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-11 | [Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)](https://www.bing.com/th?id=OHR.BabcockSP_EN-GB3870597164_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-10 | [Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)](https://www.bing.com/th?id=OHR.CormorantsFlight_EN-GB3315477514_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
