@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-14 | [Fósiles de amonites del Jurásico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_ES-ES5982555890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-13 | [Parque Nacional de los Lagos de Plitvice, Croacia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_ES-ES5332185237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-12 | [La Patrulla Águila sobrevuela durante el Desfile Militar del Día Nacional, Madrid, España (© Carlos Alvarez/Getty Images)](https://www.bing.com/th?id=OHR.PatrullaAguila_ES-ES5090687481_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
