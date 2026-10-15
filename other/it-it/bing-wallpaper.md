@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-15 | [Veduta della piazza del Mercato di Breslavia dal Ponte delle Streghe, Breslavia, Polonia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_IT-IT1033829565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-14 | [Fossili di ammoniti del Giurassico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_IT-IT0745512844_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-13 | [Parco nazionale dei laghi di Plitvice, Croazia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_IT-IT0543699035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

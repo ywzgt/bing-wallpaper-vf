@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-15 | [Blick auf den Breslauer Marktplatz von der Hexenbrücke in Breslau, Polen (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_DE-DE7177247783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-14 | [Ammonitenfossilien aus der Jurazeit (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_DE-DE6773160072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-13 | [Nationalpark Plitvicer Seen, Kroatien (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_DE-DE7625110895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

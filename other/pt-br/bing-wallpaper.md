@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-16 | [Vista da Praça do Mercado de Wrocław a partir da Ponte das Bruxas, Wrocław, Polônia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_PT-BR5779158730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-15 | [Fósseis de amonites do período Jurássico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_PT-BR4750235603_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-14 | [Parque Nacional dos Lagos de Plitvice, Croácia (© Jan Wlodarczyk/Alamy)](https://www.bing.com/th?id=OHR.PlitviceAutumn_PT-BR4568960471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
