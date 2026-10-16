@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-16 | [Monte Sneffels, montañas San Juan, cerca de Ridgway, Colorado, EE. UU. (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_ES-ES3631909168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-15 | [Vista de la plaza del Mercado de Breslavia desde el Puente de las Brujas, Breslavia, Polonia (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_ES-ES6249915839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-14 | [Fósiles de amonites del Jurásico (© J Nemchinova/Getty Images)](https://www.bing.com/th?id=OHR.AmmoniteFossils_ES-ES5982555890_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
