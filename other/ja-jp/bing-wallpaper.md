@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-17 | [ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-16 | [スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_JA-JP1327078827_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-15 | [ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)](https://www.bing.com/th?id=OHR.WroclawPoland_JA-JP4298283472_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
