@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-18 | [La Val di Funes, Bolzano, Trentino-Alto Adige, Italia (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.ValdiFunesDolomite_IT-IT2572646672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-17 | [Riproduzione a grandezza naturale delle pitture della grotta di Chauvet, Vallon-Pont-d'Arc, Francia (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_IT-IT2139803809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-16 | [Monte Sneffels, San Juan Mountains, vicino a Ridgway, Colorado, USA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_IT-IT1945499761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

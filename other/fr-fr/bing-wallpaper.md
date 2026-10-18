@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-18 | [Château de Dolbadarn, Llanberis, Parc national d’Eryri (Snowdonia), Pays de Galles (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_FR-FR3604957648_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-17 | [Écureuil roux (© Cédric GUERE/Getty Images)](https://www.bing.com/th?id=OHR.SmilingSquirrel_FR-FR7350313584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-16 | [Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.SneffelsAutumn_FR-FR3895133232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

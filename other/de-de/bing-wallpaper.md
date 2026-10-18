@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-18 | [Dolbadarn Castle, Llanberis, Eryri-Nationalpark (Snowdonia), Wales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_DE-DE0565954250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-17 | [Lebensgroße Nachbildung der Chauvet-Höhlenmalereien in Vallon-Pont-d'Arc, Frankreich (© Audrey Poree/Alamy)](https://www.bing.com/th?id=OHR.ChauvetPaintingsFrance_DE-DE0392727746_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-16 | [Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)](https://www.bing.com/th?id=OHR.AndechsAbbey_DE-DE4997798666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
