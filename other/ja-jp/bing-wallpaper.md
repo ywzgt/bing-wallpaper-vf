@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-19 | [カナル・グランデ, イタリア (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_JA-JP2535499489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-18 | [ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_JA-JP2361140889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-17 | [ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)](https://www.bing.com/th?id=OHR.Persimmons2026_JA-JP2192858733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
