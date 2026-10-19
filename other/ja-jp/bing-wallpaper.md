@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-20 | [���の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_JA-JP2697515435_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-19 | [カナル・グランデ, イタリア (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_JA-JP2535499489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-18 | [ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_JA-JP2361140889_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
