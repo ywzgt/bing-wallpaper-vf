@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-20 | [Braunkehl-Faultier, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_DE-DE1394372620_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-19 | [Canal Grande in Venedig, Italien (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_DE-DE1204445748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-18 | [Dolbadarn Castle, Llanberis, Eryri-Nationalpark (Snowdonia), Wales (© joe daniel price/Getty Images)](https://www.bing.com/th?id=OHR.DolbadarnWales_DE-DE0565954250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

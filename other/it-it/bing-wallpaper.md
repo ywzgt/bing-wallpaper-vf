@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-20 | [Giovane bradipo tridattilo dalla gola bruna, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_IT-IT3225849910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-19 | [Alba sul Canal Grande, Venezia, Veneto, Italia (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_IT-IT2943629456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-18 | [La Val di Funes, Bolzano, Trentino-Alto Adige, Italia (© Achim Thomae/Getty Images)](https://www.bing.com/th?id=OHR.ValdiFunesDolomite_IT-IT2572646672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
