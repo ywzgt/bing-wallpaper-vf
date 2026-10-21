@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-22 | [Ponte Nguyen Hoang sobre o Rio Perfume, Hue, Vietnã (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_PT-BR8870725479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-21 | [Preguiça-comum em Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_PT-BR9878913953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-20 | [Grande Canal de Veneza, Itália (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.VeniceSunrise_PT-BR8365610239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
