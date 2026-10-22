@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-23 | [蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)](https://www.bing.com/th?id=OHR.TsutanumaMomiji2026_JA-JP1409614988_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-22 | [内蔵山国立公園, 韓国 (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_JA-JP7092803320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-21 | [グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_JA-JP2833280767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
