@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-22 | [Patio interior tradicional cordobés, Córdoba, Andalucía, España (© Martinez Studio/ShutterStock)](https://www.bing.com/th?id=OHR.CordobaPatios_ES-ES7294783560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-21 | [Puente Nguyễn Hoàng sobre el río de los Perfumes, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_ES-ES2577546493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-20 | [Perezoso de tres dedos de garganta marrón joven, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)](https://www.bing.com/th?id=OHR.BrownSloth_ES-ES6810824751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
