@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-23 | [Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-GB5342942021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-22 | [Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-GB5252582759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-21 | [Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://www.bing.com/th?id=OHR.VietnamBridge_EN-GB5180652549_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
