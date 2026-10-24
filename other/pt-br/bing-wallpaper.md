@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-25 | [Real Gabinete Português de Leitura, Rio de Janeiro (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_PT-BR6869331212_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-24 | [Dois lobos-cinzentos no Parque Nacional de Yellowstone, Wyoming, EUA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_PT-BR5538259597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-23 | [Outono no Parque Nacional Naejangsan, Coreia do Sul (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_PT-BR4250456618_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

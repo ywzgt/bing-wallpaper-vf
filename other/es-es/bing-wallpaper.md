@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Real Gabinete Portugués de Lectura, Río de Janeiro, Brasil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_ES-ES7866547666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Dos lobos grises, Parque Nacional de Yellowstone, Wyoming, EE. UU. (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_ES-ES1877782674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Patio interior tradicional cordobés, Córdoba, Andalucía, España (© Martinez Studio/ShutterStock)](https://www.bing.com/th?id=OHR.CordobaPatios_ES-ES7294783560_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

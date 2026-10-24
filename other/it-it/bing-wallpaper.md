@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Real Gabinete Portoghese di Lettura, Rio de Janeiro, Brasile (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_IT-IT4308985837_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Due lupi grigi, Parco nazionale di Yellowstone, Wyoming, USA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_IT-IT3969091116_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Autunno nel Parco nazionale di Naejangsan, Corea del Sud (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_IT-IT3718795886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_EN-GB5432733315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_EN-GB5342942021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_EN-GB5252582759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

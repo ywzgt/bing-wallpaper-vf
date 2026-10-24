@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_FR-FR9364310812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)](https://www.bing.com/th?id=OHR.ReimsChampagne_FR-FR6230244152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_FR-FR8219456677_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-24 | [Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)](https://www.bing.com/th?id=OHR.BerlinLibrary_DE-DE5145605761_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-23 | [Wölfe im Yellowstone-Nationalpark, Wyoming, USA (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_DE-DE2017697752_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-22 | [Herbst im Naejangsan-Nationalpark, Südkorea (© Twenty47studio/Getty Images)](https://www.bing.com/th?id=OHR.NaejangsanNP_DE-DE1873468197_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
