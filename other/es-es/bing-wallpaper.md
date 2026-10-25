@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-25 | [Entrada a la Iglesia de Santa María, Gernika-Lumo, Vizcaya, País Vasco, España (© tichr/ShutterStock)](https://www.bing.com/th?id=OHR.GernikaPaisVasco_ES-ES5108223011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-24 | [Real Gabinete Portugués de Lectura, Río de Janeiro, Brasil (© Antonio Salaverry/Shutterstock)](https://www.bing.com/th?id=OHR.PortugueseLibrary_ES-ES7866547666_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-23 | [Dos lobos grises, Parque Nacional de Yellowstone, Wyoming, EE. UU. (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_ES-ES1877782674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
