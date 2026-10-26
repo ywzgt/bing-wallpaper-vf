@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-27 | [ポンドサイプレス, 米国 ジョージア州 (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_JA-JP5777656593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-26 | [シトヴォ滝, ブルガリア (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_JA-JP3524382726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-25 | [ハイイロオオカミ, 米国 ワイオミング州 (© John Morrison/Getty Images)](https://www.bing.com/th?id=OHR.YellowstoneWolves_JA-JP3378091323_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
