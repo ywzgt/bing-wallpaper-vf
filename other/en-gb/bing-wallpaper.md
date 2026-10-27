@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-28 | [A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_EN-GB5711949030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-27 | [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_EN-GB5626792550_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-26 | [The Eastgate Clock, Chester, England (© Alexey_Fedoren/iStock/Getty Images)](https://www.bing.com/th?id=OHR.BSTEnds2026_EN-GB5502884225_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

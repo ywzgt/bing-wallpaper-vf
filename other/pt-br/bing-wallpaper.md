@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-28 | [Bosque de ciprestes-dos-pântanos com folhagem de outono, Geórgia, EUA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_PT-BR8608067056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-27 | [Basílica Santuário de Nossa Senhora de Nazaré, Belém, Pará (© filipefrazao/Getty Images)](https://www.bing.com/th?id=OHR.Nazare_PT-BR0405066219_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-26 | [Lago Maligne, Parque Nacional de Jasper, Alberta, Canadá (© Andrey Popov/Getty Images)](https://www.bing.com/th?id=OHR.MaligneFest_PT-BR7307872506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

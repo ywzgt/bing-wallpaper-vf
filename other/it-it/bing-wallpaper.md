@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-27 | [Boschetto di cipressi delle paludi con colori autunnali, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_IT-IT6320902214_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-26 | [Cascate autunnali vicino a Sitovo, provincia di Plovdiv, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_IT-IT4859902057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-25 | [Chiesa di Santa Barbara in Largo dei Librari, vicino al mercato di Campo de' Fiori a Roma, Italia (© Alexander Spatari/Getty Images)](https://www.bing.com/th?id=OHR.CarbonaraRomeMarket_IT-IT4675824754_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
