@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-28 | [Castillo de Kunětická hora, Bohemia, Chequia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_ES-ES0637644398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-27 | [Bosque de cipreses de estanque, Georgia, EE. UU. (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_ES-ES1413599118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-26 | [Cascadas otoñales cerca de Sitovo, provincia de Plovdiv, Bulgaria (© Nadya85/Getty Images)](https://www.bing.com/th?id=OHR.SitovoWaterfall_ES-ES1073935690_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
