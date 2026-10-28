@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-29 | [エーヴベリー 巨石群, イングランド (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_JA-JP4031336786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-28 | [クネティツカー・ホラ城, チェコ (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_JA-JP3914699688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-27 | [ポンドサイプレス, 米国 ジョージア州 (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_JA-JP5777656593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
