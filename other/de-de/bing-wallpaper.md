@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-29 | [Stehende Steine in Avebury, Wiltshire, England (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_DE-DE3052154737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-28 | [Burg Kunětická hora, Böhmen, Tschechien (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_DE-DE2818546067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-27 | [Teichzypressen in herbstlicher Färbung, Georgia, USA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_DE-DE2656375905_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

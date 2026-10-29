@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-30 | [Círculo de Pedras de Avebury, Wiltshire, Inglaterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_PT-BR9317811680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-29 | [Castelo de Kunětická hora, Boêmia, Chéquia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_PT-BR8917469200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-28 | [Bosque de ciprestes-dos-pântanos com folhagem de outono, Geórgia, EUA (© Chris Moore/Getty Images)](https://www.bing.com/th?id=OHR.PondCypress_PT-BR8608067056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
