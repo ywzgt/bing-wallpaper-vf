@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-31 | [聖バルトロメウス大聖堂、フランクフルト、ドイツ (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_JA-JP4785085446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-30 | [カナダヅル、ボスケ・デル・アパッチ国立野生動物保護区、ニューメキシコ州、アメリカ (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_JA-JP2456396404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-29 | [エーヴベリー 巨石群, イングランド (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_JA-JP4031336786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
