@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-30 | [Grullas canadienses, Refugio Nacional de Vida Silvestre Bosque del Apache, Nuevo Mexico, EUA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_ES-ES8460518037_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-29 | [Menhires de Avebury, Wiltshire, Inglaterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_ES-ES9090727572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-28 | [Castillo de Kunětická hora, Bohemia, Chequia (© Marek Saroch/Alamy)](https://www.bing.com/th?id=OHR.KuneticeCastle_ES-ES0637644398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
