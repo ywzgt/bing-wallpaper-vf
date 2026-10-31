@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-31 | [Duomo Imperiale di Francoforte, Germania (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_IT-IT1676201038_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-10-30 | [Gru canadesi, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)](https://www.bing.com/th?id=OHR.AutumnCranes_IT-IT0637151336_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-29 | [Menhir di Avebury, Wiltshire, Inghilterra (© George W Johnson/Getty Images)](https://www.bing.com/th?id=OHR.AveburyStones_IT-IT5634082753_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
