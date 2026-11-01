@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-02 | [ホッキョクグマの親子、ハドソン湾、マニトバ州、カナダ (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_JA-JP9155678647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-01 | [シュヴァルツヴァルト、バーデン＝ヴュルテンベルク州、ドイツ (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_JA-JP7556408951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-10-31 | [聖バルトロメウス大聖堂、フランクフルト、ドイツ (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_JA-JP4785085446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
