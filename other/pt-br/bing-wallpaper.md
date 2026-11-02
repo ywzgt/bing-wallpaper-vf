@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-03 | [Urso-polar e filhotes na Baía de Hudson, Manitoba, Canadá (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_PT-BR1375226804_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-02 | [Floresta Negra, Baden-Württemberg, Alemanha (© Britus/Getty Images)](https://www.bing.com/th?id=OHR.SchwarzwaldAutumn_PT-BR1065721767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-01 | [Catedral de São Bartolomeu, em Frankfurt, Alemanha (© AlxeyPnferov/Getty Images)](https://www.bing.com/th?id=OHR.FrankfurtHalloween_PT-BR9368321413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
