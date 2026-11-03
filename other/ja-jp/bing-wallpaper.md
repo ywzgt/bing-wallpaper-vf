@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-04 | [色鮮やかなラクウショウの森をボートで進む人々、安徽省宣城市、中国 (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_JA-JP2275105446_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-03 | [ブライエス湖、ファネス・セネス・ブラーイエス自然公園、ドロミテ、イタリア (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_JA-JP1334653956_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-02 | [ホッキョクグマの親子、ハドソン湾、マニトバ州、カナダ (© Danita Delimont/Adobe Stock)](https://www.bing.com/th?id=OHR.HudsonBear_JA-JP9155678647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
