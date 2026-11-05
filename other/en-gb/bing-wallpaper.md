@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-06 | [Fireworks over Battersea Power Station, London (© Michael Lee/Getty Images)](https://www.bing.com/th?id=OHR.FireworksBattersea_EN-GB4505786809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-05 | [People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_EN-GB4167994080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-04 | [Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)](https://www.bing.com/th?id=OHR.AlpineBraies_EN-GB4055015386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
