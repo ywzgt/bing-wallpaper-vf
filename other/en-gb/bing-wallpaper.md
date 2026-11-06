@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-07 | [Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_EN-GB4651327269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-06 | [Fireworks over Battersea Power Station, London (© Michael Lee/Getty Images)](https://www.bing.com/th?id=OHR.FireworksBattersea_EN-GB4505786809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-05 | [People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_EN-GB4167994080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

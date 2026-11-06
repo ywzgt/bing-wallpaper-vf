@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-06 | [Bambuswald, Pīpīwai Trail, Haleakalā-Nationalpark, Maui, Hawaii, USA (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_DE-DE9691097479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-05 | [Holzsteg an einer Steinmauer, Black Crag, Lake District, England (© Alex Treadway/Getty Images)](https://www.bing.com/th?id=OHR.StileCrossing_DE-DE6131632165_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-04 | [Paddler zwischen farbenprächtigen Sumpfzypressen, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)](https://www.bing.com/th?id=OHR.AutumnChina_DE-DE5410503674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
