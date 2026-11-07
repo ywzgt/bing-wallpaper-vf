@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-07 | [Un bisonte en los pastizales del Parque Nacional Theodore Roosevelt, Dakota del Norte, EE. UU. (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_ES-ES8128030749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-06 | [Bosque de Bambú, Sendero Pīpīwai, Parque Nacional Haleakalā, Maui, Hawái, EE. UU. (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_ES-ES2022669562_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-05 | [Escalera de madera, Black Crag, Distrito de los Lagos, Inglaterra (© Alex Treadway/Getty Images)](https://www.bing.com/th?id=OHR.StileCrossing_ES-ES1149628904_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
