@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-08 | [Lanternes pour Diwali, Mumbai, Maharashtra, Inde (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_FR-FR3288508792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-07 | [Bison dans le parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_FR-FR7465030722_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-06 | [Forêt de bambous, Pīpīwai Trail, Hawaii, États-Unis (© MNStudio/Getty Images)](https://www.bing.com/th?id=OHR.PipiwaiTrail_FR-FR9210868970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
