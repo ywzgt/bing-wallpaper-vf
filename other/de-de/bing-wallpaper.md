@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-09 | [Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)](https://www.bing.com/th?id=OHR.MauerBerlin_DE-DE4395338070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-08 | [Laternen für Diwali, Mumbai, Maharashtra, Indien (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_DE-DE0703233561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-07 | [Ein Bison in der Grassteppe des Theodore-Roosevelt-Nationalparks, Nord-Dakota, USA (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_DE-DE0154878283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

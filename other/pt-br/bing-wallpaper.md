@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-10 | [Bairro histórico de Triana, Sevilha, Espanha (© Andrzej Rostek/Getty Images)](https://www.bing.com/th?id=OHR.TrianaSpain_PT-BR8294912902_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-09 | [Lanternas para o Diwali, Mumbai, Maharashtra, Índia (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_PT-BR7355901557_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-08 | [Um bisão nas pastagens do Parque Nacional Theodore Roosevelt, Dakota do Norte, EUA. (© Tandem Stock/Adobe Stock)](https://www.bing.com/th?id=OHR.DakotaBison_PT-BR6015279362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
