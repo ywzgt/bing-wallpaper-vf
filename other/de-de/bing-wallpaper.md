@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-10 | [Luftaufnahme von Rose Island, Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_DE-DE1760101963_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-09 | [Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)](https://www.bing.com/th?id=OHR.MauerBerlin_DE-DE4395338070_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-08 | [Laternen für Diwali, Mumbai, Maharashtra, Indien (© Dinodia Photo/Getty Images)](https://www.bing.com/th?id=OHR.DiwaliLamps_DE-DE0703233561_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
