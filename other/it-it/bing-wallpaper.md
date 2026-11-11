@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-11 | [Foresta Atlantica, Brasile (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_IT-IT7343444003_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-10 | [Vista aerea di Rose Island, Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_IT-IT6994665330_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-09 | [Quartiere storico di Triana, Siviglia, Spagna (© Andrzej Rostek/Getty Images)](https://www.bing.com/th?id=OHR.TrianaSpain_IT-IT6419651277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

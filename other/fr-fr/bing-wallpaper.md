@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-11 | [Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)](https://www.bing.com/th?id=OHR.ArmisticeTriomphe_FR-FR3844367700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-10 | [Vue aérienne de Rose Island, Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_FR-FR0867516842_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-09 | [Quartier historique de Triana, Séville, Espagne (© Andrzej Rostek/Getty Images)](https://www.bing.com/th?id=OHR.TrianaSpain_FR-FR5872801405_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
