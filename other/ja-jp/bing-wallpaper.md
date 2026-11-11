@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-12 | [ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_JA-JP8307735119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-11 | [大西洋岸森林、ブラジル (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_JA-JP3902829738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-10 | [ローズ島の空撮、バハマ (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_JA-JP3257968381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
