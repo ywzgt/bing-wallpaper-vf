@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-13 | [Arco da Janela Norte, Parque Nacional dos Arcos, Moab, Utah, EUA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_PT-BR8858044565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-12 | [Mata Atlântica, Brasil (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_PT-BR8667026625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-11 | [Vista aérea de Rose Island, nas Bahamas (© Abstract Aerial Art/Getty Images)](https://www.bing.com/th?id=OHR.RoseIsland_PT-BR8484348763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
