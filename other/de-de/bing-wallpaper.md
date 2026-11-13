@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-13 | [Abraham Lake in Alberta, Kanada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_DE-DE1158881043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-12 | [North Window, Arches-Nationalpark, Moab, Utah, USA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_DE-DE3364064033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-11 | [Der Atlantische Regenwald, Brasilien (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_DE-DE2362030432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

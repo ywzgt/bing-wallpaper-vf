@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-13 | [Lac Abraham, Alberta, Canada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_FR-FR1972061533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-12 | [North Window, parc national des Arches, Moab, Utah, États-Unis (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_FR-FR9118968859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-11 | [Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)](https://www.bing.com/th?id=OHR.ArmisticeTriomphe_FR-FR3844367700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-14 | [Lago Abraham, Alberta, Canadá (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_PT-BR3973023341_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-13 | [Arco da Janela Norte, Parque Nacional dos Arcos, Moab, Utah, EUA (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_PT-BR8858044565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-12 | [Mata Atlântica, Brasil (© FG Trade/Getty Images)](https://www.bing.com/th?id=OHR.Atlantica_PT-BR8667026625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
