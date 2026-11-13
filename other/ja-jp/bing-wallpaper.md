@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-14 | [ビクトリア・ハーバー、香港、中国 (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_JA-JP0477081186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-13 | [アブラハム湖、アルバータ州、カナダ (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_JA-JP9609532400_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-12 | [ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)](https://www.bing.com/th?id=OHR.NorthWindow_JA-JP8307735119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
