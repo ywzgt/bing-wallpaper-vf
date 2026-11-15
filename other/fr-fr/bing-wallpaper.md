@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-15 | [Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_FR-FR6372552822_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-14 | [Port Victoria, Hong Kong, Chine (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_FR-FR2342913478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-13 | [Lac Abraham, Alberta, Canada (© Guang Cao/Getty Images)](https://www.bing.com/th?id=OHR.AbrahamCanada_FR-FR1972061533_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
