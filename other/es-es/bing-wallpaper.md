@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-16 | [Monumento de las Viviendas en los Acantilados de Gila (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_ES-ES3316486595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-15 | [Escarcha sobre hojas de azalea (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_ES-ES3306321438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-14 | [Puerto Victoria, Hong Kong, China (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_ES-ES3038554146_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

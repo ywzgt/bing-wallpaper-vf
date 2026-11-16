@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-17 | [Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_EN-GB1863069273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-16 | [Frozen azalea with red leaves (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_EN-GB4338987849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-15 | [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://www.bing.com/th?id=OHR.BlueHK_EN-GB3274323919_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
