@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-17 | [トレイル・オブ・ザ・シーダーズ、グレイシャー国立公園、モンタナ州、アメリカ (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_JA-JP3850490248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-16 | [ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_JA-JP2766300250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-15 | [赤い葉に霜が降りたツツジ (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_JA-JP1519167944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
