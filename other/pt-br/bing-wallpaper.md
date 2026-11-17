@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-18 | [Trilha dos Cedros, Parque Nacional Glacier, Montana, EUA  (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_PT-BR3104230051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-17 | [Monumento Nacional Gila Cliff Dwellings, Novo México, EUA (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_PT-BR7125417411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-16 | [Azaleia congelada com folhas vermelhas (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_PT-BR6618538565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

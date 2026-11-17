@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-17 | [Sendero de los Cedros, Montana, EE. UU. (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_ES-ES7366091421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-16 | [Monumento de las Viviendas en los Acantilados de Gila (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_ES-ES3316486595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-15 | [Escarcha sobre hojas de azalea (© avoferten/Shutterstock)](https://www.bing.com/th?id=OHR.FirstFrost_ES-ES3306321438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
