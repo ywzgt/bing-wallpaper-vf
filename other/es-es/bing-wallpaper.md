@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-18 | [Una pareja de lechuzas al anochecer (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ES-ES4442138471_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-17 | [Sendero de los Cedros, Montana, EE. UU. (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_ES-ES7366091421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-16 | [Monumento de las Viviendas en los Acantilados de Gila (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_ES-ES3316486595_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

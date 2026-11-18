@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-18 | [Couple de chouettes effraies  (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_FR-FR0018372456_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-17 | [Sentier des cèdres, parc national de Glacier, Montana, États-Unis (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_FR-FR7583904016_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-16 | [Habitations troglodytes de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)](https://www.bing.com/th?id=OHR.GilaCliff_FR-FR9544531277_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
