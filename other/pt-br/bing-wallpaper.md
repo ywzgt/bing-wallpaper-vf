@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-20 | [Escultura "Body of Knowledge", de Jaume Plensa, na Universidade Goethe em Frankfurt, Alemanha (© Todamo/Shutterstock)](https://www.bing.com/th?id=OHR.KnowledgeSculpture_PT-BR4000726900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-19 | [Corujas-das-torres  (© Zahoor Salmi/Getty Images)](https://www.bing.com/th?id=OHR.BarnOwlsUnite_PT-BR3615870863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-18 | [Trilha dos Cedros, Parque Nacional Glacier, Montana, EUA  (© DBushue Photography/Getty Images)](https://www.bing.com/th?id=OHR.TrailCedars_PT-BR3104230051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
