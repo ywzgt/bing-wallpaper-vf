@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-22 | [Nice, Provença-Alpes-Costa Azul, França (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_PT-BR5183216039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-21 | [Baleia-jubarte (Megaptera novaeangliae) mergulhando, Kvaløya, Troms, norte da Noruega (© Espen Bergersen/Minden Pictures)](https://www.bing.com/th?id=OHR.Megaptera_PT-BR4336826763_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-20 | [Escultura "Body of Knowledge", de Jaume Plensa, na Universidade Goethe em Frankfurt, Alemanha (© Todamo/Shutterstock)](https://www.bing.com/th?id=OHR.KnowledgeSculpture_PT-BR4000726900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
