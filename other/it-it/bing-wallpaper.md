@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-22 | [Cappella e Eremo di Santa Justa, Cantabria, Spagna (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_IT-IT2553496386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-21 | [Nizza, Provenza-Alpi-Costa Azzurra, Francia (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_IT-IT2041247927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-20 | [Megattera (Megaptera novaeangliae) in immersione, Kvaløya, Troms, Norvegia settentrionale (© Espen Bergersen/Minden Pictures)](https://www.bing.com/th?id=OHR.Megaptera_IT-IT1232088954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

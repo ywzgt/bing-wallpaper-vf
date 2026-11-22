@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-22 | [Capilla y ermita de Santa Justa, Cantabria (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_ES-ES5920553602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-21 | [Niza, Provenza-Alpes-Costa Azul, Francia (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_ES-ES5584986553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-20 | [Ballena jorobada (Megaptera novaeangliae) sumergiéndose, Kvaløya, Troms, norte de Noruega (© Espen Bergersen/Minden Pictures)](https://www.bing.com/th?id=OHR.Megaptera_ES-ES5370739195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
