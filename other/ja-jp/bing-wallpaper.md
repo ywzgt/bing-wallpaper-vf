@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-23 | [シダの若芽 (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_JA-JP6039925060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-22 | [サンタ・フスタ礼拝堂、カンタブリア州、スペイン (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_JA-JP5350379708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-21 | [ニース、プロヴァンス＝アルプ＝コート・ダジュール地域圏、フランス (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_JA-JP4725682184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
