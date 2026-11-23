@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-23 | [Pousse de fougère (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_FR-FR6204076819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-22 | [Ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_FR-FR2303317894_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-21 | [Nice, Provence-Alpes-Côte d'Azur (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_FR-FR1499556885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-24 | [Broto de samambaia (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_PT-BR5976883875_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-23 | [Ermida de Santa Justa, na Cantábria, Espanha (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_PT-BR5712827780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-22 | [Nice, Provença-Alpes-Costa Azul, França (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_PT-BR5183216039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-23 | [Brote de helecho (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_ES-ES6597098315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-22 | [Capilla y ermita de Santa Justa, Cantabria (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_ES-ES5920553602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-21 | [Niza, Provenza-Alpes-Costa Azul, Francia (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_ES-ES5584986553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

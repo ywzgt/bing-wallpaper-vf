@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-23 | [Germoglio di felce (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_IT-IT3074319544_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-22 | [Cappella e Eremo di Santa Justa, Cantabria, Spagna (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_IT-IT2553496386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-21 | [Nizza, Provenza-Alpi-Costa Azzurra, Francia (© Siripong Kaewla-iad/Getty Images)](https://www.bing.com/th?id=OHR.RedNice_IT-IT2041247927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
