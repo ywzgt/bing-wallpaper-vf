@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-24 | [Eichhörnchen (Sciurus vulgaris) im Cairngorms-Nationalpark, Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_DE-DE7485834001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-23 | [Farnspitzen (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_DE-DE6300100112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-22 | [Die Kapelle und Einsiedelei von Santa Justa in Kantabrien, Spanien (© Tramont_ana/Getty Images)](https://www.bing.com/th?id=OHR.JustaHermitage_DE-DE4182731523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
