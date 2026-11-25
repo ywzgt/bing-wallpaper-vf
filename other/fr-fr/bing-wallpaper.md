@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-25 | [Sunset Point, parc national de Bryce Canyon, Utah, États-Unis (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_FR-FR4616557781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-24 | [Écureuil roux dans le parc national des Cairngorms, Highlands, Écosse (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_FR-FR2394488770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-23 | [Pousse de fougère (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_FR-FR6204076819_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

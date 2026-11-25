@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-25 | [サンセット・ポイント、ブライスキャニオン国立公園、ユタ州 (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_JA-JP7278727628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-24 | [キタリス、ケアンゴームズ国立公園、ハイランド地方、スコットランド (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_JA-JP8531667327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-23 | [シダの若芽 (© Reza Saputra/Getty Images)](https://www.bing.com/th?id=OHR.FibonacciFern_JA-JP6039925060_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
