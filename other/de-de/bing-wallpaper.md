@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-26 | [Rainbow Falls am Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_DE-DE3182652312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-25 | [Sunset Point, Bryce-Canyon-Nationalpark, Utah (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_DE-DE0548911114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-24 | [Eichhörnchen (Sciurus vulgaris) im Cairngorms-Nationalpark, Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)](https://www.bing.com/th?id=OHR.CairngormsSquirrel_DE-DE7485834001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
