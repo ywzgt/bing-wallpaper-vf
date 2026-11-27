@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-28 | [Monolito ao pôr do sol, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_PT-BR9349113908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-27 | [Rainbow Falls no rio Wailuku, Hilo, Havaí, EUA (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_PT-BR6954250665_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-26 | [Sunset Point, Parque Nacional Bryce Canyon, Utah (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_PT-BR6763339998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

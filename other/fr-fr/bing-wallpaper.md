@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-27 | [Coucher du soleil sur Face Canyon, Lac Powell, Utah, États-Unis (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_FR-FR9763207069_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-26 | [Cascades Rainbow sur la rivière Wailuku, Hilo, Hawaï, États-Unis (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_FR-FR7467471346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-25 | [Sunset Point, parc national de Bryce Canyon, Utah, États-Unis (© Colin D. Young/Alamy)](https://www.bing.com/th?id=OHR.SunsetPoint_FR-FR4616557781_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
