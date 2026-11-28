@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-28 | [Città Vecchia, fiume Moldava, Praga, Cechia (© Lara_Uhryn/Getty Images)](https://www.bing.com/th?id=OHR.VltavaPrague_IT-IT0736491794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-27 | [Butte al tramonto, Face Canyon, Lago Powell, Utah, USA (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_IT-IT4616461166_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-26 | [Rainbow Falls sul fiume Wailuku, Hilo, Hawaii, Stati Uniti (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_IT-IT3377596162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-11-29 | [Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)](https://www.bing.com/th?id=OHR.VltavaPrague_EN-GB9335121200_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-11-28 | [Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)](https://www.bing.com/th?id=OHR.FaceCanyon_EN-GB5580459617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-11-27 | [Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)](https://www.bing.com/th?id=OHR.RFHilo_EN-GB7287228600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
